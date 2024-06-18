@@ -1,6 +1,6 @@
-# TechiDaily
+# Fox Blue Site
 
-Welcome to [https://android-transfer.techidaily.com](https://android-transfer.techidaily.com)
+Welcome to [https://fox-blue.techidaily.com](https://fox-blue.techidaily.com)
 
 ## Publish
 
