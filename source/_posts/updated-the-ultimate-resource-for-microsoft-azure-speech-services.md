@@ -1,7 +1,7 @@
 ---
 title: "[Updated] The Ultimate Resource for Microsoft Azure Speech Services"
-date: 2024-06-17T05:37:53.478Z
-updated: 2024-06-18T05:37:53.478Z
+date: 2024-07-03T11:39:02.189Z
+updated: 2024-07-04T11:39:02.189Z
 tags: 
   - screen-recording
   - ai video
@@ -134,9 +134,9 @@ Step3Finally, click the transcribed text file to edit it with new texts and punc
 
 Up to this point, you should be ready to get started with the **Microsoft Cognitive Services Speech**. The speech-to-text feature allows you to convert unlimited voices to text on your computer. However, the program can be challenging to set up if you're not a techie.
 
-In that case, use a more straightforward option like Google Docs to dictate texts on the text editor. You might also want to consider [Filmora 11](https://tools.techidaily.com/wondershare/filmora/download/) to encode any local audio or video file to editable text. Time to try![Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For Win 7 or later(64-bit)
+In that case, use a more straightforward option like Google Docs to dictate texts on the text editor. You might also want to consider [Filmora 11](https://tools.techidaily.com/wondershare/filmora/download/) to encode any local audio or video file to editable text. Time to try ![Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
 [Try STT Now](https://tools.techidaily.com/wondershare/filmora/download/) [Try STT Now](https://tools.techidaily.com/wondershare/filmora/download/) [Explore STT](https://tools.techidaily.com/wondershare/filmora/download/)
 

@@ -1,7 +1,7 @@
 ---
 title: "\"Innovative Drone Designs  Always on Your Side for 2024\""
-date: 2024-06-17T05:57:57.498Z
-updated: 2024-06-18T05:57:57.498Z
+date: 2024-07-03T11:38:59.879Z
+updated: 2024-07-04T11:38:59.879Z
 tags: 
   - screen-recording
   - ai video
@@ -47,7 +47,7 @@ thumbnail: https://thmb.techidaily.com/0fc1e99290cf59c3605c4bd53329b181e70c2492c
 | [Wingsland S6 Foldable Pocket Selfie Drone](#tab9) | $550    | 4k                                      | 10min       | 120m          |
 | [Hover's Passport](#tab10)                         | $599    | 4k                                      | 10min       | 20m           |
 
-#### 1. [DJI Phantom 3 Standard: ($496)](<https://www.amazon.com/gp/product/B013U0F6EQ/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B013U0F6EQ&linkId=7eb3c6ed8291356e6acb86c74ddca833>)
+#### 1. DJI Phantom 3 Standard: ($496)
 
 [dji phantom 3 standard](https://images.wondershare.com/filmora/article-images/dji-phantom-3-standard.jpg) ](https://www.amazon.com/gp/product/B013U0F6EQ/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B013U0F6EQ&linkId=7eb3c6ed8291356e6acb86c74ddca833)
 
@@ -65,7 +65,7 @@ thumbnail: https://thmb.techidaily.com/0fc1e99290cf59c3605c4bd53329b181e70c2492c
 * It offers advanced GPS based tracking and return to home function.
 * Users will be able to record videos up to 2.7K resolution and maximum supported stills of 12MP.
 
-#### 2. [DJI Phantom 4: ($961)](<https://www.amazon.com/gp/product/B01CFXQZD0/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01CFXQZD0&linkId=edcac98fb2e38b9359b8299650e268df>)
+#### 2. DJI Phantom 4: ($961)
 
 [dji phantom 4](https://images.wondershare.com/filmora/article-images/dji-phantom-4.jpg) ](https://www.amazon.com/gp/product/B01CFXQZD0/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01CFXQZD0&linkId=edcac98fb2e38b9359b8299650e268df)
 
@@ -82,7 +82,7 @@ thumbnail: https://thmb.techidaily.com/0fc1e99290cf59c3605c4bd53329b181e70c2492c
 * The live feed HD with FPV capability is great addition.
 * It offers gimbal stabilization for 3 axis.
 
-#### 3. [3DR Solo: ($260)](<https://www.amazon.com/gp/product/B00ZPM7BOG/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00ZPM7BOG&linkId=6e3a0783ff748b66e7ccc673543bde8f>)
+#### 3. 3DR Solo: ($260)
 
 [3dr solo](https://images.wondershare.com/filmora/article-images/3dr-solo.jpg)](https://www.amazon.com/gp/product/B00ZPM7BOG/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00ZPM7BOG&linkId=6e3a0783ff748b66e7ccc673543bde8f)
 
@@ -99,7 +99,7 @@ thumbnail: https://thmb.techidaily.com/0fc1e99290cf59c3605c4bd53329b181e70c2492c
 * The maximum control range goes up to 500 meters and the maximum supported payload goes up to 420 grams.
 * Its battery takes about 1.5 hours for full charging.
 
-#### 4. [Hubsan H501S: ($242.18)](<https://www.amazon.com/gp/product/B01GO1CWZO/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01GO1CWZO&linkId=9b7f51dd8005d28e190aea46a7586d74>)
+#### 4. Hubsan H501S: ($242.18)
 
 [hubsan h501s](https://images.wondershare.com/filmora/article-images/hubsan-h501s.jpg) ](https://www.amazon.com/gp/product/B01GO1CWZO/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01GO1CWZO&linkId=9b7f51dd8005d28e190aea46a7586d74)
 
@@ -116,7 +116,7 @@ thumbnail: https://thmb.techidaily.com/0fc1e99290cf59c3605c4bd53329b181e70c2492c
 * Battery unit takes 150 minutes for full charging.
 * It supporst 5.8G wireless type video transmission feature.
 
-#### 5. [AirDog: ($650)](<https://www.amazon.com/gp/product/B0182N945I/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B0182N945I&linkId=dee6179c3a782f1a7b08ccb5794b76ed>)
+#### 5. AirDog: ($650)
 
 [airdog](https://images.wondershare.com/filmora/article-images/airdog.jpg)](https://www.amazon.com/gp/product/B0182N945I/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B0182N945I&linkId=dee6179c3a782f1a7b08ccb5794b76ed)
 
@@ -158,7 +158,7 @@ thumbnail: https://thmb.techidaily.com/0fc1e99290cf59c3605c4bd53329b181e70c2492c
 * 12.4 MP stills.
 * Maximum flying range goes up to 1600 meters.
 
-#### 8. [DJI Mavic: ($999)](<https://www.amazon.com/gp/product/B01LYNH0BD/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01LYNH0BD&linkId=5bc2d865f754465a48d14318e26748b0>)
+#### 8. DJI Mavic: ($999)
 
 [dji mavic](https://images.wondershare.com/filmora/article-images/dji-mavic.jpg) ](https://www.amazon.com/gp/product/B01LYNH0BD/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01LYNH0BD&linkId=5bc2d865f754465a48d14318e26748b0)
 
@@ -174,7 +174,7 @@ thumbnail: https://thmb.techidaily.com/0fc1e99290cf59c3605c4bd53329b181e70c2492c
 * Can allow users to enjoy 26 minutes in air.
 * Maximum control range goes up to 7 Km.
 
-#### 9. [Wingsland S6 Foldable Pocket Selfie Drone: ($550)](<https://www.amazon.com/gp/product/B01MU4ND0Z/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01MU4ND0Z&linkId=0cf31fc2afdcdceba4838c11fa155f16>)
+#### 9. Wingsland S6 Foldable Pocket Selfie Drone: ($550)
 
 [wingsland s6 foldable pocket selfie drone](https://images.wondershare.com/filmora/article-images/wingsland-s6-foldable-pocket-selfie-drone.jpg) ](https://www.amazon.com/gp/product/B01MU4ND0Z/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01MU4ND0Z&linkId=0cf31fc2afdcdceba4838c11fa155f16)
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] How to Create and Merge Stunning HDR Images in Lightroom for 2024"
-date: 2024-06-17T06:22:37.330Z
-updated: 2024-06-18T06:22:37.330Z
+date: 2024-07-03T11:38:56.968Z
+updated: 2024-07-04T11:38:56.968Z
 tags: 
   - screen-recording
   - ai video
@@ -162,9 +162,9 @@ Overall, it is simple to create high-quality images in HDR effect with the Adobe
 
 Before using the HDR effect through Lightroom for stacked photo editing and merging, you should all related details first.
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For Win 7 or later(64-bit)
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
 </article
 
@@ -219,9 +219,9 @@ Overall, it is simple to create high-quality images in HDR effect with the Adobe
 
 Before using the HDR effect through Lightroom for stacked photo editing and merging, you should all related details first.
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For Win 7 or later(64-bit)
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
 <ins class="adsbygoogle"
      style="display:block"
