@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Thrifty Shopper's Guide to Cameras"
-date: 2024-06-17T06:10:36.949Z
-updated: 2024-06-18T06:10:36.949Z
+date: 2024-07-11T13:08:11.818Z
+updated: 2024-07-12T13:08:11.818Z
 tags: 
   - screen-recording
   - ai video
@@ -39,7 +39,7 @@ thumbnail: https://thmb.techidaily.com/861e642d844db4b2f3d772a017498464c5809d872
 
 ## Top 10 Cheap/Budget Friendly Action Cameras
 
-#### 1\. [Xiaomi Yi Action Camera ($79.99):](<https://www.amazon.com/gp/product/B01C89GCHU/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01C89GCHU&linkId=0fa33bbe15256887fcfa7957bd8e3a3a>)
+#### 1\. Xiaomi Yi Action Camera ($79.99):
 
 [Check at Amazon](https://www.amazon.com/gp/product/B01C89GCHU/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01C89GCHU&linkId=0fa33bbe15256887fcfa7957bd8e3a3a)
 
@@ -53,7 +53,7 @@ thumbnail: https://thmb.techidaily.com/861e642d844db4b2f3d772a017498464c5809d872
 
  Kodak offers a waterproof, rugged, dustproof and shock proof companion for athletes and adventure lovers. It can be easily used in rough weather conditions as well as under water. You will be able to capture still images with 12MP clarity whereas for videos it offers 720p HD quality. 2X digital zoom is one more advanced feature and the convenient advanced batteries assist users to enjoy long hour recording with ease.
 
-#### 3\. [Polaroid XS 100 ($99.99)](<https://www.amazon.com/gp/product/B00F46UQ4K/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00F46UQ4K&linkId=6d1cf73dd040f47f4ac8a8a14ac9643f>)
+#### 3\. Polaroid XS 100 ($99.99)
 
 [Cheap Action Cameras - Polaroid XS 100](https://images.wondershare.com/filmora/article-images/Polaroid-XS-100-Extreme.jpg) ](https://www.amazon.com/gp/product/B00F46UQ4K/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00F46UQ4K&linkId=6d1cf73dd040f47f4ac8a8a14ac9643f)
 
@@ -61,7 +61,7 @@ thumbnail: https://thmb.techidaily.com/861e642d844db4b2f3d772a017498464c5809d872
 
  Here is a lightweight solution for your action camera needs as its maximum weight goes up to 136grams. The video resolution offers by Polaroid is 1080p Full HD with the maximum storage capacity of 32GB. You can also enjoy the slow motion coverage with this device on 720p HD footage. This tube shaped device can be easily mounted anywhere and the auto rotate feature make it more suitable for adventure sports activities.
 
-#### 4\. [SJCAM SJ5000 ($99)](<https://www.amazon.com/gp/product/B00SUSLF8U/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00SUSLF8U&linkId=c6770a92f2510eb912a222add74cdf5c>)
+#### 4\. SJCAM SJ5000 ($99)
 
 [Cheap Action Cameras - PSJCAM SJ5000](https://images.wondershare.com/filmora/article-images/sjcam-sj5000.jpg) ](https://www.amazon.com/gp/product/B00SUSLF8U/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00SUSLF8U&linkId=c6770a92f2510eb912a222add74cdf5c)
 
@@ -119,3 +119,53 @@ Follow @Max Wales
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-essential-strategies-to-regulate-video-speed-on-snapchat/"><u>[New] Essential Strategies to Regulate Video Speed on Snapchat</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-bridging-silent-images-and-vocal-melodies/"><u>2024 Approved  Bridging Silent Images and Vocal Melodies</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-from-amateurs-to-experts-shooting-spectacentic-photos-and-videos/"><u>[Updated] From Amateurs to Experts  Shooting Spectacentic Photos & Videos</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-cutting-edge-tactics-for-engaging-social-media-medical-ads/"><u>2024 Approved  Cutting-Edge Tactics for Engaging Social Media Medical Ads</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-gopro-vs-yi-4k-updated-review-of-ultimate-action-cams/"><u>[New] 2024 Approved  GoPro Vs. Yi 4K  Updated Review of Ultimate Action Cams</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-drone-racing-mastery-basic-knowledge-and-quintessential-fpv-models/"><u>[New] In 2024, Drone Racing Mastery  Basic Knowledge & Quintessential FPV Models</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-the-ultimate-secrets-of-phantoms-time-reversal-mode/"><u>[Updated] In 2024, The Ultimate Secrets of Phantom's Time Reversal Mode</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-cutting-edge-methods-for-fast-srt-to-text-file-conversion/"><u>[Updated] Cutting-Edge Methods for Fast SRT to Text File Conversion</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-visual-voyage-charting-a-course-through-costless-tiktok-landscapes/"><u>[Updated] Visual Voyage  Charting a Course Through Costless TikTok Landscapes</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-journeys-best-tools-top-10-vr-peripherals-guide/"><u>[New] 2024 Approved  Journey's Best Tools  Top 10 VR Peripherals Guide</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-the-hidden-paths-to-pristine-stock-photography/"><u>[Updated] The Hidden Paths to Pristine Stock Photography</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-10-best-no-cost-live-streaming-tools-android-and-iphone-guide/"><u>In 2024, 10 Best No-Cost Live Streaming Tools  Android & iPhone Guide</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-windows-media-player-alternative-for-2024/"><u>[New] Windows Media Player Alternative for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-adventure-seekers-choice-black-hero5-or-star-sj7/"><u>2024 Approved  Adventure Seekers Choice  Black Hero5 or Star SJ7?</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-advanced-animators-toolkit-samples/"><u>[New] 2024 Approved  Advanced Animator's Toolkit Samples</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-zipping-and-textifying-a-guide-to-crafting-srt-from-zip/"><u>[Updated] Zipping and Textifying  A Guide to Crafting Srt From Zip</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-tale-constructing-the-basic-blueprint-for-2024/"><u>[New] Tale Constructing  The Basic Blueprint for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-analyzing-yuneecs-typhoon-h-drone-features/"><u>[New] Analyzing Yuneec’s Typhoon H Drone Features</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-navigating-the-art-of-online-photo-trimming-for-2024/"><u>[New] Navigating the Art of Online Photo Trimming for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-ideal-pastimes-pairing-with-your-favorite-audio-shows/"><u>[New] 2024 Approved  Ideal Pastimes Pairing with Your Favorite Audio Shows</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-accelerated-editing-seamless-laptoppc-videos-with-inshot/"><u>2024 Approved  Accelerated Editing  Seamless Laptop/PC Videos with Inshot</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-the-ultimate-guide-cropping-and-editing-music-in-canva/"><u>[New] The Ultimate Guide  Cropping & Editing Music in Canva</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-the-ultimate-list-reddits-most-adored-and-upvoted-stories/"><u>[New] The Ultimate List  Reddit's Most Adored and Upvoted Stories</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/10-best-mp4-players-for-music-enthusiasts-for-2024/"><u>10 Best MP4 Players for Music Enthusiasts for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/conquer-the-art-of-slow-motion-expert-guide-to-making-beautifully-extended-video-online-using-photo-apps/"><u>Conquer the Art of Slow Motion  Expert Guide to Making Beautifully Extended Video Online Using Photo Apps</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-ultimate-6-devices-for-flawless-film-translation/"><u>2024 Approved  Ultimate 6 Devices for Flawless Film Translation</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-cutting-edge-creativity-filmoras-favorite-features-explored/"><u>[New] 2024 Approved  Cutting Edge Creativity  Filmora's Favorite Features Explored</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-fast-track-your-periscope-broadcasting/"><u>[Updated] 2024 Approved  Fast-Track Your Periscope Broadcasting</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-maximizing-your-android-game-adventure-with-kinemaster-review-for-2024/"><u>[Updated] Maximizing Your Android Game Adventure with KineMaster Review for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/a-step-by-step-approach-to-freeing-up-space-in-figma-for-2024/"><u>A Step-by-Step Approach to Freeing Up Space in Figma for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/top-10-drone-cameras-perfect-for-cinematic-moments/"><u>Top 10 Drone Cameras  Perfect For Cinematic Moments</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-metaverse-vs-multimetverse-what-are-the-differences-ultimate-guide/"><u>[New] In 2024, Metaverse Vs. MultiMetverse  What Are the Differences [Ultimate Guide]</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-how-to-manage-and-disable-recommended-podcast-episodes-in-spotify/"><u>[New] How to Manage and Disable Recommended Podcast Episodes in Spotify</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/ultimate-guide-to-superior-vr-on-google-cardboard-for-2024/"><u>Ultimate Guide to Superior VR on Google Cardboard for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-from-android-gallery-without-backup-on-samsung-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to recover deleted photos from Android Gallery without backup on Samsung</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-best-time-lapse-tools-and-techniques-no5/"><u>[Updated] 2024 Approved  Best Time-Lapse Tools & Techniques - No.5</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-essential-steps-for-saving-tweets-visuals-in-android-app/"><u>[Updated] In 2024, Essential Steps for Saving Tweets' Visuals in Android App</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/how-to-broadcast-videos-on-twitter-without-the-retweet-step-for-2024/"><u>How To Broadcast Videos on Twitter without the 'Retweet' Step for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-best-of-the-best-unlimited-recorders-top12-for-2024/"><u>[New] Best of the Best  Unlimited Recorders, #Top12 for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/from-novice-to-expert-ascending-with-asmr-video-production-tactics/"><u>From Novice to Expert  Ascending with ASMR Video Production Tactics</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-structuring-vimeo-footage-chapter-creation-tips/"><u>[Updated] 2024 Approved  Structuring Vimeo Footage  Chapter Creation Tips</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-the-ultimate-guide-to-bypassing-icloud-activation-lock-from-apple-iphone-15-plus-by-drfone-ios/"><u>In 2024, The Ultimate Guide to Bypassing iCloud Activation Lock from Apple iPhone 15 Plus</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-in-2024-what-is-an-ai-presentation-maker/"><u>Updated In 2024, What Is an AI Presentation Maker?</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-record-to-remember-a-curated-selection-of-tools-and-gadgets-for-capturing-favorite-tunes-with-ease/"><u>Updated Record to Remember A Curated Selection of Tools and Gadgets for Capturing Favorite Tunes with Ease</u></a></li>
+<li><a href="https://fake-location.techidaily.com/wondering-the-best-alternative-to-hola-on-lava-blaze-2-5g-here-is-the-answer-drfone-by-drfone-virtual-android/"><u>Wondering the Best Alternative to Hola On Lava Blaze 2 5G? Here Is the Answer | Dr.fone</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/updated-how-to-make-a-slideshow-video-plusfilmora-techniques/"><u>Updated How to Make A Slideshow Video (+Filmora Techniques)</u></a></li>
+</ul></div>

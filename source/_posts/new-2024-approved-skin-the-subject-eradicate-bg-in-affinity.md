@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Skin the Subject, Eradicate Bg in Affinity\""
-date: 2024-06-17T05:24:45.032Z
-updated: 2024-06-18T05:24:45.032Z
+date: 2024-07-11T10:10:46.965Z
+updated: 2024-07-12T10:10:46.965Z
 tags: 
   - screen-recording
   - ai video
@@ -30,7 +30,7 @@ Affinity Photo is a simple and easy-to-use editing software, and you can remove 
 
 To erase a white background in Affinity Designer, do these steps:
 
-Step1 In the first step, install the [Affinity Designer](https://affinity.serif.com/en-us/designer/)software and launch it on your computer. Go to **"File" > "Open"** and head to the location of your image with a white background on your drive to import it.
+Step1 In the first step, install the [Affinity Designer](https://affinity.serif.com/en-us/designer/) software and launch it on your computer. Go to **"File" > "Open"** and head to the location of your image with a white background on your drive to import it.
 
 Now access the **Pixel Persona** section in the left corner of the software screen by clicking the **colored boxes** icon.
 
@@ -89,7 +89,7 @@ Finally, click **"File"** and select the **"Export"** option from the drop-down 
 
 Since Affinity Photo is a desktop software available for a one-time purchase of $40.99, you might be looking for an online free alternative if you need more space or can afford the subscription fee.
 
-Therefore, we recommend using [Wondershare PixCut](https://pixcut.wondershare.com/), an advanced AI-based online tool developed by[Wondershare Technology.](https://www.wondershare.com/)
+Therefore, we recommend using [Wondershare PixCut](https://pixcut.wondershare.com/), an advanced AI-based online tool developed by [Wondershare Technology.](https://www.wondershare.com/)
 
 ![wondershare pixcut for removing image background](https://images.wondershare.com/filmora/article-images/2023/03/wondershare-pixcut-for-removing-image-background.png)
 
@@ -123,7 +123,7 @@ Hopefully, this article and video can help you create ideal images!
 
 Since Affinity Photo is a desktop software available for a one-time purchase of $40.99, you might be looking for an online free alternative if you need more space or can afford the subscription fee.
 
-Therefore, we recommend using [Wondershare PixCut](https://pixcut.wondershare.com/), an advanced AI-based online tool developed by[Wondershare Technology.](https://www.wondershare.com/)
+Therefore, we recommend using [Wondershare PixCut](https://pixcut.wondershare.com/), an advanced AI-based online tool developed by [Wondershare Technology.](https://www.wondershare.com/)
 
 ![wondershare pixcut for removing image background](https://images.wondershare.com/filmora/article-images/2023/03/wondershare-pixcut-for-removing-image-background.png)
 
@@ -176,3 +176,48 @@ Hopefully, this article and video can help you create ideal images!
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-elevate-design-15-must-have-plugins-for-after-effects/"><u>[Updated] In 2024, Elevate Design  15 Must-Have Plugins for After Effects</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-hero5-black-meets-hero5-session-a-visual-verdict/"><u>[New] Hero5 Black Meets Hero5 Session – A Visual Verdict</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-spark-the-flame-top-10-motivational-films-for-you/"><u>[Updated] In 2024, Spark the Flame  Top 10 Motivational Films for You</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-the-ultimate-guide-to-free-artistic-software-on-mac/"><u>In 2024, The Ultimate Guide to Free Artistic Software on Mac</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-value-airborne-innovations-top-5-budget-drone-selections/"><u>In 2024, Value Airborne Innovations  Top 5 Budget Drone Selections</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-whimsy-weaver-photo-tapestry/"><u>[Updated] In 2024, Whimsy Weaver  Photo Tapestry</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-advanced-animators-toolkit-samples/"><u>2024 Approved  Advanced Animator's Toolkit Samples</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-essential-haul-editing-skills-making-every-purchase-memorable/"><u>[New] In 2024, Essential Haul Editing Skills  Making Every Purchase Memorable</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-a-guide-to-30-compelling-video-presentation-ideas-for-2024/"><u>[Updated] A Guide to 30 Compelling Video Presentation Ideas for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-top-5-high-quality-low-speed-video-gear/"><u>[New] In 2024, Top 5 High-Quality Low-Speed Video Gear</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-elevate-your-photography-access-to-10plus-free-purchasable-luts-for-canon-cams/"><u>[New] Elevate Your Photography  Access to 10+ Free, Purchasable LUTs for Canon Cams</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-caption-crusaders-top-10-writing-tools-for-image-capture-iosandroid/"><u>In 2024, Caption Crusaders  Top 10 Writing Tools for Image Capture (iOS/Android)</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-the-filmmakers-guide-to-stunning-spherical-videos-9-must-knows/"><u>[New] 2024 Approved  The Filmmaker's Guide to Stunning Spherical Videos (9 Must-Knows)</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-imovie-why-does-it-alter-my-videos/"><u>[Updated] In 2024, IMovie  Why Does It Alter My Videos?</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/holistic-locomotion-examination-2023/"><u>Holistic Locomotion Examination 2023</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-phantom-3-rivalry-veil-4-strikes-back/"><u>[New] 2024 Approved  Phantom 3 Rivalry  Veil 4 Strikes Back</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-reviewing-videoshow-in-its-fullest-for-24-edition-for-2024/"><u>[Updated] Reviewing VideoShow in Its Fullest for '24 Edition for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-tips-to-communicate-with-youtube-subscribers/"><u>[Updated] Tips to Communicate with YouTube Subscribers</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-skys-the-limit-for-your-shots-blend-free-space-and-premium-subscriptions/"><u>[Updated] Sky's the Limit for Your Shots  Blend Free Space and Premium Subscriptions</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-ultimate-live-band-webcasts/"><u>[New] In 2024, Ultimate Live Band Webcasts</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-fiendish-film-pause-techniques/"><u>[New] 2024 Approved  Fiendish Film Pause Techniques</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-skyline-spectacle-top-10-websites-for-dynamic-hdr-images/"><u>[Updated] Skyline Spectacle  Top 10 Websites for Dynamic HDR Images</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-extensive-movement-review-2023/"><u>[New] Extensive Movement Review 2023</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-pro-level-prowess-the-best-video-editors-for-your-drone-footage/"><u>2024 Approved  Pro-Level Prowess  The Best Video Editors for Your Drone Footage</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-reviving-rare-memories-turning-photos-into-engaging-videos/"><u>[Updated] In 2024, Reviving Rare Memories  Turning Photos Into Engaging Videos</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/where-to-watch-vr-content/"><u>Where to Watch VR Content</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-step-up-your-home-cinema-game-with-these-essential-tips/"><u>In 2024, Step Up Your Home Cinema Game with These Essential Tips</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-oppo-a18-to-new-android-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos from Oppo A18 to New Android? | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-step-by-step-how-to-convert-and-download-vids-from-social-media-to-mp3s/"><u>2024 Approved  Step-by-Step  How to Convert and Download Vids From Social Media to MP3s</u></a></li>
+<li><a href="https://extra-information.techidaily.com/9plus-ways-to-experience-cricket-live-streaming-at-its-best/"><u>9+ Ways to Experience Cricket Live Streaming at Its Best</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/find-the-best-value-top-6-budget-friendly-camera-options/"><u>Find the Best Value  Top 6 Budget-Friendly Camera Options</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-techniques-to-transfer-data-from-nubia-z50-ultra-to-iphone-15141312-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Techniques to Transfer Data from Nubia Z50 Ultra to iPhone 15/14/13/12 | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/rclass-in-glamour-beauty-tutorials-for-all/"><u>Masterclass in Glamour  Beauty Tutorials for All</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-dive-deep-into-hdr-creation-the-ultimate-photoshop-playbook/"><u>2024 Approved  Dive Deep Into HDR Creation  The Ultimate Photoshop Playbook</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-in-2024-elevate-your-whatsapp-status-with-these-top-video-maker-tools/"><u>New In 2024, Elevate Your WhatsApp Status with These Top Video Maker Tools</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-premierly-free-female-speech-alteration-platform-for-2024/"><u>Updated Premierly Free Female Speech Alteration Platform for 2024</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-power-up-your-audio-the-best-professional-editing-software/"><u>Updated Power Up Your Audio The Best Professional Editing Software</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-farming-fiesta-fun-pack-the-ultimate-agritainment-guide/"><u>[Updated] In 2024, Farming Fiesta Fun-Pack  The Ultimate Agritainment Guide</u></a></li>
+<li><a href="https://some-skills.techidaily.com/tips-and-tricks-for-effective-azure-speech-to-text-use-for-2024/"><u>Tips and Tricks for Effective Azure Speech-to-Text Use for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-set-your-preferred-job-location-on-linkedin-app-of-your-asus-rog-phone-7-ultimate-drfone-by-drfone-virtual-android/"><u>In 2024, Set Your Preferred Job Location on LinkedIn App of your Asus ROG Phone 7 Ultimate | Dr.fone</u></a></li>
+<li><a href="https://some-tips.techidaily.com/timing-the-tune-in-ideal-podcast-launches-for-2024/"><u>Timing the Tune-In  Ideal Podcast Launches for 2024</u></a></li>
+</ul></div>
