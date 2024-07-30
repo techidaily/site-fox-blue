@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Immediate Countermeasures for the W10 Photos Crash Dilemnas\""
-date: 2024-07-11T10:10:07.938Z
-updated: 2024-07-12T10:10:07.938Z
+date: 2024-07-29T03:48:21.428Z
+updated: 2024-07-30T03:48:21.428Z
 tags: 
   - screen-recording
   - ai video
@@ -20,12 +20,19 @@ thumbnail: https://thmb.techidaily.com/6816402dd23c56a105ec64bc0a33bec17942a9ec3
 
 # How to Solve Windows 10 Photos App Crashes Effectively \[2024\]
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
 
  Mar 27, 2024• Proven solutions
 
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 Photos represent the vibrant memories that we have so fondly spent with our loved ones or capture our achievements and milestones in life. Revisiting them later brings everything alive in front of you. But, when the Windows 10 Photos App crashes, how could you enjoy your beautiful photos? We know fixing the issue is not an easy job. But we have got you covered. If, in any case that, you undergo such crashing issues with Windows 10 Photos App, we are here to lead you through.
@@ -42,6 +49,9 @@ In this article, we have compiled the best solutions for you to get rid of Windo
 
 ## How to fix Windows 10 Photos app crashes
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ### Solution 1: Use the Troubleshooter
 
 The Windows Troubleshooter is an inbuilt troubleshooting feature embedded with Windows 10 computers. It allows a simple interface to help you choose any application for troubleshooting. Windows Troubleshooter resolves basic issues with the Windows computer so that users can seamlessly use all Windows 10 system features and functionalities.
@@ -51,11 +61,17 @@ Here is how to troubleshoot –
    1. Press the ‘Windows’ key + ‘X’ for launching the ‘Control Panel. Alternatively, type ‘Control Panel’ in the search box.
    2. Pick ‘Troubleshooting’ and hit it. Tap on ‘View All’ from the top-left panel of the screen.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/Troubleshooter.jpg)
 
 1. From the list of Apps displayed on the screen, click ‘Windows Store Apps’ and press the ‘Next’ button.
 2. Now, the troubleshooter will troubleshoot every app within the Windows Store Applications and fix them in a jiffy.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
+<!-- affiliate ads end -->
 ### Solution 2: Restore Default Libraries
 
 Restoring the default libraries would resolve the Windows 10 Photos App crash issues. Resetting the Photo App to its default source to a valid network, path fixes the case.
@@ -69,6 +85,9 @@ Restoring the default libraries would resolve the Windows 10 Photos App crash is
 
 1. Lastly, click on ‘Apply’ followed by ‘OK’ and the issue will be resolved.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Solution 3: Reset it
 
 When you reset the Windows Photo App itself, your issue gets resolved. Plenty of Windows users have mentioned that resetting the Photo App has fixed the unresponsive or crashing app problems.
@@ -135,3 +154,68 @@ Follow @Shanoon Cox
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-comprehensive-list-audio-pace-modification-tools/"><u>[New] 2024 Approved  Comprehensive List  Audio Pace Modification Tools</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-free-scape-discovering-the-artistic-no-money-backdrops-of-tiktok/"><u>[New] 2024 Approved  FREE-Scape  Discovering the Artistic No-Money Backdrops of TikTok</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-mastering-soundscapes-the-ultimate-guide-to-iphoneipad-podcast-downloads/"><u>[New] 2024 Approved  Mastering Soundscapes  The Ultimate Guide to iPhone/iPad Podcast Downloads</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-premium-setup-the-top-quality-4k-dslr-mounts-guide/"><u>[New] 2024 Approved  Premium Setup  The Top-Quality 4K DSLR Mounts Guide</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ritical-asmr-video-elements-to-note/"><u>[New] Critical ASMR Video Elements to Note</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-discover-video-editing-innovations-with-movavis-2024-release/"><u>[New] Discover Video Editing Innovations with Movavi's 2024 Release</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-economical-sky-craftsmen-top-5-budget-friendly-drones/"><u>[New] Economical Sky Craftsmen  Top 5 Budget-Friendly Drones</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-guide-to-efficiently-retrieve-youtubes-srt-files/"><u>[New] Guide to Efficiently Retrieve YouTube's SRT Files</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-breaking-barriers-on-frozen-grounds-olympic-snowboard-speed-showdown/"><u>[New] In 2024, Breaking Barriers on Frozen Grounds - Olympic Snowboard Speed Showdown</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-navigating-new-skies-with-syma-x5c-an-experts-take-for-novices/"><u>[New] In 2024, Navigating New Skies with Syma X5C – An Expert’s Take for Novices</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-quick-tips-speeding-up-video-playback-on-snapchat-for-novices/"><u>[New] In 2024, Quick Tips  Speeding Up Video Playback on Snapchat for Novices</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-secure-and-document-your-zoom-conferences/"><u>[New] In 2024, Secure & Document Your Zoom Conferences</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-the-finest-9-digital-places-for-harvesting-futuristic-3d-typefaces/"><u>[New] In 2024, The Finest 9 Digital Places for Harvesting Futuristic 3D Typefaces</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-ultimate-live-band-webcasts/"><u>[New] In 2024, Ultimate Live Band Webcasts</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-step-by-step-guide-to-flawless-audio-segmentation-for-2024/"><u>[New] Step-by-Step Guide to Flawless Audio Segmentation for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-the-ls-showdown-tech-titans-clashing-in-real-time/"><u>[New] The LS Showdown  Tech Titans Clashing in Real Time</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-viral-vibes-a-guide-to-memetic-magic/"><u>[New] Viral Vibes  A Guide to Memetic Magic</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-20plus-laughs-no-boundaries-crafting-memes-across-metaverse-realms-for-2024/"><u>[Updated] 20+ Laughs, No Boundaries  Crafting Memes Across Metaverse Realms for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-elevate-your-profile-the-complete-guide-to-editing-numbers-on-tiktok/"><u>[Updated] Elevate Your Profile  The Complete Guide to Editing Numbers on TikTok</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-expert-strategies-for-efficient-funimate-use/"><u>[Updated] Expert Strategies for Efficient Funimate Use</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-expert-advice-on-efficient-webp-images-transition-to-jpeg/"><u>[Updated] In 2024, Expert Advice on Efficient WebP Images Transition to JPEG</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-film-editing-expertise-exchange/"><u>[Updated] In 2024, Film Editing Expertise Exchange</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-leading-edge-technology-15-high-quality-recorders/"><u>[Updated] In 2024, Leading Edge Technology  15 High-Quality Recorders</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-the-ultimate-guide-to-converting-speech-to-text-with-google-docs/"><u>[Updated] In 2024, The Ultimate Guide to Converting Speech to Text with Google Docs</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-infuse-melodies-into-powerpoint-visuals-for-2024/"><u>[Updated] Infuse Melodies Into PowerPoint Visuals for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-joke-jigsaw-puzzles-build-with-kapwingenasian-memes/"><u>[Updated] Joke Jigsaw Puzzles  Build with Kapwing’enasian Memes</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-mastering-large-video-transfer-ios-to-macos-device-harmony/"><u>[Updated] Mastering Large Video Transfer  IOS to macOS Device Harmony</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-mastering-pip-features-on-ms-edge/"><u>[Updated] Mastering PIP Features on MS Edge</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-mastering-video-cuts-for-instagram-feed/"><u>[Updated] Mastering Video Cuts for Instagram Feed</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-perfectly-pristine-photos-in-the-cloud-free-and-paid-unveiled-for-2024/"><u>[Updated] Perfectly Pristine Photos in the Cloud  Free & Paid Unveiled for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-pro-video-setup-choose-from-our-list-of-best-5-webcams-and-mics/"><u>[Updated] Pro Video Setup  Choose From Our List of Best 5 Webcams & Mics</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-top-12-camcorders-integrating-advanced-gps-technology/"><u>[Updated] Top 12 Camcorders  Integrating Advanced GPS Technology</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-50plus-best-text-effects-for-videographers/"><u>2024 Approved  50+ Best Text Effects for Videographers</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-turbo-speed-for-snapchat-newcomers-video-edition/"><u>2024 Approved  Turbo Speed for Snapchat Newcomers  Video Edition</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/8-superior-windows-video-call-apps-ranked/"><u>8 Superior Windows Video Call Apps Ranked</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/best-green-screen-recorders-how-to-use-them-in-2024/"><u>Best Green Screen Recorders  How to Use Them, In 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/cutting-edge-or-outdated-full-review-and-guide-to-vitas-editor-for-2024/"><u>Cutting Edge or Outdated? Full Review & Guide to Vita's Editor for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/disconnecting-for-enrichment-potential-outcomes/"><u>Disconnecting for Enrichment: Potential Outcomes</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/elite-selection-of-text-motion-packages/"><u>Elite Selection of Text Motion Packages</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-iphone-12-pro-data-from-ios-itunes-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>How to Recover iPhone 12 Pro Data From iOS iTunes? | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-turn-off-find-my-iphone-14-pro-when-phone-is-broken-by-drfone-ios/"><u>How to Turn Off Find My iPhone 14 Pro when Phone is Broken?</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-iphone-14-pro-max-3-ways-to-unlock-by-drfone-ios/"><u>How To Unlock iPhone 14 Pro Max 3 Ways To Unlock</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-additional-tips-about-sinnoh-stone-for-motorola-razr-40-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, Additional Tips About Sinnoh Stone For Motorola Razr 40 Ultra | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-best-of-the-best-select-photovideo-makers-with-musical-accents/"><u>In 2024, Best of the Best  Select Photo/Video Makers with Musical Accents</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-exceptional-audioscape-for-cinematic-videos/"><u>In 2024, Exceptional Audioscape for Cinematic Videos</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-frp-hijacker-by-hagard-download-and-bypass-your-tecno-camon-20-premier-5g-frp-locks-by-drfone-android/"><u>In 2024, FRP Hijacker by Hagard Download and Bypass your Tecno Camon 20 Premier 5G FRP Locks</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-galaxy-s8-review-a-new-era-for-superior-smartphones/"><u>In 2024, Galaxy S8 Review - A New Era for Superior Smartphones</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-innovative-metaverse-humor-generating-unique-memes/"><u>In 2024, Innovative Metaverse Humor  Generating Unique Memes</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-pixel-to-passion-unlocking-new-forms-of-entertainment-with-vr/"><u>In 2024, Pixel to Passion  Unlocking New Forms of Entertainment with VR</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-retail-marketing-through-vr-technology/"><u>In 2024, Retail Marketing Through VR Technology</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-starting-an-impactful-fb-community-giving-campaign/"><u>In 2024, Starting an Impactful FB Community Giving Campaign</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/leveraging-interactivity-elevate-your-online-stream-presence/"><u>Leveraging Interactivity  Elevate Your Online Stream Presence</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/navigating-the-world-of-audio-editing-with-garageband/"><u>Navigating the World of Audio Editing with GarageBand</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/pugilism-power-play-against-viewership-virtue-for-2024/"><u>Pugilism Power Play Against Viewership Virtue for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/remote-screen-resizing-facility-for-2024/"><u>Remote Screen Resizing Facility for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/the-black-illusion-vs-silver-miracle/"><u>The Black Illusion Vs Silver Miracle</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/the-ultimate-guide-to-legally-sharing-tunes-on-instagram/"><u>The Ultimate Guide to Legally Sharing Tunes on Instagram</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-get-back-lost-call-history-from-infinix-smart-7-hd-by-fonelab-android-recover-call-logs/"><u>The way to get back lost call history from Infinix Smart 7 HD</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/ultimate-flashy-game-collection-quick-and-lightweight/"><u>Ultimate Flashy Game Collection - Quick and Lightweight</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/ultimate-photography-journey-with-vsco-editing-tool/"><u>Ultimate Photography Journey with VSCO Editing Tool</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/youtube-tv-for-everyone-no-expertise-required-for-2024/"><u>YouTube TV for Everyone  No Expertise Required for 2024</u></a></li>
+</ul></div>

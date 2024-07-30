@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Opening Lines  Breaking the Ice in Video Comments\""
-date: 2024-07-11T10:12:31.451Z
-updated: 2024-07-12T10:12:31.451Z
+date: 2024-07-29T03:49:31.954Z
+updated: 2024-07-30T03:49:31.954Z
 tags: 
   - screen-recording
   - ai video
@@ -36,8 +36,14 @@ Building a strong and loyal subscriber base is very important when it comes to c
 
 ![increase youtube channel subscribers](https://images.wondershare.com/filmora/article-images/2022/11/increase-youtube-channel-subscribers.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to communicate with your Subscriber
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Replying to comments section
 
 One of the ways to communicate with your subscriber is to reply immediately in your comment section. Often after watching your video your subscriber comment their questions or whatever in the comment section of your video so don’t think twice to reply to their queries or comment.
@@ -46,6 +52,9 @@ Engagement is a huge buzz word in the social media space, often comments on a Yo
 
 ![reply youtube comments section](https://images.wondershare.com/filmora/article-images/2022/11/reply-youtube-comments-section.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Engaging with other People
 
 Did you explore other online communities, especially the ones where you know your audience spends their time?
@@ -54,6 +63,9 @@ Engaging with other people, joining groups, forums and others forms of communica
 
 In entering in some communities or groups, remember that these are communities and as a YouTuber, you should be transparent about who you are and what you do. Users are protective when it comes to maintaining the integrity of discussion in these communities, so be sure you’re adding value first and foremost.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![engage with other people youtube](https://images.wondershare.com/filmora/article-images/2022/11/engage-with-other-people-youtube.jpg)
 
 ### Promoting your channel
@@ -62,6 +74,9 @@ Is one way to engage with your subscriber. Keep them updated, get in touch with 
 
 Usually subscriber don’t just ask questions in the comment section of your video on YouTube. When they see your other social media link, they go there and do private message you for their concerns because that is the best way for you to notice them. So you need also to check your other social media accounts, if you have subscribers there who comment and reply to them immediately if necessary.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
 ![prompt your youtube channel](https://images.wondershare.com/filmora/article-images/2022/11/prompt-your-youtube-channel.jpg)
 
 **Steps How to communicate:**
@@ -76,6 +91,9 @@ Step4 Always end the video with a coming back for the next one with a subscribe 
 
 ## How to increase YouTube Subscribers
 
+<!-- affiliate ads begin -->
+<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Interact Constantly
 
 YouTube is an online community. It’s not just a place where people host videos. When you see this platform this way, you will use it to interact with people who visit it every day. Just like with other social media, the more you give on YouTube.
@@ -96,6 +114,9 @@ Promote your channel and videos on other social media like Facebook, Twitter and
 
 While doing this, be consistent and provide value to your subscriber. People want to know that they can count on your channel to provide quality and relevant videos. Be remarkable by taking the right approach. You can increase you YouTube views by establishing relationships with the audiences. Do this by engaging and interacting with the existing audience or subscriber. Be realistic, sustainable, and organic in your videos.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Best Engaging to Subscribers Tips
 
 Always remember that for your YouTube channel to be successful you must follow the following ways
@@ -116,8 +137,14 @@ Its not enough to be posting weekly videos with you tips and content. Using your
 
 One of the important things to do as a YouTuber is to give importance to subscribers because they are the reason why a YouTube channel becomes popular, they also the reason why your channel recognized by many. Viewers and subscribers must treat as your family, always reply to their comment and follow what they have suggested. Don’t forget also to give them a treat by giving them some gifts or allow them to join to your giveaways.
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![youtube video engaging tips](https://images.wondershare.com/filmora/article-images/2022/11/youtube-video-engaging-tips.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
+<!-- affiliate ads end -->
 ## Conclusion
 
 If you want to have a successful career on YouTube you have to always remember people behind your success and always think of whats best for your channel.
@@ -159,3 +186,41 @@ Creating videos on YouTube is key to your video marketing and content marketing 
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-files.techidaily.com/new-2024-approved-ideal-chipset-selection-for-uhd-rendering/"><u>[New] 2024 Approved  Ideal Chipset Selection for UHD Rendering</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-cutting-edge-image-vault-sites-for-2024/"><u>[New] Cutting-Edge Image Vault Sites for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-cutting-edge-photography-techniques-harnessing-lut-capabilities/"><u>[New] In 2024, Cutting-Edge Photography Techniques  Harnessing LUT Capabilities</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-expertise-in-iphones-high-dynamic-range-photography/"><u>[New] In 2024, Expertise in iPhone's High-Dynamic Range Photography</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-first-row-fun-beyond-the-game-top-alternatives/"><u>[New] In 2024, First Row Fun Beyond the Game  Top Alternatives</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-navigating-the-path-to-popularity-secrets-of-successful-tiktok-unboxers/"><u>[New] In 2024, Navigating the Path to Popularity  Secrets of Successful TikTok Unboxers</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-intelligent-volume-modulation-strategies/"><u>[New] Intelligent Volume Modulation Strategies</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-navigating-pip-functionality-in-apples-browsers-for-2024/"><u>[New] Navigating PIP Functionality in Apple's Browsers for 2024</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-the-art-of-engaging-responding-in-discord-conversations-for-2024/"><u>[New] The Art of Engaging  Responding in Discord Conversations for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-unleash-your-video-potential-with-free-enhancers/"><u>[New] Unleash Your Video Potential with Free Enhancers</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-mastering-unlimited-data-keep-essential-lists/"><u>[Updated] 2024 Approved  Mastering Unlimited Data Keep  Essential Lists</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-capturing-perfect-voices-3-ipad-solutions/"><u>[Updated] Capturing Perfect Voices  3 iPad Solutions</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-masterful-online-advertising-for-beginners-4-must-know-strategies/"><u>[Updated] In 2024, Masterful Online Advertising for Beginners  4 Must-Know Strategies</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-top-5-quick-filming-diy-hacks-to-try-at-home/"><u>[Updated] Top 5 Quick Filming DIY Hacks to Try at Home</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-what-phone-is-compatible-with-gear-vr/"><u>[Updated] What Phone Is Compatible With Gear VR?</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-essential-vhs-illusions-transforming-video-artistry/"><u>2024 Approved  Essential VHS Illusions  Transforming Video Artistry</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-insights-into-a-common-symbol-the-blue-emoji-in-fb-chat/"><u>2024 Approved  Insights Into a Common Symbol  The Blue Emoji in FB Chat</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-ranking-the-best-cameras-that-dont-feature-a-gopro-brand/"><u>2024 Approved  Ranking the Best Cameras That Don't Feature a GoPro Brand</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/dive-into-vlogging-your-first-set-of-tools-for-2024/"><u>Dive Into Vlogging  Your First Set of Tools for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/dreamy-documentaries-bedtime-stories-reviewed-for-2024/"><u>Dreamy Documentaries  Bedtime Stories Reviewed for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/forgot-pattern-lock-heres-how-you-can-unlock-tecno-spark-go-2024-pattern-lock-screen-by-drfone-android/"><u>Forgot Pattern Lock? Heres How You Can Unlock Tecno Spark Go (2024) Pattern Lock Screen</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-after-switching-from-realme-11-5g-to-latest-samsung-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data After Switching From Realme 11 5G to Latest Samsung | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-vivo-s18-pin-codepattern-lockpassword-by-drfone-android/"><u>How to Unlock Vivo S18 PIN Code/Pattern Lock/Password</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/implementing-luts-in-photoshop-cs6cc-an-in-depth-analysis/"><u>Implementing LUTs in Photoshop CS6/CC  An In-Depth Analysis</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-additional-tips-about-sinnoh-stone-for-oppo-reno-10-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Additional Tips About Sinnoh Stone For Oppo Reno 10 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-mastering-android-device-manager-the-ultimate-guide-to-unlocking-your-nokia-c02-device-by-drfone-android/"><u>In 2024, Mastering Android Device Manager The Ultimate Guide to Unlocking Your Nokia C02 Device</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-sony-a6400-the-unseen-movie-problem/"><u>In 2024, Sony A6400  The Unseen Movie Problem</u></a></li>
+<li><a href="https://video-capture.techidaily.com/inexpensive-pc-playback-devices/"><u>Inexpensive PC Playback Devices</u></a></li>
+<li><a href="https://android-frp.techidaily.com/step-by-step-tutorial-how-to-bypass-oneplus-12r-frp-by-drfone-android/"><u>Step-by-Step Tutorial How To Bypass OnePlus 12R FRP</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/top-15-apps-to-hack-wifi-password-on-vivo-y17s-by-drfone-android/"><u>Top 15 Apps To Hack WiFi Password On Vivo Y17s</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/top-tips-for-playing-old-championship-manager-on-pc/"><u>Top Tips for Playing Old Championship Manager on PC</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/unleash-creativity-with-animated-gifs-for-2024/"><u>Unleash Creativity with Animated GIFS for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/unlock-the-secrets-to-intense-hdr-portraits/"><u>Unlock the Secrets to Intense HDR Portraits</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/unveiling-the-full-potential-complete-review-of-powerdirector-pro-suite/"><u>Unveiling the Full Potential  Complete Review of PowerDirector Pro Suite</u></a></li>
+</ul></div>
