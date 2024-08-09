@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Spectrum Perfection  Color Grading Basics\""
-date: 2024-07-11T15:05:12.228Z
-updated: 2024-07-12T15:05:12.228Z
+date: 2024-08-08T04:37:38.537Z
+updated: 2024-08-09T04:37:38.537Z
 tags: 
   - screen-recording
   - ai video
@@ -22,6 +22,9 @@ Everyone in the video editing world is full of lively and beautiful colors — j
 
 ![color grading panel filmora](https://images.wondershare.com/filmora/article-images/2022/08/color-grading-panel-filmora.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## What is Color Grading?
 
 Color grading is the video editing process wherein grading (arranging) colors in a video or film to give them a stylistic look. It is different from Color correction because color correction is the process of correcting (fixing) colors in a video or a film as a way to get them back to what they should look like for your project or output.
@@ -50,6 +53,9 @@ The communication of emotion and story through the lens is one of the most power
 
 One of the most intimidating challenges a photographer or vlogger faces is creating a unique style that can result in a brand for their work. Making a visual style that viewers can recognize at a glance can tremendously impact the growth of a photographer's career. Color grading plays a vital part in that process. Customers will often come to you with a wide range of different photography outputs. By defining a consistent color grading work, you can tie it all into a dense brand that reflects strongly on you and construct a distinctive value that provides you something to sell that only you can offer to people.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## How to use Color Grading in Wondershare Filmora?
 
 There are many color grading software available on your Windows PC or Mac. Still, here I will show you how to use the Color grading and color tuning features in Wondershare Filmora video editing software. Filmora's natural interface allows learners or semi-pros to master this video editor speedily. And, the color tuning tools in Filmora are powerful enough.
@@ -72,6 +78,9 @@ Advanced Color Tools icon – click the Advanced Color Tools icon in the toolbar
 
 Color Panel Window - to perform color correction in Wondershare Filmora, switch to the Color tab. You can modify the white balance, saturation, tint, contrast, temperature, and brightness and apply 3D LUT immediately and quickly in this editing panel. You see the output in the Preview window.
 
+<!-- affiliate ads begin -->
+<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![edit color grading video fx](https://images.wondershare.com/filmora/article-images/2022/08/edit-color-grading-video-fx.jpg)
 
 **Contrast**: is the variance in luminance or color that makes an object identifiable. By modifying this setting, control the dissimilarity in color and brightness in contrary parts of the video image.
@@ -90,6 +99,9 @@ Color Panel Window - to perform color correction in Wondershare Filmora, switch 
 
 Here, there are two options to select: The Color correction. It offers different readily-made presets you can use to color your video.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![open color correction filmora](https://images.wondershare.com/filmora/article-images/2022/08/open-color-correction-filmora.jpg)
 
 ##### Step2Select the specific video portion
@@ -102,6 +114,9 @@ First, you need to select the specific video portion you want to change the colo
 
 * And I selected the end portion of the video. After that, choose the part of the video.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
+<!-- affiliate ads end -->
 ![selected end portion video filmora](https://images.wondershare.com/filmora/article-images/2022/08/selected-end-portion-video-filmora.jpg)
 
 ##### Step3Apply the color correction preset that you want then click ok
@@ -116,6 +131,9 @@ In the Presets tab, there are different templates, including Common, 3D LUT, Vig
 
 Once you've finished correcting the video color, press Play and go over the whole video through the previewing window. If satisfied with the result, click the "Export" button to transport your video. Click the Settings button to modify settings if needed. You can save the new videos in different formats under the Format tab. If you want to play the edit file on devices like Tablet, iPad, Kindle Fire, PSP, Xbox, etc., go to the "Devices" tab and select the configured preset for the specific model. You can also upload the video output on Youtube for better preservation.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![preview and save video filmora](https://images.wondershare.com/filmora/article-images/2022/08/preview-and-save-video-filmora.jpg)
 
 **Using the Color Panel Window**
@@ -124,12 +142,20 @@ Once you've finished correcting the video color, press Play and go over the whol
 
 You can modify the temperature, tint, white balance, contrast, saturation, and brightness and apply 3D LUT directly and quickly in this editing panel.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ![color panel windows filmora](https://images.wondershare.com/filmora/article-images/2022/08/color-panel-windows-filmora.jpg)
 
 ##### Step2Color grading with Wondershare Filmora
 
 Click the button Advanced at the lower corner, then the color grading window will pop up, and you can explore your settings and options.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
+DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
+<!-- affiliate ads end -->
 ![color grading with filmora](https://images.wondershare.com/filmora/article-images/2022/08/color-grading-with-filmora.jpg)
 
 **Color Histogram**
@@ -199,3 +225,47 @@ Overall, Color grading is the process of video editing to have an excellent look
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-decoding-youtubes-thumbnail-impact-on-traffic/"><u>[New] 2024 Approved  Decoding YouTube's Thumbnail Impact on Traffic</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-journey-to-joyful-snaps-animated-faces-on-mobile-for-2024/"><u>[New] Journey to Joyful Snaps  Animated Faces on Mobile for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-from-front-to-back-a-step-by-step-guide-to-angled-photography-on-social-platforms/"><u>[Updated] 2024 Approved  From Front to Back  A Step-by-Step Guide to Angled Photography on Social Platforms</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-perfecting-the-picture-perfect-cover-photo-on-instagrams-highlights/"><u>[Updated] 2024 Approved  Perfecting the Picture-Perfect Cover Photo on Instagram's Highlights</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-accelerated-cinematography-best-5-diy-hacks-for-quick-learning/"><u>2024 Approved  Accelerated Cinematography  Best 5 DIY Hacks for Quick Learning</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-best-free-and-paid-drawing-apps-for-windows/"><u>2024 Approved  Best Free and Paid Drawing Apps for Windows</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-boosting-productivity-with-innovative-win11-features/"><u>2024 Approved  Boosting Productivity with Innovative Win11 Features</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-crafting-compelling-narratives-with-wmm-and-animation-techniques/"><u>2024 Approved  Crafting Compelling Narratives with WMM and Animation Techniques</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-echoes-of-the-northmen-essential-sites-to-grab-got-audio-calls/"><u>2024 Approved  Echoes of the Northmen  Essential Sites to Grab GoT Audio Calls</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-elite-digital-tunes-transmission-service/"><u>2024 Approved  Elite Digital Tunes Transmission Service</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-essential-non-xsplit-video-splitters/"><u>2024 Approved  Essential Non-Xsplit Video Splitters</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-evaluating-live-stream-giants-twitch-and-youtube/"><u>2024 Approved  Evaluating Live Stream Giants  Twitch & YouTube</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-from-novice-to-pro-transforming-videos-using-vida/"><u>2024 Approved  From Novice to Pro  Transforming Videos Using Vida</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-iconic-stock-photographs-meme-lives-and-histories/"><u>2024 Approved  Iconic Stock Photographs  Meme Lives and Histories</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-innovating-for-success-metaverse-sales-strategies/"><u>2024 Approved  Innovating for Success  Metaverse Sales Strategies</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-kinemasters-guide-to-fluid-film-segments/"><u>2024 Approved  Kinemaster's Guide to Fluid Film Segments</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-leveraging-azures-voice-recognition-for-advanced-solutions/"><u>2024 Approved  Leveraging Azure's Voice Recognition for Advanced Solutions</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-lunar-luster-online-a-curated-list-of-hdr-sky-images/"><u>2024 Approved  Lunar Luster Online  A Curated List of HDR Sky Images</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-navigating-the-latest-in-360-cameras/"><u>2024 Approved  Navigating the Latest in 360 Cameras</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-navigating-the-world-of-fpv-drone-propellers/"><u>2024 Approved  Navigating the World of FPV Drone Propellers</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-pace-your-panorama-learning-time-lapses-on-samsung-phones/"><u>2024 Approved  Pace Your Panorama  Learning Time-Lapses on Samsung Phones</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-photoframe-prospectus-essential-list-of-software-sites-and-tools/"><u>2024 Approved  Photoframe Prospectus  Essential List of Software Sites & Tools</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-pro-photographys-selections-the-creme-de-la-4k-dslrs/"><u>2024 Approved  Pro Photography's Selections  The Crème De La 4K DSLRs</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-review-for-dji-fpv-goggles/"><u>2024 Approved  Review for DJI FPV Goggles</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-sketch-whimsical-graphics-on-giphy/"><u>2024 Approved  Sketch Whimsical Graphics on Giphy</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-snapshot-review-vidmas-innovation-on-screen-capturing/"><u>2024 Approved  Snapshot Review  Vidma's Innovation on Screen Capturing</u></a></li>
+<li><a href="https://location-fake.techidaily.com/6-ways-to-change-spotify-location-on-your-honor-play-7t-drfone-by-drfone-virtual-android/"><u>6 Ways to Change Spotify Location On Your Honor Play 7T | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/agile-application-alternatives-quick-android-plays/"><u>Agile Application Alternatives: Quick Android Plays</u></a></li>
+<li><a href="https://network-issues.techidaily.com/celebrating-success-amd-driver-loads-perfectly-on-wndows-10/"><u>Celebrating Success: AMD Driver Loads Perfectly on Wndows 10</u></a></li>
+<li><a href="https://win-forum.techidaily.com/exploring-digital-connections-on-major-sites-facebook-twitter-instagram-and-youtube-uncovered/"><u>Exploring Digital Connections on Major Sites: Facebook, Twitter, Instagram & YouTube Uncovered</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-oppo-reno-11-5g-to-laptop-without-usb-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos from Oppo Reno 11 5G to Laptop Without USB | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-samsung-galaxy-s23-tactical-edition-to-new-android-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos from Samsung Galaxy S23 Tactical Edition to New Android? | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-detailed-review-of-doctorsim-unlock-service-for-apple-iphone-14-pro-max-drfone-by-drfone-ios/"><u>In 2024, Detailed Review of doctorSIM Unlock Service For Apple iPhone 14 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-starting-off-with-zoom-meetings-your-first-steps-guide/"><u>In 2024, Starting Off with Zoom Meetings  Your First Steps Guide</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/managing-icloud-photo-deletion-while-retaining-copies-on-your-iphone-device/"><u>Managing iCloud Photo Deletion While Retaining Copies On Your iPhone Device</u></a></li>
+<li><a href="https://review-topics.techidaily.com/play-hevc-h265-on-htc-u23-is-it-possible-by-aiseesoft-video-converter-play-hevc-video-on-android/"><u>Play HEVC H.265 on HTC U23, is it possible?</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/project-pics-blend-outside-focus-with-radial-filters-psx/"><u>Project Pics  Blend Outside Focus with Radial Filters PSX</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/simplifying-driver-updates-a-user-friendly-approach-to-epson-software-for-windows-devices/"><u>Simplifying Driver Updates: A User-Friendly Approach to Epson Software for Windows Devices</u></a></li>
+<li><a href="https://fake-location.techidaily.com/the-best-8-vpn-hardware-devices-reviewed-on-infinix-note-30-vip-drfone-by-drfone-virtual-android/"><u>The Best 8 VPN Hardware Devices Reviewed On Infinix Note 30 VIP | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/what-to-do-if-google-play-services-keeps-stopping-on-samsung-galaxy-f14-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What to Do if Google Play Services Keeps Stopping on Samsung Galaxy F14 5G | Dr.fone</u></a></li>
+</ul></div>

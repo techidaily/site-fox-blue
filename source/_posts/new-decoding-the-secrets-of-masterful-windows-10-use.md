@@ -1,0 +1,181 @@
+---
+title: "[New] Decoding the Secrets of Masterful WINDOWS 10 Use"
+date: 2024-08-08T04:42:46.618Z
+updated: 2024-08-09T04:42:46.618Z
+tags: 
+  - screen-recording
+  - ai video
+  - ai audio
+  - ai auto
+categories: 
+  - ai
+  - screen
+description: "This Article Describes [New] Decoding the Secrets of Masterful WINDOWS 10 Use"
+excerpt: "This Article Describes [New] Decoding the Secrets of Masterful WINDOWS 10 Use"
+keywords: "\"Windows 10 Tips:,Pro-Windows 10 Guide:,Mastering Windows 10 Usage:,Advanced Windows 10 Functions:,Windows 10 Optimization Techniques:,Expertise in Windows 10:,Unlock Windows 10 Power:\""
+thumbnail: https://thmb.techidaily.com/d66a628fa0cf48140c10b181f20d8c3673ed432efe3b9eaa0c987c81fd05af8c.jpg
+---
+
+## Decoding the Secrets of Masterful WINDOWS 10 Use
+
+# Must-Know Windows 10 Tips and Tricks
+
+<!-- affiliate ads begin -->
+<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+##### Max Wales
+
+ Mar 27, 2024• Proven solutions
+
+Windows is nowhere to rock the world! If you are so excited about updating your software but you are not sure how to get started, you have come to the right page. Here are the biggest tips and tricks that you can use to enjoy the hidden features brought to you by Windows 10:
+
+#### 1. Personalize the Start Menu
+
+![a8](https://images.wondershare.com/windows10/a8.png)
+
+The start menu of Windows 10 is now resizable. It can be quote odd for many but it is really surprising to know that with Windows 10, you can now customize the start menu and change its size to the extent you want. You now have the option to make it taller or wider as you like. If you wish to have the start menu taking up the whole left portion of the screen of your laptop or you want a thin strip transversely the taskbar, well that is now possible with Windows 10\. The taskbar is also resizable and that means you have the ability to some weird and pretty cool stuff with your device. You will surely find that having a resizable Start Menu is cool.
+
+#### 2. Using Cortana in Windows 10
+
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![update win10 13](https://images.wondershare.com/windows10/update-win10-13.png)
+
+Cortana is finally here in Windows 10, taking control of the search functions as well as dishing out as much sass of the operating system in the same way with Windows Phone edition. On the other hand, by default, it will never listen and follow your commands.
+
+If you would like to have the ability to simply bark commands at your personal computer, you launch Cortana through hitting the search field within the taskbar and then choose the Notebook icon in the left side choices pane. You choose “settings” from the list and have the “Let Cortana respond when you say ‘Hey Cortana’” choice. You will have an active and working microphone for it to work.
+
+While you are poking around the Cortana’s options, you may dive in the Notebook menu so you can fine-tune exactly what data the digital assistant of Microsoft can open. On the other hand, you should bear in mind that like Google, the effectiveness of Cortana is related directly to how much it knows regarding you.
+
+#### 3. Additional Apps you should try
+
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
+<!-- affiliate ads end -->
+![xbox games windows10](https://images.wondershare.com/windows10/xboy-games-windows10-1.png)
+
+The current Windows 10’s preview comes with some interesting apps like the new Xbox app, Insider Hub, Project Spartan web browser, Windows Feedback and a lot more. Though they are good apps to use when you want to get started in using Windows 10, Microsoft is likewise making available the preview of touch-friendly editions of Microsoft Word, Excel as well as the PowerPoint. All of these are known to be universal apps and that means similar code is running on the phones, PCs and tablets.
+
+On the other hand, Microsoft did not release similar apps that are optimized for tablets and phones as of now. These apps don’t come with Windows 10 yet you may download the new apps through the Store. Microsoft will also release the Music Preview and also the Video Preview applications. These apps are designed to replace the present Video and Music apps in Windows 8.1\. These two will be introducing a brand new look which complements the design that Microsoft tries to implement across different apps all over the OS.
+
+#### 4. New Keyboard Shortcuts
+
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
+<!-- affiliate ads end -->
+![Windows 10 keyboard shortcuts](https://images.wondershare.com/filmora/article-images/Windows-10-keyboard-shortcuts.png)
+
+Most of them include the Windows key. The New window-snapping choices allow you not just to fill partially the screen on one side but also the screen quadrant. Also, you may tap the Windows key downward and hit “Right Arrow” and the “Up Arrow”. With that, the program window would move to the top quadrant at the right side of the screen.
+
+Windows Key-Tab open and leaves open the new task view to show all the running and working programs as well as the virtual desktops. To make the latest virtual desktop, you can use the Windows Key-Ctrl-D. Windows Key-C will get Cortana listening and following your voice input then the Windows Key-S will open its daily glance to showcase the weather, news and sports. Command the line users to obtain a bunch of new selection shortcuts by using the keys Shift and the Arrow keys.
+
+#### 5. Using Virtual Desktop Feature
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
+<!-- affiliate ads end -->
+![taskview](https://images.wondershare.com/filmora/article-images/taskview.jpg)
+
+Virtual desktops are among the most favorites of most Windows users and it is one of the coolest features of the new Windows 10\. You could move programs between a virtual desktop & another. To make it happen, when you are running different desktops, you proceed to Task View through pressing the Windows Key-Tab combo. You right click the app you want to transfer from a virtual desktop to the other, choose “Move To” and then you move the app to the desktop where it should go.
+
+With Windows 10, it is now easy to create several desktops as well as run applications from each, so every desktop is showing only those apps that are running in a particular virtual desktop. In case that you do not want to make use of this feature, you may simply remove the “Task View” button.
+
+#### 6. New Mail App
+
+![a7](https://images.wondershare.com/windows10/a7.png)
+
+This is quite simple yet most people make use of the very capable contemporary email client that has been included in the latest editions of Windows. The email client that has been included in Windows 10 now comes with collapsible conversation view and email preview panel. Plus, it integrates the buttons for new contact and calendar apps. You could simply add different mail accounts from various providers.
+
+#### 7. New Edge Browser
+
+![edge](https://images.wondershare.com/filmora/article-images/edge.jpg)
+
+Most users were tired and sick of the Internet Explorer’s incompatibility with a few newer websites. They also hate the sluggish performance of the previous versions. While the latest editions of Internet Explorer have created some significant gains in these aspects, the new Edge Browser of Windows 10 can make a neat and perfect break and it also offers better speed as well as new compatibility which is likely to surprise you. Besides, it now comes with a number of tools that are not available in Internet Explorer and these include the site annotation, extensions and reading view.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599951&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+Epubor Ultimate for Win：Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<!-- affiliate ads end -->
+![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+Max Wales
+
+Max Wales is a writer and a lover of all things video.
+
+Follow @Max Wales
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-render-your-social-media-footage/"><u>[New] 2024 Approved  Render Your Social Media Footage</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-zooming-in-an-intensive-guide-to-youtube-live-stream-success/"><u>[New] 2024 Approved  Zooming In  An Intensive Guide to YouTube Live Stream Success</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-best-free-live-streaming-software-and-app-for-all-platforms/"><u>[New] Best Free Live Streaming Software and App for All Platforms</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-enhance-video-performance-selecting-top-12-players/"><u>[New] Enhance Video Performance  Selecting Top 12 Players</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-command-the-field-with-a-customized-in-game-character-voice-in-free-fire/"><u>[New] In 2024, Command the Field with a Customized In-Game Character Voice in Free Fire</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-finding-voice-changers-for-vtubers-two-best-app-recommended/"><u>[New] In 2024, Finding Voice Changers for Vtubers  Two Best App Recommended</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-leading-macos-mkv-players-exposed/"><u>[New] In 2024, Leading macOS MKV Players Exposed</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-radiant-realms-creating-exceptional-hdr-with-photoshop/"><u>[New] In 2024, Radiant Realms  Creating Exceptional HDR with Photoshop</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-screenflow-unleashed-a-comprehensive-macos-review/"><u>[New] In 2024, ScreenFlow Unleashed  A Comprehensive macOS Review</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-visionary-devices-pushing-computing-limits/"><u>[New] In 2024, Visionary Devices  Pushing Computing Limits</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-itunes-recording-hacks-for-enhanced-videos/"><u>[New] ITunes Recording Hacks for Enhanced Videos</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-a-future-proof-selection-top-cloud-services-reviewed/"><u>[Updated] 2024 Approved  A Future-Proof Selection  Top Cloud Services Reviewed</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-energize-with-these-10-inspiring-movies/"><u>[Updated] 2024 Approved  Energize with These 10 Inspiring Movies</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-mastering-srt-a-thorough-exploration-of-its-essence/"><u>[Updated] 2024 Approved  Mastering SRT  A Thorough Exploration of Its Essence</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-spectral-photography-takes-a-quantum-leap-with-blade-4k/"><u>[Updated] 2024 Approved  Spectral Photography Takes a Quantum Leap with Blade 4K</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-unlocking-sierra-comprehensive-icloud-drives/"><u>[Updated] 2024 Approved  Unlocking Sierra  Comprehensive iCloud Drives</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-capturing-every-angle-not-just-a-single-plane/"><u>[Updated] Capturing Every Angle, Not Just a Single Plane</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-duel-for-dominance-physical-vs-virtual-spectacle-for-2024/"><u>[Updated] Duel for Dominance  Physical vs Virtual Spectacle for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-intro-ideas-free-download-options/"><u>[Updated] In 2024, Intro Ideas  Free Download Options</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-mastering-the-use-and-maintenance-of-m1-max-clips/"><u>[Updated] In 2024, Mastering the Use and Maintenance of M1 Max Clips</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-optimal-vision-selections-of-best-4k-dslrs-in-action-for-2024/"><u>[Updated] Optimal Vision  Selections of Best 4K DSLRs in Action for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-step-by-step-integrating-apple-music-into-your-videos-for-2024/"><u>[Updated] Step-by-Step  Integrating Apple Music Into Your Videos for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-which-screen-grab-tool-wins-insights-into-obs-vs-fraps/"><u>[Updated] Which Screen Grab Tool Wins? Insights Into OBS vs Fraps</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-pathway-from-srt-to-subc-3-actionable-methods/"><u>2024 Approved  Pathway From SRT to SUBC  3 Actionable Methods</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-prime-selection-of-affordable-cams-for-action-sports/"><u>2024 Approved  Prime Selection of Affordable Cams for Action Sports</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-seamless-sessions-tailoring-your-zoom-environment/"><u>2024 Approved  Seamless Sessions  Tailoring Your Zoom Environment</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-the-ultimate-iphone-photography-playbook-prime-angles-uncovered/"><u>2024 Approved  The Ultimate iPhone Photography Playbook  Prime Angles Uncovered</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/avoid-common-mistakes-in-youtube-livestreaming-with-best-webcams-for-2024/"><u>Avoid Common Mistakes in YouTube Livestreaming with Best Webcams for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/breaking-down-the-top-ae-title-styles-for-2024/"><u>Breaking Down the Top AE Title Styles for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/dive-into-iphone-photo-magic-with-surface-mirror-tips/"><u>Dive Into iPhone Photo Magic with Surface Mirror Tips</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/efficient-video-mastery-merging-windows-11-and-storyremix-technologies-for-2024/"><u>Efficient Video Mastery  Merging Windows 11 and StoryRemix Technologies for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/expert-tips-for-securing-top-tier-youtube-ad-campaigns-using-famebit/"><u>Expert Tips for Securing Top-Tier YouTube Ad Campaigns Using FameBit</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-bypass-iphone-6-plus-passcode-easily-video-inside-by-drfone-ios/"><u>How to Bypass iPhone 6 Plus Passcode Easily Video Inside</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-find-ispoofer-pro-activation-key-on-realme-12-pro-5g-drfone-by-drfone-virtual-android/"><u>How to Find iSpoofer Pro Activation Key On Realme 12 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-clarifying-video-margins-imovie-crop-explanation/"><u>In 2024, Clarifying Video Margins  IMovie Crop Explanation</u></a></li>
+<li><a href="https://article-files.techidaily.com/in-2024-expert-tips-for-procuring-unlocked-picture-frame-videos/"><u>In 2024, Expert Tips for Procuring Unlocked Picture Frame Videos</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-seamlessly-stream-and-save-youtube-lives-from-every-device/"><u>In 2024, Seamlessly Stream and Save YouTube Lives From Every Device</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-smooth-shooting-secured-choosing-ideal-tripods-and-gimbals/"><u>In 2024, Smooth Shooting Secured  Choosing Ideal Tripods & Gimbals</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-speed-up-srt-to-text-conversion-with-this-essential-guide/"><u>In 2024, Speed Up SRT to Text Conversion with This Essential Guide</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-the-photographers-companion-to-master-color-correction-top-11/"><u>In 2024, The Photographer's Companion to Master Color Correction (Top 11)</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-vlc-analysis-and-substitutes-revisited/"><u>In 2024, VLC Analysis & Substitutes Revisited</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-why-apple-account-disabled-from-your-apple-iphone-14-pro-how-to-fix-by-drfone-ios/"><u>In 2024, Why Apple Account Disabled From your Apple iPhone 14 Pro? How to Fix</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/revenue-breakdown-a-deep-dive-into-podcast-finances-for-2024/"><u>Revenue Breakdown  A Deep Dive Into Podcast Finances for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/taking-twitters-short-form-stories-and-making-them-come-alive-as-gifs-for-2024/"><u>Taking Twitter's Short Form Stories and Making Them Come Alive as GIFS for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/the-blueprint-for-social-success-six-proven-steps-toward-verification-and-growth-for-2024/"><u>The Blueprint for Social Success  Six Proven Steps Toward Verification and Growth for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/the-essential-sony-fdr-x1000v-camera-insight/"><u>The Essential Sony FDR-X1000V Camera Insight</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/tips-for-adding-music-to-photo-online-for-2024/"><u>Tips for Adding Music to Photo Online for 2024</u></a></li>
+<li><a href="https://fox-that.techidaily.com/top-8-solutions-when-iphones-control-center-stops-responding/"><u>Top 8 Solutions When iPhone's Control Center Stops Responding</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/top-flight-tech-best-drone-gimbals/"><u>Top Flight Tech  Best Drone Gimbals</u></a></li>
+<li><a href="https://techidaily.com/use-device-manager-to-identify-malfunctioning-hardware-drivers-with-windows-device-manager-in-windows-11107-by-drivereasy-guide/"><u>Use Device Manager to identify malfunctioning hardware drivers with Windows Device Manager in Windows 11/10/7</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/video-recorder-disentangler/"><u>Video Recorder Disentangler</u></a></li>
+<li><a href="https://fox-http.techidaily.com/windows-hdri-techniques-for-videographers-for-2024/"><u>Windows HDRI Techniques for Videographers for 2024</u></a></li>
+</ul></div>

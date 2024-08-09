@@ -1,0 +1,173 @@
+---
+title: "\"Lone Earbud Problem  Resolution Guide for 2024\""
+date: 2024-08-08T04:42:20.896Z
+updated: 2024-08-09T04:42:20.896Z
+tags: 
+  - screen-recording
+  - ai video
+  - ai audio
+  - ai auto
+categories: 
+  - ai
+  - screen
+description: "\"This Article Describes Lone Earbud Problem: Resolution Guide for 2024\""
+excerpt: "\"This Article Describes Lone Earbud Problem: Resolution Guide for 2024\""
+keywords: "Earbud Fixing Steps,Earbud Connection Issue,Earbud Troubleshooting Tips,Solve Earbud Disconnect,Earbud Link Problems,Earbud Sound Loss Guide,Restore Earbud Functionality"
+thumbnail: https://thmb.techidaily.com/3cdd3221236d54f354b9655c53899223c63a3525ea895a2e29db68bcb7da9bba.jpg
+---
+
+## Lone Earbud Problem: Resolution Guide
+
+# How to Fix One Airpod Not Working?
+
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+##### Ollie Mattison
+
+ Mar 27, 2024• Proven solutions
+
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
+<!-- affiliate ads end -->
+![one-airpod-not-working-poster](https://images.wondershare.com/filmora/article-images/one-airpod-not-working-poster.png)
+
+One or both of the AirPod Pros are not working for no apparent reason, and you are only listening to mono sound on the other. Nevertheless, the solutions are clear if the causes are unclear.
+
+AirPod Pro has been experiencing this issue, but it can happen to any AirPods. They were working fine, and now one of them won't work when you pop it in your ear.
+
+The first AirPod we put in our ears tends to cause us to get it by chance. When the other AirPod is inserted, we hear that switched-on chime and know that the issue has recurred. If you face one Airpod not working problem and are looking for possible fixes, you are in the right place. In this article, we will not only guide you on how you can diagnose the problem with your AirPods when one side isn't working, but we will also tell you some possible fixes using which you can make both your Airpods work again.
+
+---
+
+**You might be interested in:**
+
+* [How to Use Facetime on Android(Everything About Using Facetime Links)](https://filmora.wondershare.com/video-call/how-to-facetime-on-android.html)
+
+---
+
+## **One AirPod Not Working: What Could Be The Reason?**
+
+If one side of your AirPods is not working properly, it is a clear indication that something is wrong with your AirPods. If you dig deep into the causes of why this problem occurs, then you will find a range of reasons here. Anything can occur from reasonably simple causes like dirty AirPods and low battery to complex causes like audio settings and network issues. So, now it is clear that the AirPods issue cannot be caused by one single cause, nor can it be fixed by a single solution.
+
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## **One AirPod Not Working: What Could Be The Possible Fixes?**
+
+#### 1\. Check If There is An Battery Issue
+
+<!-- affiliate ads begin -->
+
+<!-- affiliate ads end -->
+![one-airpod-fix1-battery](https://images.wondershare.com/filmora/article-images/one-airpod-fix1-battery.png)
+
+If both AirPods are plugged in, and only one of them is working properly, then the first and the simplest problem causing this would be the battery problem. It is very likely that the not working AirPod is dead, and that's why it is not working now. When using AirPods, be mindful that the batteries of both sides of Airpods drain at different rates. So, when one side is not working, don't forget to check your battery widget and charge the AirPods to make them work again.
+
+#### 2. Clean Your AirPods
+
+When you use the AirPods more frequently than it is common to have junk built up in it, it could also be the reason why you do not hear the sound on one side of your AirPods. Dust, Lint, and earwax can form a built-up in your AirPods over time and then can block the sound from getting out of your AirPods. As a result, you think that your AirPods are not working properly. So, there is a very simple fix to this problem. All you need to do is, check the AirPods to see if the speakers look clogged. If you find something clogged in your speakers, then clean them properly and use them again. They will work perfectly.
+
+#### 3. Turn Bluetooth On and Off
+
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
+<!-- affiliate ads end -->
+![one-airpod-fix3-bluetooth](https://images.wondershare.com/filmora/article-images/one-airpod-fix3-bluetooth.png)
+
+If one AirPod is not working, then one possible problem here might be that your device cannot properly transmit audio to the earbuds. In that case, a very simple fix could be trying to reset the Bluetooth. Just go to the settings in your iPhone or iPad and click on Bluetooth. Turn off the BlueTooth slider from Bluetooth settings and wait for a while. Now turn it back on and check again if the problem is fixed or not.
+
+#### 4. Restart Your Device
+
+Despite the lack of certainty that restarting will solve the problem, restarting is straightforward and quick, so it's worth trying. By restarting a device, the active memory is cleared out, and problems are usually resolved. So you can try restarting your iPad or iPhone if one AirPod is not working. Restarting your device is very simple; all you need to do is, press the power button and then slide from left to right to turn off your device. Once the device is turned off, you can simply turn it back on using the power button.
+
+#### 5. Unpair and Re-pair AirPods
+
+<!-- affiliate ads begin -->
+<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
+<!-- affiliate ads end -->
+![one-airpod-fix5-unpair](https://images.wondershare.com/filmora/article-images/one-airpod-fix5-unpair.png)
+
+Is the audio still not coming through on one AirPod? You need to set up your AirPods again. You can make AirPods disappear by going to Settings > Bluetooth > tapping i next to the AirPods > Forget This Device > Forget device. By doing so, your AirPods are no longer connected to your device. Next, put the AirPods into the case and hold down the button on the case. Then follow the instructions on the screen to set up the AirPods.
+
+#### 6. Reset Network Settings
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
+![one-airpod-fix6-reset-network](https://images.wondershare.com/filmora/article-images/one-airpod-fix6-reset-network.png)
+
+There are settings on your device that control how it connects to different networks, including Bluetooth devices. It could be your settings that are malfunctioning. To reset the Network Settings, go to Settings > General > Reset > Reset Network Settings. You'll have to re-pair Bluetooth devices, enter Wi-Fi passwords, etc.
+
+## **Final Verdict**
+
+These are the number of possible fixes that you can try yourself if one or both sides of your AirPods are not working properly. In most cases, your problem will be resolved by one of these fixes. But if the problem still persists after applying all these fixes, then it is better to get professional support. For this purpose, you can go to your nearest Apple store and get help from them.
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+Ollie Mattison
+
+Ollie Mattison is a writer and a lover of all things video.
+
+Follow @Ollie Mattison
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-cutting-edge-advancements-in-video-creation-with-windows-10/"><u>[New] 2024 Approved  Cutting-Edge Advancements in Video Creation with Windows 10</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-discovering-the-power-behind-youtube-statistics-interpretation/"><u>[New] 2024 Approved  Discovering the Power Behind YouTube Statistics Interpretation</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-noise-free-video-chats-with-skype/"><u>[New] 2024 Approved  Noise-Free Video Chats with Skype</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-steady-shots-how-to-avoid-lens-cloudiness/"><u>[New] 2024 Approved  Steady Shots  How to Avoid Lens Cloudiness</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-exclusive-catalogue-free-to-use-stock-media-sites/"><u>[New] Exclusive Catalogue  Free-to-Use Stock Media Sites</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-getting-acclimated-quick-tips-for-snapseed-users/"><u>[New] Getting Acclimated  Quick Tips for Snapseed Users</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-instagram-for-entrepreneurs-how-to-register-as-a-biz-page/"><u>[New] In 2024, Instagram for Entrepreneurs  How to Register as a Biz Page</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-top-cameraphone-gimbal-optimal-pan-and-tilt-stability/"><u>[New] In 2024, Top Camera/Phone Gimbal – Optimal Pan & Tilt Stability</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-revolutionizing-education-through-vr-for-2024/"><u>[New] Revolutionizing Education Through VR for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-top-10-smartphone-vr-gadgets-uncovered-for-2024/"><u>[New] Top 10 Smartphone VR Gadgets Uncovered for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-top-best-fast-photo-viewer-for-windows-10-for-2024/"><u>[New] Top Best Fast Photo Viewer for Windows 10 for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-gopro-match-up-ultimate-buyers-analysis/"><u>[Updated] 2024 Approved  Gopro Match-Up  Ultimate Buyer's Analysis</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-grasping-valheim-greenery-leading-saplings-explored/"><u>[Updated] 2024 Approved  Grasping Valheim Greenery  Leading Saplings Explored</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-premiere-cameras-to-document-the-next-wave-of-concert-videos/"><u>[Updated] 2024 Approved  Premiere Cameras to Document the Next Wave of Concert Videos</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-boosting-collaboration-essential-zoom-video-alterations-for-2024/"><u>[Updated] Boosting Collaboration  Essential Zoom Video Alterations for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-elite-drone-recommendations-to-boost-gopro-video-impact-for-2024/"><u>[Updated] Elite Drone Recommendations to Boost GoPro Video Impact for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-how-to-add-featured-channels-on-youtube-a-complete-guide-for-2024/"><u>[Updated] How to Add Featured Channels on YouTube  A Complete Guide for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-ideal-additions-to-maximize-gopro-potential/"><u>[Updated] In 2024, Ideal Additions to Maximize GoPro Potential</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-is-revenue-derived-from-evaluating-products/"><u>[Updated] In 2024, Is Revenue Derived From Evaluating Products?</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-inferno-captures-best-slow-motion-cameras/"><u>[Updated] Inferno Captures  Best Slow-Motion Cameras</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-keep-it-steady-photo-and-video-clarity/"><u>[Updated] Keep It Steady  Photo & Video Clarity</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-seamlessly-engage-fb-live-on-your-roku-screen-for-2024/"><u>[Updated] Seamlessly Engage  FB Live on Your Roku Screen for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-unlock-high-end-visuals-a-practical-guide-for-sdr-to-hdr-transition/"><u>[Updated] Unlock High-End Visuals  A Practical Guide for SDR to HDR Transition</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-elevateview-video-converter-software/"><u>2024 Approved  ElevateView Video Converter Software</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-top-5-panoramic-capture-models/"><u>2024 Approved  Top 5 Panoramic Capture Models</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-ultraedit-pro-music-and-visual-craftsmanship-for-pcs/"><u>2024 Approved  UltraEdit Pro  Music & Visual Craftsmanship for PCs</u></a></li>
+<li><a href="https://facebook.techidaily.com/8-best-practices-for-swiftly-deleting-offensive-content/"><u>8 Best Practices for Swiftly Deleting Offensive Content</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/fostering-duets-tiktok-vocal-pairings/"><u>Fostering Duets  TikTok Vocal Pairings</u></a></li>
+<li><a href="https://win11.techidaily.com/handling-closed-caption-setup-challenges-in-win11/"><u>Handling Closed Caption Setup Challenges in Win11</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-can-we-unlock-our-honor-v-purse-phone-screen-by-drfone-android/"><u>How Can We Unlock Our Honor V Purse Phone Screen?</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-apple-iphone-x-drfone-by-drfone-virtual-ios/"><u>In 2024, 4 solution to get rid of pokemon fail to detect location On Apple iPhone X | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-on-your-realme-c51-by-drfone-android/"><u>In 2024, A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock on your Realme C51</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-comedy-crafters-codex-free-to-unleash-humor/"><u>In 2024, Comedy Crafters' Codex  Free to Unleash Humor</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-essential-tips-for-basic-color-correction/"><u>In 2024, Essential Tips for Basic Color Correction</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-self-portraits-for-social-media-success/"><u>In 2024, Self-Portraits for Social Media Success</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/in-2024-transform-youtube-live-with-these-must-know-secrets/"><u>In 2024, Transform YouTube Live with These Must-Know Secrets</u></a></li>
+<li><a href="https://program-issues.techidaily.com/troubleshooting-tips-for-cyberpunk-2077-failure-to-initialize/"><u>Troubleshooting Tips for Cyberpunk 2077 Failure to Initialize</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/unveiling-the-top-10-cost-free-gaming-recorders/"><u>Unveiling the Top 10 Cost-Free Gaming Recorders</u></a></li>
+</ul></div>

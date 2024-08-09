@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Nikon KM-170 Vs GoPro for Flexible Filmmaking?\""
-date: 2024-07-11T15:10:26.869Z
-updated: 2024-07-12T15:10:26.869Z
+date: 2024-08-08T04:36:44.940Z
+updated: 2024-08-09T04:36:44.940Z
 tags: 
   - screen-recording
   - ai video
@@ -20,6 +20,9 @@ thumbnail: https://thmb.techidaily.com/7dc1f793da1f2b9c448c995323e3532e944d03082
 
 # GoPro Hero 5 Black vs Nikon Keymission 170 Action Camera: Which is better?
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
@@ -90,6 +93,9 @@ The **Nikon Keymission 170 action camera** features dual shutters- separate for 
 
 1. **Photo Quality**  
 There is a notable difference in the performance of GoPro and Nikon when it comes to taking still images. With 12MP resolution (4000X3000 pixel settings) Hero 5 stands much ahead of Keymission 170 giving you the joy of capturing still photos at the resolution of 8.3MP (3840x2160 pixels). Another important convenience with GoPro is that you can take geo tagged photos besides the choice of shooting WDR and RAW photos. Nikon does not feature GPS configuration. You also cannot take RAW photos with Keymission 170.  
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
+<!-- affiliate ads end -->
 ![hero5 balck keymission170 test](https://images.wondershare.com/hero5-balck-keymission170-test1.jpg)
 2. **Video Quality**  
 The video quality output of these cameras is the real point of attraction for all buyers. To all your relaxation, both of them can capture 4K30 (highest resolution) videos. Luckily, the quality of the videos is almost the same.Using the Protune settings on GoPro, you can get better results with sharpening, change ISO limits, take RAW videos with preferred audio settings, adjust the white balance etc. The first time users can use the default settings to capture good high-resolution videos. Keymission allows some limited adjustments with the Pro settings. You can obtain improved video quality by changing the white balance, exposure compensation and other details.  
@@ -99,6 +105,9 @@ Video Modes
 When it comes to considering the availability of the video modes, the GoPro Hero 5 Black is the ultimate winner. You can get a range of video modes on this camera with varied pixels and fps combinations. The Keymission offers fewer choices to set the video capturing modes.  
 The GoPro works fine for the professionals looking to capture industry standard videos at 4K resolution.At normal speed, you can choose to set video modes at maximum of 2160p shooting at 30 or 25 fps. You can adjust the frame rate from 25 fps to 60fps while shooting at 1080 pixel resolution. These adjustments are sufficient if you are a beginner and want to get handy with action cameras.  
 Field of View (FOV)  
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
 ![hero5 balck keymission170 fov](https://images.wondershare.com/hero5-black-keymission170-fov.jpg)  
 As the name suggests, the Keymission 170 only offers the standard view of 170 degrees only. The degree is reduced a bit less when you are using the image stabilization feature. With flexible frame rate adjustments and resolution, you can use several FOV options including superview, wide, linear, medium, narrow etc. with GoPro Hero 5 Balck.  
 Stabilization  
@@ -107,6 +116,9 @@ White Balance
 Nikon Keymission gives you an amazing feel with the yellowish orange effect when using the default white balance. This is much enhanced compared to that on the GoPro Hero 5 black. GoPro supports automatic white balance adjustment according to the ambiance and lights. While this feature is very advanced in the latest, model but not as that of the Nikon effect.  
 Low Light Video Capturing  
 There are shortcomings with both these cameras when you are shooting under low light availability. Yet, GoPro is a bit advanced to give you good video quality under low light. With Nikon it is preferable to use extra lights if you desire to get bright sharp objects.  
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![hero5 balck keymission170 low light test](https://images.wondershare.com/hero5-balck-keymission170-low-light-test.jpg)
 3. **Audio Quality**  
 The Hero 5 Black is very tactically designed with dual microphones – at the rear and front ends. The camera can auto switch microphone during video capturing based on the requirements. To give you better sound quality, the camera swaps to the back microphone during heavy disturbing noise coming from the front direction like biking under heavy wind speed. The **Nikon Keymission 170 action camera** has built in stereo microphone to produce medium quality satisfactory sound capturing.
@@ -135,8 +147,15 @@ If you want to take your video content to the next level with some video editing
 
 What’s more, it has all the features you will need to make you feel like a pro. Simple editing functionalities like trimming, cropping, merging, adjusting speed, fast or slow motion, mosaic etc. will meet most of your demands. Besides all that, advanced features like split screen, green screen, filters&overlay effects, together with hundreds of licensed music, motion elements, transiton effects etc will definitely turn your video into something extraordinary with the least amount of effort. Check to video below to get an overview of this gorgeous video editing program:
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/) [Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 Max Wales
@@ -163,3 +182,47 @@ Follow @Max Wales
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-capturing-your-workspace-a-step-by-step-screenrec-guide/"><u>[New] 2024 Approved  Capturing Your Workspace  A Step-by-Step ScreenRec Guide</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-simplified-pathway-using-instagram-live-effectively-for-2024/"><u>[New] Simplified Pathway  Using Instagram Live Effectively for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-unlocking-zooms-potential-by-leveraging-skype-for-2024/"><u>[New] Unlocking Zoom's Potential by Leveraging Skype for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-in-2024-mirth-manual-best-free-meme-kits-alive/"><u>[Updated] In 2024, Mirth Manual  Best Free Meme Kits Alive</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-mastering-metaverse-comedy-crafting-memetic-gold/"><u>[Updated] Mastering Metaverse Comedy  Crafting Memetic Gold</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-mastering-twitter-setup-in-5-steps-for-2024/"><u>[Updated] Mastering Twitter Setup in 5 Steps for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-google-docs-speech-to-text-a-complete-guidebook/"><u>2024 Approved  Google Docs Speech-to-Text  A Complete Guidebook</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-step-up-your-slow-mo-game-expert-guide-for-amazing-android-videos/"><u>2024 Approved  Step Up Your Slow Mo Game  Expert Guide for Amazing Android Videos</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-streamline-your-content-delivery-with-tailored-srt-upload-practices-on-media-outlets/"><u>2024 Approved  Streamline Your Content Delivery with Tailored SRT Upload Practices on Media Outlets</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-synapse-your-thoughts-on-mematics-platform/"><u>2024 Approved  Synapse Your Thoughts on Mematic's Platform</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-syncopated-screecher-symphony/"><u>2024 Approved  Syncopated Screecher Symphony</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-techniques-to-lower-audio-levels-in-os-xwindows/"><u>2024 Approved  Techniques to Lower Audio Levels in OS X/Windows</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-the-essential-2023-social-media-video-exploration/"><u>2024 Approved  The Essential 2023 Social Media Video Exploration</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-the-next-big-thing-in-action-videos-sj7s-ultra-hd-star-4k-camera-explained/"><u>2024 Approved  The Next Big Thing in Action Videos? SJ7's Ultra HD Star 4K Camera Explained</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-the-roadmap-to-thriving-in-digital-advertising/"><u>2024 Approved  The Roadmap to Thriving in Digital Advertising</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-the-science-of-quadcopters-understanding-their-flight-patterns/"><u>2024 Approved  The Science of Quadcopters  Understanding Their Flight Patterns</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-the-solitary-path-to-podcast-popularity/"><u>2024 Approved  The Solitary Path to Podcast Popularity</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-the-ultimate-guide-to-chromes-picture-in-picture-feature/"><u>2024 Approved  The Ultimate Guide to Chrome's Picture In Picture Feature</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-the-ultimate-hdr-experience-with-asuss-4k-monitor/"><u>2024 Approved  The Ultimate HDR Experience with Asus's 4K Monitor</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-the-ultimate-sierra-icloud-document-and-desktop-guide/"><u>2024 Approved  The Ultimate Sierra iCloud Document & Desktop Guide</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-tips-for-smooth-and-efficient-photo-background-blurring/"><u>2024 Approved  Tips for Smooth and Efficient Photo Background Blurring</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-top-10-impressive-srt-converters-for-mac-and-windows/"><u>2024 Approved  Top 10 Impressive SRT Converters for Mac and Windows</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-top-15-essential-gopro-accessories-for-newbies/"><u>2024 Approved  Top 15 Essential GoPro Accessories for Newbies</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-top-3-techniques-converting-pin-videos-to-mp3s/"><u>2024 Approved  Top 3 Techniques  Converting Pin Videos To MP3s</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-top-accessories-to-elevate-your-sj4000-experience/"><u>2024 Approved  Top Accessories to Elevate Your SJ4000 Experience</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-top-strategies-for-finding-and-using-a-lost-iphone-x/"><u>2024 Approved  Top Strategies for Finding & Using a Lost iPhone X</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-transforming-digital-art-with-free-versatile-lut-tools/"><u>2024 Approved  Transforming Digital Art with Free, Versatile LUT Tools</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-transforming-video-aesthetics-on-tiktok-dual-approach/"><u>2024 Approved  Transforming Video Aesthetics on TikTok (Dual Approach)</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-trending-image-memes-unveiling-the-real-story/"><u>2024 Approved  Trending Image Memes  Unveiling the Real Story</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-ultimate-guide-to-comparing-leading-4k-youtube-to-mp3-extractors/"><u>2024 Approved  Ultimate Guide to Comparing Leading 4K YouTube to MP3 Extractors</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-ultimate-mobile-and-desktop-sound-pace-alteration-compendium/"><u>2024 Approved  Ultimate Mobile & Desktop Sound Pace Alteration Compendium</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-understanding-imovie-video-trimming/"><u>2024 Approved  Understanding iMovie Video Trimming</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-unraveling-vrs-impact-on-digital-cinema/"><u>2024 Approved  Unraveling VR's Impact on Digital Cinema</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-unveiling-the-d500s-4k-capabilities-in-full-hd/"><u>2024 Approved  Unveiling the D500's 4K Capabilities in Full HD</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-unveiling-the-hidden-gem-best-free-text-to-speech-macapps/"><u>2024 Approved  Unveiling the Hidden Gem  Best Free Text to Speech macApps</u></a></li>
+<li><a href="https://games-able.techidaily.com/avoiding-regrets-your-step-by-step-game-refund-guide/"><u>Avoiding Regrets - Your Step-by-Step Game Refund Guide</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-do-i-stop-someone-from-tracking-my-samsung-galaxy-s24plus-drfone-by-drfone-virtual-android/"><u>In 2024, How Do I Stop Someone From Tracking My Samsung Galaxy S24+? | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-location-on-facebook-dating-for-your-lava-blaze-curve-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location On Facebook Dating for your Lava Blaze Curve 5G | Dr.fone</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-iphone-transfer-transfer-contact-from-apple-iphone-11-pro-to-iphone-without-icloud-drfone-by-drfone-transfer-from-ios/"><u>In 2024, iPhone Transfer Transfer Contact from Apple iPhone 11 Pro to iPhone without iCloud | Dr.fone</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-2024-approved-final-cut-pro-color-grading-essentials/"><u>New 2024 Approved Final Cut Pro Color Grading Essentials</u></a></li>
+</ul></div>
