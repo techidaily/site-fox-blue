@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Cold Chronicles  The 2022 Winter Olympics in China\""
-date: 2024-07-11T14:18:57.243Z
-updated: 2024-07-12T14:18:57.243Z
+date: 2024-08-15T10:24:37.511Z
+updated: 2024-08-16T10:24:37.511Z
 tags: 
   - screen-recording
   - ai video
@@ -32,6 +32,9 @@ American snowboarder Lindsey Jacobellis wins the gold medal in the women's snowb
 
 Lindsey Jacobellis become a viral internet figure after her premature celebration at Turin 2006 Winter Olympics that cost her medal at the event. The 36-year-old snowboarder has now become the oldest American to win a gold medal at Winter Games.
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 2\. Nathan Chen Breaks World Record
 
 Nathan Chen of the United States set a world-record score in men's figure skating short program held at Beijing Olympics. Chen scored 113.97 at Capital Indoor Stadium in Beijing. Four years after his dreams were shattered, Chen has not only come back stronger in his performance but managed to break the world record.
@@ -40,6 +43,9 @@ Nathan Chen of the United States set a world-record score in men's figure skatin
 
 Chen won the gold medal in men's figure skating with a combined score of 332.60 in the short program and free skate competitions. The defending champion Yuzuru Hanyu was not even in the top three and did not manage to win any medal which is naturally a major disappointment. On the contrary, Chen was elated and said that his performance is close to his best and that we could see even better performance going ahead.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
+<!-- affiliate ads end -->
 ## 3\. Nina O'Brien Suffered a Terrifying Crash
 
 Injuries are part of sports events but some injuries are gruesome and are results of terrifying crashes. Team USA alpine racer Nina O'Brien was the victim of a terrifying crash this year at Winter Olympics. During her second run at the women's giant slalom event, she suffered a gruesome leg injury.
@@ -48,14 +54,25 @@ Injuries are part of sports events but some injuries are gruesome and are result
 
 She lost her balance before she could cross the finishing line and she slid across the finish. She was screaming in pain as she left the event on a stretcher. The good news is that she is alert and responding. She has returned home to Colorado and she has received a warm welcome back home.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## 4\. US-Born Eileen Gu Wins Gold for China
 
 Born in America, Eileen Gu represented China at Winter Olympics and managed to win the gold medal in the inaugural freeski big air event. Therefore, she will go down in the history as the first woman to win the gold medal for freeski big air event. She stunned everyone by completing two off-axis rotations in the air.
 
 ![eileen gu wins gold](https://images.wondershare.com/filmora/article-images/us-born-eileen-gu-wins-gold-for-china.jpg)
+<!-- affiliate ads begin -->
+<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
+DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
+<!-- affiliate ads end -->
 
 Eileen Gu's father is American while her mother is Chinese and she belongs to San Francisco. Yet, she represented China in the Winter Olympics which has sparked controversies. She has been representing China since 2019\. She wishes to represent China going forward and she has become a fan favorite in China.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
+</a>
+<!-- affiliate ads end -->
 ## 5\. Van der Poel Breaks the World Record
 
 Nil Van der Poel broke his own record to win the Olympic gold medal. The 25-year-old Swede started strongly and crossed the finish line in 12 minutes 30.74 seconds to set the world record. His victory also made Sweden taste an Olympic medal after 1988\. The victory also made him the tenth man to win both the 10,000 races and 5,000 races in the same event. It is also the largest Olympic victory as he triumphed the record set by Johan Olav Kloss in 1994 by 18.70 seconds.
@@ -72,22 +89,37 @@ Yan Wengang becomes the first medalist from China in a sliding sport. In a four-
 
 The competitiveness of Wengwang has made him the first medalist for China in men's skeleton. The 24-year-old Tianjin native was happy as well as disappointed after the competition. With a fighting spirit, he gave everything he had in the last heat. His victory makes only the second time when a non-North American or non-European stood on the Olympic podium for skeleton.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## 7\. Chloe Kim Wins Second Straight Olympic Gold
 
 21-year-old Chloe Kim became back-to-back Olympic champion by dominating in the halfpipe. The American confirmed a gold medal on the first run itself. Her runs had 1080, a switch 900, and a switch backside of 540\. It further added another 1080\. She dominated the Snowboarding Women's Halfpipe Final with 94 points. Spain's Queralkt Castellet won silver and the bronze went to Sena Tomita of Japan.
 
 ![chloe kim](https://images.wondershare.com/filmora/article-images/chloe-kim.jpg)
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
 
 With the triumph, she joins Shaun White to be the only snowboarders to successfully defend their Olympic title. Following the victory, she was overwhelmed and emotional. Despite having the worst practice before the final, Kim went on to create history.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 8\. Ukrainian Athlete Shows ‘No War' Sign During Skeleton Event
 
 We are all aware of the tensions between Ukraine and Russia are at their peak and there are many experts who believe the countries are on the verge of declaring war. Even though The Winter Olympics should have ideally been an apolitical event, Ukrainian skeleton athlete Vladyslav Heraskevych flashed a sign that read “No War in Ukraine” to spark a political controversy.
 
 ![ukrainian athlete](https://images.wondershare.com/filmora/article-images/ukrainian-athlete.jpg)
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 He showed the sign directly to the cameras after he finished his run at Beijing Olympics. It remains to be seen if any penalty will be imposed on him but Heraskevych has said that he is ready to face any repercussion even though he hopes that the Olympics will support him instead.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
+<!-- affiliate ads end -->
 ## 9\. American Favorite Out of the Tournament
 
 US skater Vincent Zhou has tested positive for coronavirus and therefore, he is out of the Winter Olympics. Naturally, Zhou was in tears and extremely emotional as he was a top medal contender. He did take part in the team free skate event but he struggle to perform at his best even though the US team managed to win silver at the event.
@@ -124,3 +156,50 @@ However, due to some miscommunication, she was allowed to be a participant in th
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-the-ultimate-webcam-users-guide-for-quality-recordings/"><u>[New] 2024 Approved  The Ultimate WebCam User's Guide for Quality Recordings</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-comprehensive-guide-for-srt-format-conversions/"><u>[New] Comprehensive Guide for SRT Format Conversions</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-efficiently-control-your-iphones-view-size-for-2024/"><u>[New] Efficiently Control Your iPhone's View Size for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-formulate-funny-imagery-with-adobe/"><u>[New] In 2024, Formulate Funny Imagery with Adobe</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-master-the-science-and-art-of-attention-grabbing-titles/"><u>[New] In 2024, Master the Science and Art of Attention-Grabbing Titles</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-vector-artistry-unleashed-picks-of-the-year-for-designers/"><u>[New] In 2024, Vector Artistry Unleashed  Picks of the Year for Designers</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-jolt-dampening-snapcam-accessory-kit-for-2024/"><u>[New] Jolt Dampening SnapCam Accessory Kit for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-reestablishing-communication-with-a-non-responsive-obs-cam/"><u>[New] Reestablishing Communication with a Non-Responsive OBS Cam</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-sdr-vs-hdr-why-hdr-be-a-better-part-of-your-video-workflow/"><u>[New] SDR vs HDR Why HDR Be a Better Part of Your Video Workflow</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-simplify-viewing-incorporating-subtitles-into-wmp-for-2024/"><u>[New] Simplify Viewing  Incorporating Subtitles Into WMP for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-the-ultimate-lg-bp350-monitor-reviews-expert-opinions-and-ratings-for-2024/"><u>[New] The Ultimate LG BP350 Monitor Reviews  Expert Opinions & Ratings for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-enhancing-audio-visual-experience-with-youtube-music-insertion/"><u>[Updated] 2024 Approved  Enhancing Audio-Visual Experience with YouTube Music Insertion</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-how-to-live-stream-on-youtube-gaming/"><u>[Updated] 2024 Approved  How to Live Stream on YouTube Gaming?</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-overcoming-biometric-blockades-in-iphone-x-fixing-face-id/"><u>[Updated] 2024 Approved  Overcoming Biometric Blockades in iPhone X - Fixing Face ID</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-cost-assessment-for-producing-track-driven-videos-for-2024/"><u>[Updated] Cost Assessment for Producing Track-Driven Videos for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-avoid-the-spinning-room-top-5-vr-motion-control-techniques/"><u>[Updated] In 2024, Avoid the Spinning Room  Top 5 VR Motion Control Techniques</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-exclusive-exploration-superior-vr-games-on-google-cardboard/"><u>[Updated] In 2024, Exclusive Exploration  Superior VR Games on Google Cardboard</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-expert-techniques-for-acquiring-pristine-images/"><u>[Updated] In 2024, Expert Techniques for Acquiring Pristine Images</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-marvelous-evaluation-and-replacement-insight/"><u>[Updated] In 2024, Marvelous Evaluation & Replacement Insight</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-perfecting-iphone-photography-for-vr-spheres/"><u>[Updated] In 2024, Perfecting iPhone Photography for VR Spheres</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-virtual-universes-clash-metaverse-vs-multiverse/"><u>[Updated] In 2024, Virtual Universes Clash  Metaverse V/S Multiverse</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-initiate-insight-an-entryway-guide-to-online-product-critique-channels/"><u>[Updated] Initiate Insight  An Entryway Guide to Online Product Critique Channels</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-overcoming-iphones-difficulty-in-auto-focusing-issues-for-2024/"><u>[Updated] Overcoming iPhone's Difficulty in Auto-Focusing Issues for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-optimal-aspect-ratios-for-video-content-creation/"><u>2024 Approved  Optimal Aspect Ratios for Video Content Creation</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-securely-and-swiftly-acquiring-your-youtube-watch-lists/"><u>2024 Approved  Securely and Swiftly Acquiring Your YouTube Watch Lists</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/auditory-capture-techniques-for-professional-note-takers/"><u>Auditory Capture Techniques for Professional Note-Takers</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/chronoscape-controls-rewinding-iphone-footage-efficiently-for-2024/"><u>Chronoscape Controls  Rewinding iPhone Footage Efficiently for 2024</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-about-vivo-v29-frp-bypass-by-drfone-android/"><u>In 2024, About Vivo V29 FRP Bypass</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-asus-proart-4k-ultra-a-pro-artists-dream-display/"><u>In 2024, ASUS ProArt 4K Ultra  A Pro Artist's Dream Display</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-cutting-edge-filmmaking-kinemasters-seamless-segments/"><u>In 2024, Cutting-Edge Filmmaking  Kinemaster's Seamless Segments</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-delving-into-the-heart-of-viva-video-app/"><u>In 2024, Delving Into the Heart of Viva Video App</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-formulating-flashy-podcast-announcements/"><u>In 2024, Formulating Flashy Podcast Announcements</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-get-the-perfect-slideshow-design-10-places-to-download-for-inspiration/"><u>In 2024, Get the Perfect Slideshow Design  10 Places to Download for Inspiration</u></a></li>
+<li><a href="https://iphone-location.techidaily.com/in-2024-how-to-view-gpx-files-online-and-offline-solutions-of-apple-iphone-11-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, How to View GPX Files Online and Offline Solutions Of Apple iPhone 11 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-depth-examination-of-videoshow-24/"><u>In-Depth Examination of VideoShow '24</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/is-there-a-cash-incentive-in-critique-videos/"><u>Is There a Cash Incentive in Critique Videos?</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/lone-earbud-problem-resolution-guide-for-2024/"><u>Lone Earbud Problem  Resolution Guide for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/maximizing-your-zoom-experience-on-chromeos-for-2024/"><u>Maximizing Your Zoom Experience on ChromeOS for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/resolving-the-msxml4dll-file-could-not-be-foundmissing-issue-on-your-pc/"><u>Resolving the 'Msxml4.dll' File Could Not Be Found/Missing Issue on Your PC</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-in-2024-filmora-deals-and-steals-your-go-to-resource-for-coupon-codes/"><u>Updated In 2024, Filmora Deals and Steals Your Go-To Resource for Coupon Codes</u></a></li>
+<li><a href="https://change-location.techidaily.com/what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-vivo-y100t-drfone-by-drfone-virtual-android/"><u>What is the best Pokemon for pokemon pvp ranking On Vivo Y100t? | Dr.fone</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/youtubes-financial-frontier-maximizing-your-content-revenue/"><u>YouTube's Financial Frontier  Maximizing Your Content Revenue</u></a></li>
+<li><a href="https://techidaily.com/zte-axon-40-lite-music-recovery-recover-deleted-music-from-zte-axon-40-lite-by-fonelab-android-recover-music/"><u>ZTE Axon 40 Lite Music Recovery - Recover Deleted Music from ZTE Axon 40 Lite</u></a></li>
+</ul></div>

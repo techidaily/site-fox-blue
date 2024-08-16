@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Instantize Image Movement with Photoshop\""
-date: 2024-07-11T14:27:13.602Z
-updated: 2024-07-12T14:27:13.602Z
+date: 2024-08-15T10:22:32.631Z
+updated: 2024-08-16T10:22:32.631Z
 tags: 
   - screen-recording
   - ai video
@@ -43,6 +43,9 @@ Are you excited to generate a motion blur effect through Photoshop? Read this se
 Step1 First, download and install the Photoshop tool on your PC. Upload your picture and navigate to the "Layers" tab. If you are a Windows user, then press "Ctrl + J" to copy the layer. For MacBook, press "Command+ J".
 
 ![duplicate the layer](https://images.wondershare.com/filmora/article-images/2022/12/motion-blur-to-photos-2.jpg)
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
+<!-- affiliate ads end -->
 
 Step2 Now head to the "Filter" section and locate the option called "Blur." From the drop-down menu, select "Radial Blur." From the new window, adjust the amount to 10 and choose "Spin" in the "Blur Method" section.
 
@@ -55,10 +58,21 @@ Step3 Under the "Quality" section, select "Best." Once done, click on the "OK" b
 Step4 Now head to the "Flow" option displayed above and decrease the flow percentage to 50\. Also, choose a black color for the foreground. Now, using the "Brush," press on some of the areas of the face to add some depth of field.
 
 ![adjust the flow percentage to 50](https://images.wondershare.com/filmora/article-images/2022/12/motion-blur-to-photos-5.jpg)
+<!-- affiliate ads begin -->
+<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
+	Home Use license is dedicated for personal, non-commercial use only. 
+	If Action! is used for commercial gain or to further any commercial purpose, 
+	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
+ 
+	company, user or members of the same household. Action! - screen and game recorder</a>
+<!-- affiliate ads end -->
 
 Step5 Head back to the layer section and select the bottom layer. Now copy the layer for the second time by either pressing Ctrl + J or Command + J. Afterward, head to the "Filter" tab and locate the option called "Blur." From the drop-down menu, tap on "Motion Blur."
 
 ![choose the motion blur](https://images.wondershare.com/filmora/article-images/2022/12/motion-blur-to-photos-6.jpg)
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
+<!-- affiliate ads end -->
 
 Step6 Now set the angle on the displayed window and adjust the distance to 200 pixels. Once done, press the "OK "button. For this layer, add a mask and execute the dabbing process on the face as we did before. For more modifications, you can add a high-contrast black-and-white effect to your photo.
 
@@ -74,6 +88,9 @@ Do you want to simplify the whole process of adding motion blur to photos? The b
 
 To perform advanced editing, it offers features like Green Screen and AI Portrait. Using Filmora, you can also add a motion blur effect to your photos in its intuitive interface. After editing, you can instantly render your clip on this tool. Moreover, you can choose a desired output file format and resolution while exporting your file. Hence, it's a complete platform to modify and enhance photos in a friendly user interface.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
+<!-- affiliate ads end -->
 ### Steps to Add Motion Blur on Wondershare Filmora
 
 Filmora is an efficient and cost-effective tool for video and photo editing. To create a motion blur effect on your photos without seeking any professional help, check the following instructions:
@@ -83,18 +100,27 @@ Filmora is an efficient and cost-effective tool for video and photo editing. To 
 Start by launching Wondershare Filmora on your Windows or macOS device. Next, click on the "Create New Project" option and hit the "Arrow" icon on its main interface. By doing so, you can import the photo from your system.
 
 ![import your picture](https://images.wondershare.com/filmora/article-images/2022/12/motion-blur-to-photos-8.jpg)
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ##### Step 2 Split the Clip
 
 After importing the picture, drag it to the timeline. Now play the clip on the timeline carefully. Pause the play head where you want to create a motion blur. Tap on the "Scissor" icon on the timeline to split your clip. Perform the same steps on your clip where you want to end the motion blur effect.
 
 ![split the added clip](https://images.wondershare.com/filmora/article-images/2022/12/motion-blur-to-photos-9.jpg)
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
+<!-- affiliate ads end -->
 
 ##### Step 3 Go to the Effects Tab
 
 Navigate to the "Effects" section and locate the "Background Blur" option. Afterward, you would be able to see tons of blur effects. Next, choose your favorite blur effect from the options and apply it to the specific part of your clip on the timeline.
 
 ![access the background blurs](https://images.wondershare.com/filmora/article-images/2022/12/motion-blur-to-photos-10.jpg)
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
 
 ##### Step 4 Adjust the Parameters
 
@@ -107,6 +133,9 @@ Now play your clip to see the results on your screen. You can adjust its paramet
 Once you are done with editing, access the "Export" setting of Filmora. Choose your preferred resolution and output file format from the given options to conclude.
 
 ![export the blurred media file](https://images.wondershare.com/filmora/article-images/2022/12/motion-blur-to-photos-12.jpg)
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -116,6 +145,10 @@ Do you want to add an artistic look to your photos? One of the great ways to enh
 
 To perform advanced editing, it offers features like Green Screen and AI Portrait. Using Filmora, you can also add a motion blur effect to your photos in its intuitive interface. After editing, you can instantly render your clip on this tool. Moreover, you can choose a desired output file format and resolution while exporting your file. Hence, it's a complete platform to modify and enhance photos in a friendly user interface.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ### Steps to Add Motion Blur on Wondershare Filmora
 
 Filmora is an efficient and cost-effective tool for video and photo editing. To create a motion blur effect on your photos without seeking any professional help, check the following instructions:
@@ -131,6 +164,9 @@ Start by launching Wondershare Filmora on your Windows or macOS device. Next, cl
 After importing the picture, drag it to the timeline. Now play the clip on the timeline carefully. Pause the play head where you want to create a motion blur. Tap on the "Scissor" icon on the timeline to split your clip. Perform the same steps on your clip where you want to end the motion blur effect.
 
 ![split the added clip](https://images.wondershare.com/filmora/article-images/2022/12/motion-blur-to-photos-9.jpg)
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
+<!-- affiliate ads end -->
 
 ##### Step 3 Go to the Effects Tab
 
@@ -149,6 +185,9 @@ Now play your clip to see the results on your screen. You can adjust its paramet
 Once you are done with editing, access the "Export" setting of Filmora. Choose your preferred resolution and output file format from the given options to conclude.
 
 ![export the blurred media file](https://images.wondershare.com/filmora/article-images/2022/12/motion-blur-to-photos-12.jpg)
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -177,3 +216,61 @@ Do you want to add an artistic look to your photos? One of the great ways to enh
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-effortless-transition-from-spotify-to-youtube-find-the-best-apps/"><u>[New] 2024 Approved  Effortless Transition From Spotify to YouTube  Find the Best Apps</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-everything-you-need-to-know-before-upgrading/"><u>[New] 2024 Approved  Everything You Need To Know Before Upgrading</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-excellence-on-screen-the-top-15-in-stop-motion-cinema/"><u>[New] 2024 Approved  Excellence on Screen  The Top 15 in Stop Motion Cinema</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-facebook-to-your-screen-top-5-downloader-apps/"><u>[New] 2024 Approved  Facebook to Your Screen  Top 5 Downloader Apps</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-guided-steps-to-decrease-audio-intensity-using-lumafusion/"><u>[New] 2024 Approved  Guided Steps to Decrease Audio Intensity Using Lumafusion</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-mastering-the-seamless-transition-from-obs-to-facebook-live/"><u>[New] 2024 Approved  Mastering the Seamless Transition From OBS to Facebook Live</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-your-guide-to-preserving-live-streams-on-periscope/"><u>[New] 2024 Approved  Your Guide to Preserving Live Streams on Periscope</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-dive-into-the-ocean-of-audio-visual-artistry-with-these-6-apps-for-2024/"><u>[New] Dive Into the Ocean of Audio-Visual Artistry With These 6 Apps for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-extracting-audio-from-vimeo-content-easily/"><u>[New] Extracting Audio From Vimeo Content Easily</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-educational-transformation-the-vr-revolution/"><u>[New] In 2024, Educational Transformation  The VR Revolution</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-twittersphere-treasures-primes-top-watchers-and-likes/"><u>[New] In 2024, Twittersphere Treasures  Prime’s Top Watchers & Likes</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-prime-locations-boosting-your-youtube-content-visibility/"><u>[New] Prime Locations  Boosting Your YouTube Content Visibility</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-the-immersive-chronicles-a-brief-history/"><u>[New] The Immersive Chronicles  A Brief History</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-understanding-auto-hdr-and-smart-exposure-techniques-in-photos-for-2024/"><u>[New] Understanding Auto HDR and Smart Exposure Techniques in Photos for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-understanding-magixs-acid-pro-and-its-market-rivals-for-2024/"><u>[New] Understanding Magix's ACID Pro and Its Market Rivals for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-giggle-genesis-app/"><u>[Updated] 2024 Approved  Giggle Genesis App</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-assemble-visual-pieces-into-watchable-arrays/"><u>[Updated] Assemble Visual Pieces Into Watchable Arrays</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-browsing-boredom-away-15-chuckle-inducing-youtubers-for-2024/"><u>[Updated] Browsing Boredom Away  15 Chuckle-Inducing YouTubers for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-cut-to-perfection-editing-video-duration-on-youtube/"><u>[Updated] Cut to Perfection  Editing Video Duration on YouTube</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-audience-focus-top-webcams-that-bring-life-to-podcasts/"><u>[Updated] In 2024, Audience Focus  Top Webcams That Bring Life to Podcasts</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-breathtaking-lyric-videos-made-easy-by-lyric-video-maker/"><u>[Updated] In 2024, Breathtaking Lyric Videos Made Easy by Lyric Video Maker</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-photo-perfection-top-6-iphone-utilities-to-exclude-unwanted-elements/"><u>[Updated] In 2024, Photo Perfection  Top 6 iPhone Utilities to Exclude Unwanted Elements</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-taking-flight-to-better-photos-an-intensive-look-at-dji-sparks-miniature-design/"><u>[Updated] In 2024, Taking Flight to Better Photos  An Intensive Look at DJI Spark's Miniature Design</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-innovative-8-upgrades-for-webcam-video-quality/"><u>[Updated] Innovative 8 Upgrades for Webcam Video Quality</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-optimizing-zoom-hd-quality-clear-methods/"><u>[Updated] Optimizing Zoom HD Quality  Clear Methods</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-recommendation-best-websites-for-downloading-snapchat-ringtone-for-2024/"><u>[Updated] Recommendation  Best Websites For Downloading Snapchat Ringtone for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-secrets-of-windows-10-effortless-media-importation-methods/"><u>[Updated] Secrets of Windows 10  Effortless Media Importation Methods</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-the-essential-guide-to-apples-iphone-camera-evolution-in-ios-11/"><u>[Updated] The Essential Guide to Apple's iPhone Camera Evolution in iOS 11</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-unlocking-the-power-of-voice-notes-masterclass/"><u>[Updated] Unlocking the Power of Voice Notes Masterclass</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-accelerated-aesthetics-rapid-revamping-of-images-on-windows-photo-editor/"><u>2024 Approved  Accelerated Aesthetics  Rapid Revamping of Images on Windows Photo Editor</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-blizzard-brilliance-olympic-peaks-in-beijing/"><u>2024 Approved  Blizzard Brilliance  Olympic Peaks in Beijing</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-prime-windows-10-photoviewing-suite/"><u>2024 Approved  Prime Windows 10 Photoviewing Suite</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-the-ultimate-guide-to-economical-cloud-options/"><u>2024 Approved  The Ultimate Guide to Economical Cloud Options</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-transform-your-note-habits-with-mematics-tools/"><u>2024 Approved  Transform Your Note Habits with Mematic's Tools</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/3-solutions-to-hard-reset-realme-narzo-60x-5g-phone-using-pc-drfone-by-drfone-reset-android-reset-android/"><u>3 Solutions to Hard Reset Realme Narzo 60x 5G Phone Using PC | Dr.fone</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/additives-like-coupling-agents-are-used-in-wpc-manufacturing-to-improve-the-interfacial-bonding-between-hydrophilic-wood-and-hydrophobic-plastic-components.334/"><u>Additives Like Coupling Agents Are Used in WPC Manufacturing to Improve the Interfacial Bonding Between Hydrophilic (Wood) and Hydrophobic (Plastic) Components</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/can-ai-surpass-the-turing-benchmark-check-out-these-five-up-to-date-alternatives/"><u>Can AI Surpass the Turing Benchmark? Check Out These Five Up-to-Date Alternatives</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/enhancing-photo-video-capture-snapchat-and-mobile-guide/"><u>Enhancing Photo-Video Capture  Snapchat & Mobile Guide</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/forgot-locked-apple-iphone-11-pro-max-password-learn-the-best-methods-to-unlock-drfone-by-drfone-ios/"><u>Forgot Locked Apple iPhone 11 Pro Max Password? Learn the Best Methods To Unlock | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/groundbreaking-gradients-adobes-best-lut-choices-to-boost-your-lightroom-work/"><u>Groundbreaking Gradients  Adobe's Best LUT Choices to Boost Your LightRoom Work</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-messages-files-from-motorola-razr-40-ultra-by-fonelab-android-recover-messages/"><u>How To  Restore Missing Messages Files from Motorola Razr 40 Ultra</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/how-unreliable-are-current-ai-methods-for-identifying-duplicate-online-material/"><u>How Unreliable Are Current AI Methods for Identifying Duplicate Online Material?</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-elite-lineup-of-vr-bicycle-experiences/"><u>In 2024, Elite Lineup of VR Bicycle Experiences</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-top-ios-and-android-photo-blur-tools/"><u>In 2024, Top iOS & Android Photo Blur Tools</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-unlock-your-presentation-potential-with-these-high-quality-templates/"><u>In 2024, Unlock Your Presentation Potential with These High-Quality Templates</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/instagram-music-copyright-rules-for-2024/"><u>Instagram Music Copyright Rules for 2024</u></a></li>
+<li><a href="https://win-forum.techidaily.com/navigating-the-giants-of-social-media-a-guide-to-facebook-twitter-instagram-and-youtube/"><u>Navigating the Giants of Social Media: A Guide to Facebook, Twitter, Instagram, and YouTube</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/personalizing-ps-sound-the-complete-guide-for-gamers/"><u>Personalizing PS Sound  The Complete Guide for Gamers</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/rethinking-gameplay-mavic-air-versus-spark-showdown-for-2024/"><u>Rethinking Gameplay  Mavic Air Versus Spark Showdown for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-ultimate-guide-to-purging-youtube-videos-for-2024/"><u>The Ultimate Guide to Purging YouTube Videos for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/top-8-gold-text-wonders-in-the-vast-world-of-3d-sites/"><u>Top 8 Gold-Text Wonders in the Vast World of 3D Sites</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/transcendence-in-music-mixing-crossfade-unveiled/"><u>Transcendence in Music Mixing  Crossfade Unveiled</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/ultimate-voice-changer-for-valorant-gamers-free-to-use/"><u>Ultimate Voice Changer for Valorant Gamers – Free to Use</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/unveiling-how-luts-transform-visual-elements-in-photos-for-2024/"><u>Unveiling How LUTs Transform Visual Elements in Photos for 2024</u></a></li>
+</ul></div>

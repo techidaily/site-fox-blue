@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Lowering Audio Amplitude Progressively Using Lumafusion\""
-date: 2024-07-11T14:34:05.687Z
-updated: 2024-07-12T14:34:05.687Z
+date: 2024-08-15T10:20:50.911Z
+updated: 2024-08-16T10:20:50.911Z
 tags: 
   - screen-recording
   - ai video
@@ -40,6 +40,9 @@ Step3 From the choices, choose the Cross Dissolve (Fade) transition. The transit
 
 Beyond simple editing, LumaFusion excels in enhancing projects with a wide variety of built-in effects, transitions, titles, and color correction. It also has a limited (but excellent) collection of royalty-free music. Finally, LumaFusion Project Packages are a terrific solution to regularly backup a project for security or to complete altering it. After choosing Export, choose the Project Package from the list.
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
 ## Part 2\. LumaFusion Alternative Way to Fade Audio in Video
 
 A multi-track video editor made specifically for mobile devices is called LumaFusion. Journalists, filmmakers, and expert video producers often utilize it to create engrossing video narratives. But if you have a toolkit with everything you need already built in so you can use it as needed, fading is unexpectedly made simple. [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) does this task faster than ever because to its user-friendly interface, which makes audio editing in Filmora a breeze.
@@ -74,6 +77,9 @@ After finishing the method for editing audio in Filmora, click the Export button
 
 In that window, you can select the MP3 format in the format customization box to continue with storing your file to your system. After making any necessary adjustments to the audio file, click the Export button below, which will ultimately direct you to the area on your PC where you want to store the audio.
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 3\. Related FAQs about LumaFusion
 
 ### 1\. How do you fade in a title LumaFusion?
@@ -84,6 +90,9 @@ Go to Clip Defaults to do that. You may change the Title and Transition lengths 
 
 There are several eye-catching transitions included with LumaFusion. The transition may simply be dragged into the timeline and placed between the two pertinent segments. You may modify the duration of it after it's on the timeline in the same way that you would any other clip. Simply choose Transitions from the Sources box, that's it.
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### 3\. How to you split audio and video in LumaFusion?
 
 Within the timeline, tap anywhere and move the mouse left or right to divide a clip in half. The audio from your clip may then be separated in the timeline. To do so, choose the audio channel and then click the pencil-shaped edit button at the bottom of the screen. This will display a variety of choices, including tools for pan, distortion, and volume. The audio editing features in LumaFusion are virtually as spectacular as the visual options—and just as intimidating.
@@ -101,6 +110,9 @@ Now that you've downloaded the software's executable file, the next step is to i
 Drag and drop your sound recordings from the media library to the timeline at the bottom of the program when they have been successfully imported. You may now see your audio files inside the timeline, where you can easily crop the video or reduce the audio of the relevant audio file. You may utilize basic to sophisticated editing techniques inside the program. To choose the basic editor, just click on the video file within the timeline as shown below:
 
 ![import audios to fade](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
+<!-- affiliate ads begin -->
+<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
+<!-- affiliate ads end -->
 
 ##### Step3 Apply Fade Effects
 
@@ -114,8 +126,17 @@ After finishing the method for editing audio in Filmora, click the Export button
 
 In that window, you can select the MP3 format in the format customization box to continue with storing your file to your system. After making any necessary adjustments to the audio file, click the Export button below, which will ultimately direct you to the area on your PC where you want to store the audio.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
+🎬 Nero Video:
+The powerful video editing program for your Windows PC</a>
+<!-- affiliate ads end -->
 ## Part 3\. Related FAQs about LumaFusion
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
+The ultimate burning program for all your needs!</a>
+<!-- affiliate ads end -->
 ### 1\. How do you fade in a title LumaFusion?
 
 Go to Clip Defaults to do that. You may change the Title and Transition lengths here. Check to check whether the updated defaults have been implemented by adding a new title or transition after making the necessary modifications. By cursorily browsing the title in the browser, you can get a preview.
@@ -151,3 +172,41 @@ Within the timeline, tap anywhere and move the mouse left or right to divide a c
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-capture.techidaily.com/new-2024-approved-quick-guide-to-optimized-and-streamlined-mac-screenshots-via-keyboard-shortcuts/"><u>[New] 2024 Approved  Quick Guide to Optimized and Streamlined Mac Screenshots via Keyboard Shortcuts</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-reducing-volume-stealthily-on-computers-os-x-and-windows/"><u>[New] 2024 Approved  Reducing Volume Stealthily on Computers (OS X & Windows)</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-divide-and-conquer-easy-chapter-addition-for-vimeo-videos-for-2024/"><u>[New] Divide and Conquer  Easy Chapter Addition for Vimeo Videos for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-from-canvas-to-cryptos-select-7-nft-creating-powerhouses/"><u>[New] From Canvas to Cryptos  Select 7 NFT-Creating Powerhouses</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-how-to-quickly-assemble-your-facebook-gallery/"><u>[New] How to Quickly Assemble Your Facebook Gallery</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-streaming-stations-beyond-ustream-reviews/"><u>[New] Streaming Stations  Beyond Ustream Reviews</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-ace-tiktok-live-leveraging-zoom-capabilities/"><u>2024 Approved  Ace TikTok Live  Leveraging Zoom Capabilities</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-achieve-more-with-costless-timer-software/"><u>2024 Approved  Achieve More with Costless Timer Software</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-add-auditory-components-to-premiere-pro-videos/"><u>2024 Approved  Add Auditory Components to Premiere Pro Videos</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-best-choices-in-game-livestream-technology/"><u>2024 Approved  Best Choices in Game Livestream Technology</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-crafting-dynamic-speed-up-videos/"><u>2024 Approved  Crafting Dynamic Speed-Up Videos</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-elevate-your-podcasts-name-game-10-ai-powered-options/"><u>2024 Approved  Elevate Your Podcast's Name Game  10 AI-Powered Options</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-enhancing-soundscapes-mastering-audacity-crossfading/"><u>2024 Approved  Enhancing Soundscapes  Mastering Audacity Crossfading</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-exploring-advanced-recording-alternatives-to-fbx-frameworks/"><u>2024 Approved  Exploring Advanced Recording Alternatives to FBX Frameworks</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-font-fusion-merging-style-and-content-in-after-effects/"><u>2024 Approved  Font Fusion  Merging Style & Content in After Effects</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-from-adventure-to-audience-transforming-gopro-footage-with-social-media/"><u>2024 Approved  From Adventure to Audience  Transforming Gopro Footage with Social Media</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-how-asmr-can-boost-your-health-and-happiness/"><u>2024 Approved  How ASMR Can Boost Your Health & Happiness</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-hurdle-free-humor-your-guide-to-the-ifunny-app-world/"><u>2024 Approved  Hurdle-Free Humor  Your Guide to the iFunny App World</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-master-the-quick-and-easy-photo-fixes-in-windows/"><u>2024 Approved  Master the Quick & Easy Photo Fixes in Windows</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-mastering-livestran-interactions-with-these-ten-backtrack-techniques/"><u>2024 Approved  Mastering Livestran Interactions with These Ten Backtrack Techniques</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-mastering-the-art-of-minuscule-web-pixels/"><u>2024 Approved  Mastering the Art of Minuscule Web Pixels</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-melodic-matchmakers-aligning-music-to-visuals/"><u>2024 Approved  Melodic Matchmakers  Aligning Music to Visuals</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-navigating-the-world-of-gopro-and-time-lapse-shooting/"><u>2024 Approved  Navigating the World of GoPro and Time-Lapse Shooting</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-pinnacle-of-video-quality-the-best-5-low-speed-recorders/"><u>2024 Approved  Pinnacle of Video Quality  The Best 5 Low-Speed Recorders</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-premiere-audio-to-text-converters/"><u>2024 Approved  Premiere Audio-To-Text Converters</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-prime-ringtone-retailers-for-game-of-thrones-fans/"><u>2024 Approved  Prime Ringtone Retailers for Game of Thrones Fans</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-revolutionize-your-memories-old-photos-new-video-life/"><u>2024 Approved  Revolutionize Your Memories  Old Photos, New Video Life</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-webcam-innovation-cutting-edge-live-video-technology/"><u>2024 Approved  Webcam Innovation  Cutting-Edge Live Video Technology</u></a></li>
+<li><a href="https://driver-install.techidaily.com/direct-driver-intervention-in-vista-operating-system/"><u>Direct Driver Intervention in Vista Operating System</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/forgot-iphone-14-password-here-are-the-best-solutions-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>Forgot iPhone 14 Password? – Here are the Best Solutions | Stellar</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-apple-iphone-13-pro-max-drfone-by-drfone-virtual-ios/"><u>How to get the dragon scale and evolution-enabled pokemon On Apple iPhone 13 Pro Max? | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-pokemon-emerald-master-ball-cheat-on-vivo-y27-4g-drfone-by-drfone-virtual-android/"><u>How to Use Pokémon Emerald Master Ball Cheat On Vivo Y27 4G | Dr.fone</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-how-to-archive-snaps-on-iphoneandroid-from-snapchat/"><u>In 2024, How To Archive Snaps on iPhone/Android From Snapchat</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/resolve-critical-service-failed-issue-effective-methods-to-combat-blue-screen-of-death-bsod-on-windows-10-pcs/"><u>Resolve 'Critical Service Failed' Issue: Effective Methods to Combat Blue Screen of Death (BSOD) on Windows 10 PCs</u></a></li>
+</ul></div>

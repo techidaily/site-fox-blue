@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Shot Perfecting Made Simple  The Best Cinematic Practices\""
-date: 2024-07-11T14:27:05.127Z
-updated: 2024-07-12T14:27:05.127Z
+date: 2024-08-15T10:22:34.656Z
+updated: 2024-08-16T10:22:34.656Z
 tags: 
   - screen-recording
   - ai video
@@ -36,6 +36,9 @@ Step 1 Attach your phone to the side of a door using duct tape or any strong tap
 
 Step 2 Now open and close the door to get smooth camera movement.
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
+<!-- affiliate ads end -->
 ## Tip 2\. DIY Light Focus and Control
 
 Shaping light is a crucial component of filmmaking, requiring command over creating and guiding shadows. You need to focus the light on the subjects rather than the background. Use the following methods to focus light on the point of interest.
@@ -58,6 +61,9 @@ Alright! Let's check out how it looks in the video below.
 
 ![diy led panel](https://images.wondershare.com/filmora/article-images/2022/12/diy-led-panel.gif)
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### DIY Light Flag
 
 Black color does not reflect light, so a black fabric can be used to make a DIY Light Flag. Here is a step-by-step guide to creating a light flag at home.
@@ -97,6 +103,9 @@ Step 5 Put the bulb on the lamp and turn it on the lamp.
 Here is a GIF attached for a better understanding of the steps.
 
 ![diy black wrap](https://images.wondershare.com/filmora/article-images/2022/12/diy-black-wrap.gif)
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### DIY Light Reflector
 
@@ -116,6 +125,9 @@ There is a GIF attached below to understand the steps visually.
 
 ![diy light reflector](https://images.wondershare.com/filmora/article-images/2022/12/diy-light-reflector.gif)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
+<!-- affiliate ads end -->
 ## Tip 3\. DIY Light Diffuser
 
 In professional productions, light diffusers are frequently used to soften, level out the lighting, and lessen the harshness of shadows.
@@ -142,6 +154,9 @@ For a better understanding of the steps, watch the GIF attached below.
 
 The most commonly used cinematic movements are the reveal and 180° presentation movements. A gimbal is needed to record these movements.
 
+<!-- affiliate ads begin -->
+<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Reveal Movement
 
 It is the most famous cinematic Movement used these days. So let's discuss how you can record reveal movement using your phone and a gimbal.
@@ -159,7 +174,13 @@ Step 4 Locking mode is best for recording reveal movement shots.
 Here is a video showing how to record reveal movement.
 
 ![reveal movement](https://images.wondershare.com/filmora/article-images/2022/12/reveal-movement.gif)
+<!-- affiliate ads begin -->
+<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 180° Presentation Movement
 
 This Movement gives the subject a general look and displays more details of the surroundings and the subject.
@@ -177,6 +198,9 @@ Step 3 Move slowly to the other side of the subject while recording.
 A sample video attached below shows how to record 180 presentation movements.
 
 ![180 presentation movement](https://images.wondershare.com/filmora/article-images/2022/12/180-presentation-movement.gif)
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
+<!-- affiliate ads end -->
 
 ## Tip 5\. Create a Barrel Roll Shot
 
@@ -197,7 +221,13 @@ Step 4 Turn on the power drill at low speed and record the barrel roll shot.
 The video attached below will help you to understand these steps.
 
 ![barrel roll shot](https://images.wondershare.com/filmora/article-images/2022/12/barrel-roll-shot.gif)
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Final Words
 
 No doubt, professional cinematography requires expensive equipment, but if you are low on budget, you can use different household items to create cinematic effects. You are using everyday gadgets for creating videos significantly reduces the cost.
@@ -233,3 +263,39 @@ After filming the videos, edit them using [Wondershare Filmora](https://tools.te
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-best-unsung-free-speech-to-text-apps-for-your-mac/"><u>[New] Best Unsung Free Speech-to-Text Apps for Your Mac</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-do-reviewers-get-dollars-for-commentary-for-2024/"><u>[New] Do Reviewers Get Dollars for Commentary for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-enrich-your-viewing-habit-with-essential-movie-channels/"><u>[New] Enrich Your Viewing Habit with Essential Movie Channels</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-exceptional-uav-selection-for-optimal-gopro-footage/"><u>[New] In 2024, Exceptional UAV Selection for Optimal GoPro Footage</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-10-top-editing-apps-at-no-cost-online/"><u>[Updated] 10 Top Editing Apps at No Cost Online</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-perfect-photos-applying-radial-blur-in-ps/"><u>[Updated] 2024 Approved  Perfect Photos  Applying Radial Blur in PS</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-the-ultimate-guide-to-choosing-top-subtitle-editors-online/"><u>[Updated] 2024 Approved  The Ultimate Guide to Choosing Top Subtitle Editors Online</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-amplify-detail-top-tips-for-shooting-up-closer-with-videoleap/"><u>[Updated] In 2024, Amplify Detail  Top Tips for Shooting Up Closer with VideoLeap</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-essential-brightness-techniques-for-iphones/"><u>[Updated] In 2024, Essential Brightness Techniques for IPhones</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-linguistic-inputs-utilize-no-fee-required/"><u>[Updated] In 2024, Linguistic Inputs, Utilize No Fee Required</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-the-ultimate-guide-to-configuring-and-analyzing-facebooks-instream-ads/"><u>[Updated] In 2024, The Ultimate Guide to Configuring & Analyzing Facebook's Instream Ads</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-metaverse-milestones-top-10-movies-that-transcend-our-own-universe/"><u>[Updated] Metaverse Milestones  Top 10 Movies That Transcend Our Own Universe</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-starting-vlogging-right-the-top-equipmentsoftware-for-2024/"><u>[Updated] Starting Vlogging Right  The Top Equipment/Software for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-the-comprehensive-guide-to-top-8-collaborative-video-collage-tools-android-for-2024/"><u>[Updated] The Comprehensive Guide to Top 8 Collaborative Video Collage Tools (Android) for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-how-to-stream-your-podcast-with-a-click/"><u>2024 Approved  How to Stream Your Podcast with a Click</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-propel-promotions-with-select-words-and-phrases/"><u>2024 Approved  Propel Promotions with Select Words and Phrases</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-top-kid-approved-drone-choices-summarized/"><u>2024 Approved  Top Kid-Approved Drone Choices Summarized</u></a></li>
+<li><a href="https://windows11.techidaily.com/essential-windows-strategies-for-device-id-discovery/"><u>Essential Windows Strategies for Device ID Discovery</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-bring-clarity-to-your-feed-a-guide-to-crafting-square-videos-in-imovie/"><u>In 2024, Bring Clarity to Your Feed  A Guide to Crafting Square Videos in iMovie</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-expertly-edit-extravagant-tiktoks-your-key-to-less-overloaded-drafts/"><u>In 2024, Expertly Edit Extravagant TikToks  Your Key to Less Overloaded Drafts</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-harnessing-the-power-of-depth-perception-iphone-xs-advantage/"><u>In 2024, Harnessing the Power of Depth Perception  IPhone X's Advantage</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-can-i-get-more-stardust-in-pokemon-go-on-honor-magic-5-lite-drfone-by-drfone-virtual-android/"><u>In 2024, How can I get more stardust in pokemon go On Honor Magic 5 Lite? | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-fix-locked-apple-id-on-apple-iphone-14-by-drfone-ios/"><u>In 2024, How to Fix Locked Apple ID on Apple iPhone 14</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-premier-chromebook-monitoring-app/"><u>In 2024, Premier Chromebook Monitoring App</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-pro-cameras-who-wins-gopro-and-garmin-virb-comparison/"><u>In 2024, Pro Cameras, Who Wins? GoPro & Garmin VIRB Comparison</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/moments-replay-module-for-2024/"><u>Moments Replay Module for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/pioneering-color-grading-with-3d-luts-for-2024/"><u>Pioneering Color Grading with 3D LUTs for 2024</u></a></li>
+<li><a href="https://program-issues.techidaily.com/solving-the-persistent-bugs-everscape-2-windows-crash-fixes/"><u>Solving the Persistent Bugs: Everscape 2 Windows Crash Fixes</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/top-10-cost-free-video-chat-apps-on-ios-and-android-for-2024/"><u>Top 10 Cost-Free Video Chat Apps on iOS & Android for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/transforming-your-single-picture-into-video-magic-with-pixiz/"><u>Transforming Your Single Picture Into Video Magic with Pixiz</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/unlock-astonishing-photo-flair-on-iphone-x7plus-with-these-top-free-tools/"><u>Unlock Astonishing Photo Flair on iPhone X/7+ with These Top Free Tools</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/windows-drawing-powerhouses-exploring-free-and-fees-for-2024/"><u>Windows Drawing Powerhouses  Exploring FREE & Fees for 2024</u></a></li>
+</ul></div>

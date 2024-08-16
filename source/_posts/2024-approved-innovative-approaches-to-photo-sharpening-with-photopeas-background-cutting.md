@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Innovative Approaches to Photo Sharpening with Photopea's Background Cutting\""
-date: 2024-07-11T14:44:25.423Z
-updated: 2024-07-12T14:44:25.423Z
+date: 2024-08-15T10:18:23.814Z
+updated: 2024-08-16T10:18:23.814Z
 tags: 
   - screen-recording
   - ai video
@@ -30,6 +30,9 @@ Photopea offers three options for removing the images' background, i.e., Magic W
 Magic Wand tool is responsible for instantly removing the background of an image with solid colors. In comparison, the Magic Cut tool lets you erase complicated backgrounds.  
 However, if the image is detailed, you have to select the object and remove the background manually. Below we've provided step-by-step guides to show you how you can use the Magic Wand and Magic Cut tools:
 
+<!-- affiliate ads begin -->
+<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
+<!-- affiliate ads end -->
 ### 1\. How To Use The Magic Wand Tool To Remove The Image's Background
 
 Here's how to use the Magic Wand tool to **remove the image's background with Photopea**:
@@ -39,6 +42,9 @@ Step1 In the first step, launch a browser on your PC and visit the [Photopea](ht
 Step2 In the next step, click the **"Magic Wand"** tool from the left-side panel and click the background of your image to select it.
 
 ![selecting the magic wand tool in photopea](https://images.wondershare.com/filmora/article-images/2023/03/selecting-the-magic-wand-tool-in-photopea.png)
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
+<!-- affiliate ads end -->
 
 Step3 Now, simply press the **"Delete"** button on your keyboard to remove the background. However, if the tool did not select some parts of the image's background, you need to adjust the settings. Click the **"Ctrl+Z"** key to undo the selection.
 
@@ -77,6 +83,9 @@ Step1 Visit the Photopea website and import your image. Right-click the **"Recta
 Step2 Now, choose the selection tool you need from the drop-down menu. For this tutorial, we've used the **"Magnetic Lasso Selection"** option.
 
 ![manually removing the image background in photopea](https://images.wondershare.com/filmora/article-images/2023/03/manually-removing-the-image-background-in-photopea.png)
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step3 In the next step, select your object as precisely as possible. Now, right-click on your selection, and click **"Inverse"** from the drop-down menu.
 
@@ -91,12 +100,18 @@ To add a new background after removing the image's background, do the following 
 Step1 Click the **"File"** option from the top menu and select **"Open & Place..."**
 
 ![adding new background to image in photopea](https://images.wondershare.com/filmora/article-images/2023/03/adding-new-background-to-image-in-photopea.png)
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
+<!-- affiliate ads end -->
 
 Step2 Choose the new background image from your system and click **"Open"** to import it to **"Photopea."**
 
 Step3 Now, click the **"Edit"** option from the top menu and select **"Transform" > "Scale."** Drag the handles to resize the background image and click **"Enter"** to apply the changes.
 
 ![scaling the new background image](https://images.wondershare.com/filmora/article-images/2023/03/scaling-the-new-background-image.png)
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
+<!-- affiliate ads end -->
 
 Step4 Under the **"Layers"** header in the right panel, drag the new image layer below the object layer, and the background will be applied to your object.
 
@@ -104,10 +119,16 @@ Step4 Under the **"Layers"** header in the right panel, drag the new image layer
 
 If you want to remove the BG of an image with just one click or of images in bulk, then Wondershare [PixCut](https://pixcut.wondershare.com/) is the best alternative option to Photopea, as it meets all these criteria. Below we've provided the reasons why this tool is the right option:
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### AI-Based Background Remover
 
 PixCut's Artificial Intelligence-based background remover can erase the background of your images in just a few clicks. You can also use the **"Bulk Remove BG"** feature to erase the background of pictures in bulk.
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Image Resizer
 
 With its Image Resizer tool, you can make your image smaller or larger in size to fulfill your requirements.
@@ -116,6 +137,9 @@ With its Image Resizer tool, you can make your image smaller or larger in size t
 
 PixCut also offers the "Erase & Restore" tool to help you remove or restore certain parts of your image after removing the background using the AI-based tool.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Background Change
 
 PixCut gives you the option to change the removed background to something more unique using the presets available on the platform or by adding your own templates/images.
@@ -130,6 +154,9 @@ PixCut also removes watermarks from your pictures, allowing you to bypass copyri
 
 ![wondershare pixcut](https://images.wondershare.com/filmora/article-images/2023/03/wondershare-pixcut.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
+<!-- affiliate ads end -->
 ## You May Be Interested In: How To Get Free Images
 
 Hopefully, you've found this guide helpful and can now make changes to your image's background without much effort. Last but not least, we have provided you with a video how to get more free images from a user-friendly video editor - [Filmora](https://tools.techidaily.com/wondershare/filmora/download/). If you have any interests, you can watch it:
@@ -138,6 +165,9 @@ Hopefully, you've found this guide helpful and can now make changes to your imag
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
+<!-- affiliate ads begin -->
+
+<!-- affiliate ads end -->
 ## Conclusion
 
 In this detailed guide, we've explored **how to remove an image's background with Photopea** using the Magic Wand and Magic Cut tools or by manual selection. We've also explained how you can add a new background to your image file after removing the old one.
@@ -177,3 +207,47 @@ Additionally, we recommended using Wondershare PixCut as the best alternative to
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-deciphering-the-rights-based-language-of-instagrams-music-features/"><u>[New] 2024 Approved  Deciphering the Rights-Based Language of Instagram's Music Features</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-discover-how-to-craft-videos-flawlessly-in-8-tools/"><u>[New] 2024 Approved  Discover How to Craft Videos Flawlessly in 8 Tools</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-high-fidelity-webcams-for-professional-podcasting/"><u>[New] 2024 Approved  High-Fidelity Webcams for Professional Podcasting</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-2024-approved-mastering-the-art-of-tiktok-intros-on-mac-devices/"><u>[New] 2024 Approved  Mastering the Art of TikTok Intros on Mac Devices</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-do-reviewers-receive-payments-online-in-2024/"><u>[New] Do Reviewers Receive Payments Online, In 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-exciting-journeys-in-samsungs-virtual-reality-games-for-2024/"><u>[New] Exciting Journeys in Samsung's Virtual Reality Games for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-exploring-hidden-gems-secrets-on-locating-superb-insta-ringtunes-and-creating-noteworthy-chimes/"><u>[New] Exploring Hidden Gems  Secrets on Locating Superb Insta-Ringtunes & Creating Noteworthy Chimes</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-from-blurred-to-bold-a-comprehensive-approach-to-buying-high-resolution-monitors/"><u>[New] From Blurred to Bold  A Comprehensive Approach to Buying High-Resolution Monitors</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-how-to-get-the-best-youtube-thumbnails-the-free-guide-for-2024/"><u>[New] How to Get the Best YouTube Thumbnails  The Free Guide for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-top-streamers-choice-does-virusmix-or-wirecast-rule-the-game/"><u>[New] In 2024, Top Streamers Choice  Does VirusMix or WireCast Rule the Game?</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-physical-prowess-meets-online-opinions-for-2024/"><u>[New] Physical Prowess Meets Online Opinions for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-pioneering-digital-expression-with-these-6-best-nft-makers-for-2024/"><u>[New] Pioneering Digital Expression with These 6 Best NFT Makers for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-the-art-of-leading-lines-in-iphone-visual-storytelling/"><u>[New] The Art of Leading Lines in iPhone Visual Storytelling</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-taking-your-aerial-game-to-new-heights-with-dji-spark-reviewed/"><u>[Updated] 2024 Approved  Taking Your Aerial Game to New Heights with DJI Spark Reviewed</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-audio-visual-harmony-in-digital-photos/"><u>[Updated] In 2024, Audio-Visual Harmony in Digital Photos</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-maximizing-your-reach-with-snapchat-highlights-for-2024/"><u>[Updated] Maximizing Your Reach with Snapchat Highlights for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-plug-in-proweries-expert-analysis-for-2024/"><u>[Updated] PLUG-IN PROWERIES  Expert Analysis for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-recording-internet-radios-simplified-tips-and-tricks-for-2024/"><u>[Updated] Recording Internet Radios Simplified  Tips and Tricks for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-sculpting-softness-a-guide-to-quieter-mixes-with-fl-studio-for-2024/"><u>[Updated] Sculpting Softness  A Guide to Quieter Mixes with FL Studio for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-drone-guide-for-the-thrifty-consumer-cost-effective-choices/"><u>2024 Approved  Drone Guide for the Thrifty Consumer  Cost-Effective Choices</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-efficient-obs-adjustments-on-cost-effective-computers/"><u>2024 Approved  Efficient OBS Adjustments on Cost-Effective Computers</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-resolution-war-gopro-hero-series-against-polaroid-cube/"><u>2024 Approved  Resolution War  GoPro Hero Series Against Polaroid Cube</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-unifiedvision-mixer-hub/"><u>2024 Approved  UnifiedVision Mixer Hub</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/a-comprehensive-look-at-stardew-and-ginger-isle/"><u>A Comprehensive Look at Stardew and Ginger Isle</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/bending-images-photoshops-simplest-alterations-for-2024/"><u>Bending Images  Photoshop's Simplest Alterations for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/chatgpt-in-focus-addressing-the-8-most-significant-hurdles/"><u>ChatGPT in Focus: Addressing the 8 Most Significant Hurdles</u></a></li>
+<li><a href="https://article-helps.techidaily.com/complete-drone-accessory-setlist-for-expert-pilots-for-2024/"><u>Complete Drone Accessory Setlist for Expert Pilots for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/cultivate-creativity-youtubes-top-inspirational-videos-for-2024/"><u>Cultivate Creativity  YouTube's Top Inspirational Videos for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/detailed-breakdown-and-reviews-of-google-maps-for-apples-handheld-device/"><u>Detailed Breakdown and Reviews of Google Maps for Apple's Handheld Device</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/effective-solutions-to-address-photos-app-issues-in-w10-for-2024/"><u>Effective Solutions to Address Photos App Issues in W10 for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/elevating-listeners-interest-writing-podcast-summaries-for-2024/"><u>Elevating Listeners' Interest  Writing Podcast Summaries for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/fix-usb-not-installing-issue-access-is-denied/"><u>Fix USB Not Installing Issue: Access Is Denied</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-change-your-sim-pin-code-on-your-infinix-smart-8-plus-phone-by-drfone-android/"><u>How To Change Your SIM PIN Code on Your Infinix Smart 8 Plus Phone</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-flash-dead-vivo-y55s-5g-2023-safely-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Flash Dead Vivo Y55s 5G (2023) Safely | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-best-pokemons-for-pvp-matches-in-pokemon-go-for-lava-yuva-2-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Best Pokemons for PVP Matches in Pokemon Go For Lava Yuva 2 Pro | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-can-i-get-more-stardust-in-pokemon-go-on-tecno-spark-20c-drfone-by-drfone-virtual-android/"><u>In 2024, How can I get more stardust in pokemon go On Tecno Spark 20C? | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-erase-an-iphone-8-without-apple-id-by-drfone-ios/"><u>In 2024, How to Erase an iPhone 8 without Apple ID?</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-navigating-the-world-of-no-fee-visual-aids/"><u>In 2024, Navigating the World of No-Fee Visual Aids</u></a></li>
+<li><a href="https://some-tips.techidaily.com/in-2024-top-10-free-templates-for-engaging-presentations-and-slideshows/"><u>In 2024, Top 10 Free Templates for Engaging Presentations and Slideshows</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/top-10-must-knows-before-elevating-systems/"><u>Top 10 Must-Knows Before Elevating Systems</u></a></li>
+</ul></div>
