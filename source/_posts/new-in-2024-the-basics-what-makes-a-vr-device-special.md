@@ -1,0 +1,161 @@
+---
+title: "\"[New] In 2024, The Basics  What Makes a VR Device Special?\""
+date: 2024-08-22T18:32:19.941Z
+updated: 2024-08-23T18:32:19.941Z
+tags: 
+  - screen-recording
+  - ai video
+  - ai audio
+  - ai auto
+categories: 
+  - ai
+  - screen
+description: "\"This Article Describes [New] In 2024, The Basics: What Makes a VR Device Special?\""
+excerpt: "\"This Article Describes [New] In 2024, The Basics: What Makes a VR Device Special?\""
+keywords: "VR Unique Features,VR Devices Advantage,Virtual Reality Basics,VR Special Attributes,Essential VR Traits,Distinctive VR Elements,Key VR Differentiators"
+thumbnail: https://thmb.techidaily.com/80e9505289538424f43d5ba12eaf938497fe9485f8cac83a0e7062f472435b7f.jpg
+---
+
+## The Basics: What Makes a VR Device Special?
+
+# What is Virtual Reality Headset?
+
+![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
+
+##### Benjamin Arango
+
+ Mar 27, 2024• Proven solutions
+
+ A [Virtual Reality](https://tools.techidaily.com/wondershare/filmora/download/) headset, commonly known as VR headset, refers to a device worn over the eyes like a pair of goggles for the purposes of watching VR content or when playing virtual reality video games. Most of the headsets have the ability to track the user’s head movements so that the wherever the user looks, the character in the virtual reality also looks. If done in the right manner, the headsets give an impression of the user being actually inside the game or the movie, hence the name “virtual reality”.
+
+## How does Virtual Reality headsets work
+
+ The principle goal of the virtual reality headsets is to create life-size, 3D virtual environments with no boundaries like those associated with computer or television screens. In case of the Rift or HTC’s Vive, video is sent from the computer or the console to the headset through a HDMI cable, while for the Google Cardboard or Samsung’s Gear VR, the videos are already on the smartphone mounted on the headsets.
+
+ The VR headsets may use a single feed or two feeds sent directly to either one or two LCD displays, one for each eye. There are also a set of lenses placed between the user’s eyes and the pixels and this is the reason why the devices are sometimes referred to as goggles. In some cases, the lenses can be adjusted to match the distance between the eyes and this distance will also vary from one user to another.
+
+ The lenses will focus and reshape the images for each eye before creating a stereoscopic 3D image by positioning the 2D images to portray how each of the two eyes see the world. One way in which the virtual reality headsets increases immersion is by increasing the field of view or simply how wide a picture appears. A 360 degrees display may not be convenient and most of the high end VR headsets usually use 100 or 110 degree field of views, which is usually sufficient enough to give the effects.
+
+ And for the final images to be totally convincing, the VR headsets use minimum frame rates of 60fps to do away with shuttering or make the users feel sick.
+
+## Top VR headsets overview
+
+ The race by tech giants to get their share of the virtual reality market is on and company after company is burning the midnight oil to produce the next best headset.
+
+ Below is a list of the various VR headsets currently available to purchase:
+
+### [HTC Vive]( https://www.vive.com/ )
+
+![ghtc-vive-vr](https://images.wondershare.com/filmora/article-images/htc-vive.png)
+
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
+<!-- affiliate ads end -->
+ HTC Vive VR headset is made in collaboration with Valve and it plugs directly into PCs and uses Valve’s humongous gaming ecosystem. The headset has over 70 sensors to allow for 360 degrees head tracking and it also boasts of a 90Hz refresh rate responsible for keeping down the latency, which in turn saves the users from suffering motions sickness. This headset is currently available for purchase from $799.
+
+### [Samsung Gear VR](http://www.samsung.com/global/galaxy/gear-vr/  )
+
+![gear-vr](https://images.wondershare.com/filmora/article-images/gear-vr.png)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
+ The Samsung Gear VR is essentially Oculus Rift lite, owing to the fact that the two companies worked on the technology together. The Gear VR uses a Samsung Galaxy smartphone for the display and as the processor. The phone slots in front of the lenses and into a Micro USB slot, and uses the super AMOLED display as the screen. With the Gear, all you have to do is to slot in the phone, put on the headset and start enjoying the virtual reality experience.
+
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
+### [Oculus Rift](https://www.oculus.com/rift/  )
+
+![oculus-rift](https://images.wondershare.com/filmora/article-images/oculus-rift.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+ Oculus Rift headset was responsible for the current hysteria in virtual reality. The Rift plugs into the computer’s USB and DVI ports and tracks the movements of the head to provide 3D displays on its stereo screens. The consumer edition of the Rift comes with a 2160 x 1200 resolution as well as a refresh rate of 90Hz. The Rift matches HTC Vive in terms of the refresh rate, but lags behind Sony’s PlayStation VR, though it is a pretty advanced VR headset in terms of the technology used.
+
+<!-- affiliate ads begin -->
+<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
+<!-- affiliate ads end -->
+### [Sony PlayStation VR](https://www.playstation.com/en-us/explore/playstation-vr/  )
+
+![sony-playstation-vr](https://images.wondershare.com/filmora/article-images/sony-playstation-vr.jpg)
+
+ Sony has finally announced the launch date for the PlayStation VR headset and this is expected to be 13th October 2016\. A new version though, was announced way back in 2015 and it featured a 5-inch LCD display of the original prototype. For the version to be released, it is expected to have a 5.7 inch OLED to allow for low persistence which will in turn translate to less motion blur. The refresh rate for Sony’s PlayStation VR has been ramped up to 120Hz, making it possible to have 120fps gaming.
+
+### [Google Cardboard](https://vr.google.com/cardboard/  )
+
+![google-cardboard-vr](https://images.wondershare.com/filmora/article-images/google-cardboard-vr.jpg)
+
+ Not to be left behind, Google also has a cardboard virtual reality headset. With this headset, it sounds like popping your smartphone in a cardboard container and putting it over your head for a virtual reality experience. Sounds like a joke, but you will be pleasantly surprised to learn that it works like charm and it is also low cost. If anything, the smartphone you have already has all the gyroscopic sensors as well as the positioning devices needed to track your head movements.
+
+ Since the Cardboard has grown so much in terms of popularity, Google has planned to release a better version known as Daydream. This will be a device like the Gear VR, but it has been designed to work with android phones which are currently being revamped to over better VR experiences. It is still not know when the new device will be available, but the Cardboard is retailing at $16.99 at Amazon.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+Benjamin Arango
+
+Benjamin Arango is a writer and a lover of all things video.
+
+Follow @Benjamin Arango
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-speedy-steps-screenshot-simplification-on-dell/"><u>[New] 2024 Approved  Speedy Steps  Screenshot Simplification on Dell</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-addressing-the-lack-of-novelty-in-virtual-reality/"><u>[New] Addressing the Lack of Novelty in Virtual Reality</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-augmented-reality-how-android-enhances-viewing-experience/"><u>[New] Augmented Reality  How Android Enhances Viewing Experience</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-essential-15-film-look-up-tables-for-gopro-videos-for-2024/"><u>[New] Essential 15 Film Look-Up Tables for GoPro Videos for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-from-novice-to-expert-kinemaster-gs-journey/"><u>[New] From Novice to Expert  KineMaster GS Journey</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-breaking-boundaries-in-video-content-creation-within-limit/"><u>[New] In 2024, Breaking Boundaries in Video Content Creation (Within Limit)</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-how-to-optimize-playback-settings-in-snapchat-applications/"><u>[New] In 2024, How To Optimize Playback Settings in Snapchat Applications</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-innovative-camera-insights-the-best-of-2024-unpacked/"><u>[New] Innovative Camera Insights – The Best of 2024 Unpacked</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-simplified-game-recording-setups-for-stardew-villagers-for-2024/"><u>[New] Simplified Game Recording Setups for Stardew Villagers for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-ultimate-acceleration-manual-boosting-fb-video-speed-with-top-tools-for-2024/"><u>[New] Ultimate Acceleration Manual  Boosting FB Video Speed with Top Tools for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-augment-pixel-tiles-with-concentric-blur-magic-ps/"><u>[Updated] 2024 Approved  Augment Pixel Tiles with Concentric Blur Magic PS</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-best-unmentioned-free-speech-to-text-tools-for-mac-users/"><u>[Updated] 2024 Approved  Best Unmentioned Free Speech to Text Tools for Mac Users</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-ultimate-profit-prodigy-in-the-digital-age/"><u>[Updated] 2024 Approved  Ultimate Profit Prodigy in the Digital Age</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-differences-between-iphone-x-face-id-and-samsung-face-recognition/"><u>[Updated] Differences Between iPhone X Face ID & Samsung Face Recognition</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-echoes-of-the-northmen-essential-sites-to-grab-got-audio-calls-for-2024/"><u>[Updated] Echoes of the Northmen  Essential Sites to Grab GoT Audio Calls for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-freesoundvault-review-unleashing-the-power-of-2024-tech/"><u>[Updated] FreeSoundVault Review  Unleashing the Power of 2024 Tech</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-from-everyday-use-to-extraordinary-virtual-adventures-smartphone-vr-conversion-guide/"><u>[Updated] From Everyday Use to Extraordinary Virtual Adventures  Smartphone-VR Conversion Guide</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-facebooks-visual-storytelling-what-angle-matters-most/"><u>[Updated] In 2024, Facebook's Visual Storytelling  What Angle Matters Most?</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-leveraging-facebook-slides-a-beginners-handbook-for-visual-storytelling/"><u>[Updated] In 2024, Leveraging Facebook Slides  A Beginner's Handbook for Visual Storytelling</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-vmiospluswindows-harmony-hub/"><u>[Updated] In 2024, VMiOS+Windows Harmony Hub</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-is-inshot-the-peak-of-video-editing-software-for-2024/"><u>[Updated] Is InShot the Peak of Video Editing Software for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-master-content-creation-video-and-photo-synergy/"><u>[Updated] Master Content Creation  Video & Photo Synergy</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-maximizing-income-with-youtube-adsense/"><u>[Updated] Maximizing Income with YouTube AdSense</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-navigate-the-world-of-podcast-seo-efficiently/"><u>[Updated] Navigate the World of Podcast SEO Efficiently</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-skyrocket-your-channels-the-path-to-higher-youtube-views/"><u>[Updated] Skyrocket Your Channels  The Path to Higher YouTube Views</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-all-about-color-grading/"><u>2024 Approved  All About Color Grading</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-optimal-use-of-zoom-features-on-chromebooks/"><u>2024 Approved  Optimal Use of Zoom Features on ChromeBooks</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-skys-brilliance-top-10-hd-renditions-websites/"><u>2024 Approved  Sky's Brilliance  Top 10 HD Renditions Websites</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/crossapple-windows-vmx-version/"><u>CrossApple-Windows VMX Version</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/delving-into-instagrams-videography-restriction/"><u>Delving Into Instagram's Videography Restriction</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/exploring-sonic-wonders-on-iphone-for-2024/"><u>Exploring Sonic Wonders on iPhone for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-total-environmental-immersion-in-media-creation/"><u>In 2024, Total Environmental Immersion in Media Creation</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/mastering-volume-transitions-in-lumafusion-for-2024/"><u>Mastering Volume Transitions in Lumafusion for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/navigating-and-mastering-instagram-filters-a-2023-guide/"><u>Navigating and Mastering Instagram Filters  A 2023 Guide</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/saving-screen-scenes-pcmac-and-mobile-devices-walkthrough/"><u>Saving Screen Scenes  PC/Mac & Mobile Devices Walkthrough</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/seamless-sound-selecting-4-websites-for-ringtones/"><u>Seamless Sound  Selecting 4 Websites for Ringtones</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Achieving Smooth Volume Decreases Using Lumafusion\""
-date: 2024-07-11T14:00:54.697Z
-updated: 2024-07-12T14:00:54.697Z
+date: 2024-08-22T18:20:19.675Z
+updated: 2024-08-23T18:20:19.675Z
 tags: 
   - screen-recording
   - ai video
@@ -74,16 +74,28 @@ After finishing the method for editing audio in Filmora, click the Export button
 
 In that window, you can select the MP3 format in the format customization box to continue with storing your file to your system. After making any necessary adjustments to the audio file, click the Export button below, which will ultimately direct you to the area on your PC where you want to store the audio.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
+<!-- affiliate ads end -->
 ## Part 3\. Related FAQs about LumaFusion
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
+<!-- affiliate ads end -->
 ### 1\. How do you fade in a title LumaFusion?
 
 Go to Clip Defaults to do that. You may change the Title and Transition lengths here. Check to check whether the updated defaults have been implemented by adding a new title or transition after making the necessary modifications. By cursorily browsing the title in the browser, you can get a preview.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<!-- affiliate ads end -->
 ### 2\. How do you do transitions in LumaFusion?
 
 There are several eye-catching transitions included with LumaFusion. The transition may simply be dragged into the timeline and placed between the two pertinent segments. You may modify the duration of it after it's on the timeline in the same way that you would any other clip. Simply choose Transitions from the Sources box, that's it.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 3\. How to you split audio and video in LumaFusion?
 
 Within the timeline, tap anywhere and move the mouse left or right to divide a clip in half. The audio from your clip may then be separated in the timeline. To do so, choose the audio channel and then click the pencil-shaped edit button at the bottom of the screen. This will display a variety of choices, including tools for pan, distortion, and volume. The audio editing features in LumaFusion are virtually as spectacular as the visual options—and just as intimidating.
@@ -108,12 +120,18 @@ The fade-in audio button inside your audio file may be seen when you just hover 
 
 ![apply fade effects](https://images.wondershare.com/filmora/guide/add-fade-in-fade-out-markers-timeline.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<!-- affiliate ads end -->
 ##### Step4 Share and export
 
 After finishing the method for editing audio in Filmora, click the Export button in the top menu corner as shown here:
 
 In that window, you can select the MP3 format in the format customization box to continue with storing your file to your system. After making any necessary adjustments to the audio file, click the Export button below, which will ultimately direct you to the area on your PC where you want to store the audio.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 3\. Related FAQs about LumaFusion
 
 ### 1\. How do you fade in a title LumaFusion?
@@ -153,3 +171,46 @@ Within the timeline, tap anywhere and move the mouse left or right to divide a c
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-discovering-your-iphones-top-free-photo-arrangement-and-editing-tools/"><u>[New] 2024 Approved  Discovering Your iPhone's Top Free Photo Arrangement & Editing Tools</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-elevate-your-snap-game-with-pro-level-boomerang-expertise/"><u>[New] 2024 Approved  Elevate Your Snap Game with Pro-Level Boomerang Expertise</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-superior-suggestions-prime-platforms-for-grabbing-snapalert-rhythms/"><u>[New] 2024 Approved  Superior Suggestions  Prime Platforms for Grabbing SnapAlert Rhythms</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-capture-and-save-video-images-on-windows-11/"><u>[New] In 2024, Capture and Save Video Images on Windows 11</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-giggle-graphics-humorhub/"><u>[New] In 2024, Giggle Graphics  HumorHub</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-the-art-of-crafting-impactful-documentary-stories/"><u>[New] In 2024, The Art of Crafting Impactful Documentary Stories</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-lenovo-screenshots-made-quickly-and-easy/"><u>[New] Lenovo Screenshots Made Quickly and Easy</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-mastering-slomo-videography-comprehensive-review-for-2024/"><u>[New] Mastering SloMo Videography - Comprehensive Review for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-x-tape-maker-desktop-compatible-for-2024/"><u>[New] X-Tape Maker  Desktop Compatible for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-15-essential-gaming-capture-programs/"><u>[Updated] 2024 Approved  15 Essential Gaming Capture Programs</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-a-step-by-step-framework-for-engaging-fb-giving-campaigns/"><u>[Updated] 2024 Approved  A Step-by-Step Framework for Engaging FB Giving Campaigns</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-cant-see-cursor-only-sony-a6400-glitch/"><u>[Updated] 2024 Approved  Can't See, Cursor Only - Sony A6400 Glitch</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-metavision-quest-selecting-the-most-advanced-vr-headset/"><u>[Updated] 2024 Approved  Metavision Quest  Selecting the Most Advanced VR Headset</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-multi-user-android-calls-the-top-8-tools/"><u>[Updated] In 2024, Multi-User Android Calls  The Top 8 Tools</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-peering-into-the-future-lg-tv-bp550-2023-review/"><u>[Updated] In 2024, Peering Into the Future  LG TV BP550 2023 Review</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-symphony-in-softness-playback-reduction-guide-for-2024/"><u>[Updated] Symphony in Softness  Playback Reduction Guide for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-unveiling-the-10-best-free-os-agnostic-video-solutions/"><u>[Updated] Unveiling the 10 Best Free OS-Agnostic Video Solutions</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-virtual-classrooms-future-learning-unleashed/"><u>[Updated] Virtual Classrooms  Future Learning Unleashed</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-demystifying-youtube-shorts-template-design-principles/"><u>2024 Approved  Demystifying YouTube Shorts Template Design Principles</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-the-ultimate-guide-to-android-photo-enhancement-5-top-apps/"><u>2024 Approved  The Ultimate Guide to Android Photo Enhancement  5 Top Apps</u></a></li>
+<li><a href="https://fox-links.techidaily.com/25-ways-to-spice-up-your-personal-screenshot/"><u>25 Ways to Spice Up Your Personal Screenshot</u></a></li>
+<li><a href="https://howto.techidaily.com/7-solutions-to-fix-chrome-crashes-or-wont-open-on-poco-x5-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Chrome Crashes or Wont Open on Poco X5 | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ace-your-studies-top-educational-websites-to-take-online-classes/"><u>Ace Your Studies: Top Educational Websites to Take Online Classes</u></a></li>
+<li><a href="https://extra-information.techidaily.com/advanced-techniques-for-sharper-screen-collaboration/"><u>Advanced Techniques for Sharper Screen Collaboration</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/boosting-engagement-interactive-features-of-zoom-on-win11-pcs/"><u>Boosting Engagement  Interactive Features of Zoom on Win11 PCs</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/cultivating-community-communication-tips-for-youtube-enthusiasts/"><u>Cultivating Community  Communication Tips for YouTube Enthusiasts</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/finding-clarity-in-photos-the-ultimate-iphone-and-android-editors/"><u>Finding Clarity in Photos  The Ultimate iPhone & Android Editors</u></a></li>
+<li><a href="https://win-answers.techidaily.com/gtfo-stability-tips-and-techniques-to-prevent-apps-from-freezing-or-crashing/"><u>GTFO Stability: Tips & Techniques to Prevent Apps From Freezing or Crashing</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-cast-samsung-galaxy-a15-5g-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>How to Cast Samsung Galaxy A15 5G to Computer for iPhone and Android? | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-change-lock-screen-wallpaper-on-honor-magic-5-by-drfone-android/"><u>How to Change Lock Screen Wallpaper on Honor Magic 5</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-change-your-apple-id-password-on-your-iphone-15-pro-by-drfone-ios/"><u>In 2024, How To Change Your Apple ID Password On your iPhone 15 Pro</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-mobile-entertainment-made-easy-download-funimate-apk/"><u>In 2024, Mobile Entertainment Made Easy  Download Funimate APK</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-the-new-frontier-of-jaunt-vr-experiences/"><u>In 2024, The New Frontier of Jaunt VR Experiences</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-the-ultimate-guide-for-the-curious-player/"><u>In 2024, The Ultimate Guide for the Curious Player</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-turning-off-two-factor-authentication-from-iphone-se-2020-5-tips-you-must-know-by-drfone-ios/"><u>In 2024, Turning Off Two Factor Authentication From iPhone SE (2020)? 5 Tips You Must Know</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-webp-mastery-converting-to-jpeg/"><u>In 2024, WebP Mastery  Converting to JPEG</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/mastering-airdrop-issues-quick-solutions-for-iphoneipadmac-users/"><u>Mastering AirDrop Issues  Quick Solutions for iPhone/iPad/Mac Users</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/navigating-the-top-10-for-streamed-television-for-2024/"><u>Navigating the Top 10 for Streamed Television for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/vectors-unveiled-a-novices-path-through-types-and-apps-for-2024/"><u>Vectors Unveiled  A Novice’s Path Through Types and Apps for 2024</u></a></li>
+</ul></div>
