@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Mastering Mac's Preview App  An In-Depth Tutorial for Users\""
-date: 2024-07-11T13:33:20.020Z
-updated: 2024-07-12T13:33:20.020Z
+date: 2024-08-27T12:25:36.715Z
+updated: 2024-08-28T12:25:36.715Z
 tags: 
   - screen-recording
   - ai video
@@ -50,6 +50,9 @@ As mentioned earlier, the **Preview app** is a default photo viewer on Mac that 
 * Use the tools present on the standard toolbar at the top of the interface
 * Alternatively, click **Tools** from the top, and choose your preferred editing option from the menu
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ### How to Show Markup Tools in Preview on Mac
 
 Markup Tools gives easy access to the editing tools the **Preview app** has. By default, Markup Tools is kept hidden, but automatically becomes visible when you make some changes to the image. However, you can follow the process given below to manually show Markup Tools in Preview:
@@ -80,6 +83,9 @@ Drag the mouse pointer over the area of the photo you want to keep. If need be, 
 
 Keeping the area of interest on the photo selected, click **Crop** from the **Markup Toolbar** at the top to crop the image.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### How to Rotate Image in Preview
 
 Rotating an image in the **Preview app** is fairly simple. To do so:
@@ -92,6 +98,9 @@ Use the method explained above to open the photo in Preview.
 
 Click the **Rotate Left** icon from the upper-right area of the standard toolbar to rotate the image anticlockwise. Alternatively, you can also click **Tools** from the top, and choose your preferred rotation direction or flipping orientation from the menu that comes down next.
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
+<!-- affiliate ads end -->
 ### How to Add Text to Image in Preview
 
 The **Preview app** even lets you annotate the images with ease. To add text to a photo:
@@ -108,6 +117,9 @@ Click inside the frame, delete the existing placeholder text, and type a new cap
 
 Select the text, click the **Text Style** icon from the **Markup Toolbar**, and change font, size, color, etc. using the available options.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### How to Remove Background in Preview
 
 As it is with some of the advanced image manipulation programs, even the **Preview app** allows you to remove background from a photo, and that too pretty easily. To get this done:
@@ -152,6 +164,9 @@ After opening an image, click **File** from the menu bar at the top, and click *
 
 Choose a destination folder in the **Where** field, select your preferred format from the **Format** drop-down list, and click **Save** to convert the image.
 
+<!-- affiliate ads begin -->
+<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<!-- affiliate ads end -->
 ### Part 2: FAQs About Preview App on Mac
 
 #### What is the Preview App?
@@ -186,6 +201,23 @@ Choose a destination folder in the **Where** field, select your preferred format
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
+VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
+
+Key features:
+
+•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
+•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
+•	Visual effects, advanced color correction and trendy Instagram-like filters   
+•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
+•	Non-linear editing: edit several files with simultaneously 
+•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
+•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
+•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
+•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
+</a>
+<!-- affiliate ads end -->
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -212,3 +244,62 @@ Follow @Ollie Mattison
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-unveiling-major-modifications-in-windows-movie-maker/"><u>[New] 2024 Approved  Unveiling Major Modifications in Windows Movie Maker</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-breathing-life-into-your-ig-story-text-with-animation-for-2024/"><u>[New] Breathing Life Into Your IG Story Text with Animation for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-how-to-zoom-photos-and-videos-on-snapchat/"><u>[New] How to Zoom Photos and Videos on Snapchat</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-budget-friendly-recording-software-for-windows-users/"><u>[New] In 2024, Budget-Friendly Recording Software for Windows Users</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-discover-spiritual-soundtracks-for-daily-life/"><u>[New] In 2024, Discover Spiritual Soundtracks for Daily Life</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-from-basic-to-brilliant-top-10-pixlr-techniques/"><u>[New] In 2024, From Basic to Brilliant  Top 10 Pixlr Techniques</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-iphones-easy-path-to-picture-softness-four-key-steps/"><u>[New] In 2024, IPhone's Easy Path to Picture Softness (Four Key Steps)</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-mastering-zoom-meetings-quickly/"><u>[New] In 2024, Mastering Zoom Meetings Quickly</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-the-ultimate-guide-for-converting-tiktok-sounds-into-practical-phone-alarms/"><u>[New] In 2024, The Ultimate Guide for Converting TikTok Sounds Into Practical Phone Alarms</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-top-6-hdmi-21-screens-detailed-feature-rundown/"><u>[New] In 2024, Top 6 HDMI 2.1 Screens  Detailed Feature Rundown</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-quadcopters-unveiled-decoding-their-mechanism-and-functions/"><u>[New] Quadcopters Unveiled  Decoding Their Mechanism and Functions</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-retroactive-video-mastery-for-android-users-for-2024/"><u>[New] Retroactive Video Mastery for Android Users for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-the-filmmakers-guide-to-stunning-spherical-videos-9-must-knows/"><u>[New] The Filmmaker's Guide to Stunning Spherical Videos (9 Must-Knows)</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-a-comprehensive-tutorial-for-using-movie-maker-on-windows-8-os/"><u>[Updated] 2024 Approved  A Comprehensive Tutorial for Using Movie Maker on Windows 8 OS</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-dark-sky-iphone-tips-and-tricks/"><u>[Updated] 2024 Approved  Dark Sky iPhone Tips & Tricks</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-from-beginner-to-expert-the-ultimate-guide-to-hp-screen-recording/"><u>[Updated] 2024 Approved  From Beginner to Expert  The Ultimate Guide to HP Screen Recording</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-from-paid-to-free-embracing-the-world-of-fcp/"><u>[Updated] 2024 Approved  From Paid to Free  Embracing the World of FCP</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-the-complete-blueprint-for-iphone-podcast-downloads/"><u>[Updated] 2024 Approved  The Complete Blueprint for iPhone Podcast Downloads</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-top-action-hunting-cameras-of-the-year/"><u>[Updated] 2024 Approved  Top Action Hunting Cameras of the Year</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-achieve-seamless-transitions-premiere-videos-on-youtube/"><u>[Updated] In 2024, Achieve Seamless Transitions  Premiere Videos on YouTube</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-mastering-snapshits-pro-photography-edits-guide/"><u>[Updated] In 2024, Mastering Snapshits  Pro Photography Edits Guide</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-retailing-revelations-and-methods/"><u>[Updated] Retailing Revelations and Methods</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-the-artists-secret-high-quality-free-text-files/"><u>[Updated] The Artist's Secret  High-Quality Free Text Files</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-how-to-craft-engaging-narratives-for-facebook-reels/"><u>2024 Approved  How to Craft Engaging Narratives for Facebook Reels</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-learn-selective-picture-clarity-reduction/"><u>2024 Approved  Learn Selective Picture Clarity Reduction</u></a></li>
+<li><a href="https://techtrends.techidaily.com/all-you-need-to-know-about-the-next-big-apple-unveiling-time-table-and-buzzing-rumors/"><u>All You Need to Know About the Next Big Apple Unveiling: Time Table & Buzzing Rumors</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/beyond-basics-advanced-imaging-and-video-with-hero5-black/"><u>Beyond Basics  Advanced Imaging & Video with Hero5 Black</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-video-files-on-realme-narzo-n53-by-fonelab-android-recover-video/"><u>Complete guide for recovering video files on Realme Narzo N53</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/contacting-the-snapchat-help-desk-a-comprehensive-guide/"><u>Contacting the Snapchat Help Desk: A Comprehensive Guide</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/embracing-digital-learning-a-teachers-resource/"><u>Embracing Digital Learning  A Teacher's Resource</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/hdr-vs-sdr-a-visual-spectrum-showdown/"><u>HDR vs SDR  A Visual Spectrum Showdown</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-check-distance-and-radius-on-google-maps-for-your-realme-12-pro-5g-drfone-by-drfone-virtual-android/"><u>How to Check Distance and Radius on Google Maps For your Realme 12 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-fix-apple-iphone-se-2020-unavailable-issue-with-ease-drfone-by-drfone-ios/"><u>How To Fix Apple iPhone SE (2020) Unavailable Issue With Ease | Dr.fone</u></a></li>
+<li><a href="https://media-tips.techidaily.com/how-to-transform-mpeg-files-into-mp3s-a-guide-to-retrieving-pure-audio/"><u>How to Transform MPEG Files Into MP3s: A Guide to Retrieving Pure Audio</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-any-nokia-c12-pro-phone-password-using-emergency-call-by-drfone-android/"><u>How To Unlock Any Nokia C12 Pro Phone Password Using Emergency Call</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/how-to-view-old-stories-on-facebook-laptop-and-mobile-for-2024/"><u>How to View Old Stories on Facebook? [Laptop and Mobile] for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/immersive-memories-a-compreeved-guide-to-saving-your-vr-gaming-journey/"><u>Immersive Memories  A Compreeved Guide to Saving Your VR Gaming Journey</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-beat-to-visuals-an-iphone-guide-for-music-videos/"><u>In 2024, Beat to Visuals  An iPhone Guide for Music Videos</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-brilliant-visuals-uncover-the-magic-in-these-7-grades/"><u>In 2024, Brilliant Visuals  Uncover the Magic in These 7 Grades</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-broadcast-tools-battle-wirecast-versus-obs-in-detail/"><u>In 2024, Broadcast Tools Battle  Wirecast versus OBS in Detail</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-change-your-apple-id-password-on-your-iphone-13-mini-by-drfone-ios/"><u>In 2024, How To Change Your Apple ID Password On your iPhone 13 mini</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-turn-off-google-location-to-stop-tracking-you-on-realme-11-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Turn Off Google Location to Stop Tracking You on Realme 11 5G | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-oneplus-ace-2-drfone-by-drfone-virtual-android/"><u>In 2024, Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On OnePlus Ace 2 | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-trouble-with-iphone-7-plus-swipe-up-try-these-11-solutions-drfone-by-drfone-ios/"><u>In 2024, Trouble with iPhone 7 Plus Swipe-Up? Try These 11 Solutions | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-vr-innovations-unwrapped-top-peripherals-spotlight/"><u>In 2024, VR Innovations Unwrapped - Top Peripherals Spotlight</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/ios-and-android-downloading-and-personalizing-whatsapp-tones/"><u>IOS & Android  Downloading & Personalizing WhatsApp Tones</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/mastering-movie-aesthetics-through-color-grading-and-luts-for-2024/"><u>Mastering Movie Aesthetics Through Color Grading and Luts for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/navigating-through-vrs-bright-side-and-dark-hole-for-2024/"><u>Navigating Through VR's Bright Side & Dark Hole for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/1723016102043-physical-activity-groups/"><u>Physical Activity Groups</u></a></li>
+<li><a href="https://media-tips.techidaily.com/1723620216796-quick-guide-seamless-mkv-to-divx-transformation-process-unveiled/"><u>Quick Guide: Seamless MKV to DivX Transformation Process Unveiled!</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/ranking-perfect-photo-and-video-shows-on-iphones/"><u>Ranking Perfect Photo & Video Shows on iPhones</u></a></li>
+<li><a href="https://win-dash.techidaily.com/step-by-step-guide-set-up-logitech-hd-webcam-c270-with-compatible-drivers-on-windows-1011-systems/"><u>Step-by-Step Guide: Set Up Logitech HD Webcam C270 with Compatible Drivers on Windows 10/11 Systems</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/stepwise-approach-to-srt-file-creation-brilliance/"><u>Stepwise Approach to SRT File Creation Brilliance</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/updated-in-2024-how-to-slow-down-a-video-on-iphone-and-android-the-easy-way/"><u>Updated In 2024, How to Slow Down a Video on iPhone and Android The Easy Way</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-record-like-a-boss-final-cut-pro-voice-over-hacks/"><u>Updated Record Like a Boss Final Cut Pro Voice Over Hacks</u></a></li>
+</ul></div>

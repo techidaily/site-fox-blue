@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Enhancing Narratives  A Guide to Using B-Roll\""
-date: 2024-07-11T13:23:12.528Z
-updated: 2024-07-12T13:23:12.528Z
+date: 2024-08-27T12:28:24.175Z
+updated: 2024-08-28T12:28:24.175Z
 tags: 
   - screen-recording
   - ai video
@@ -40,22 +40,46 @@ The ideal way to use B roll is to put it behind interviews. This kind of footage
 
 On the other hand, cutaways can show how different people react to what is being said in an interview. After all, transitions are commonly used to switch from one person's experience with a certain topic to another person's experience with the same topic. All of these different kinds of footage give filmmakers and videographers more freedom to tell their stories without relying too much on dialogue or narration.
 
+<!-- affiliate ads begin -->
+<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<!-- affiliate ads end -->
 ## 3\. What types of b roll are there?
 
 We'll examine the top 5 uses for B rolls across a variety of video genres and discuss how to implement them effectively in your own projects.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
 ### 1\. Archival b roll footage
 
 Aerial B roll is the solution when you like to show your viewers where your film is being recorded or when you are changing locations and want them to know it. The plane takes off and lands in another city, and then shots of the city, its landmarks, its famous streets, etc. are shown. You have probably seen this type of B roll footage in movies and TV shows. These images aid in putting the viewer in the character's current location. Check out this collection of setting images from the Neighbors television series.
 
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
+<!-- affiliate ads end -->
 ### 2\. Visual detail b roll footage
 
 Including archival material in your video allows your audience to experience a previously covered or historically significant story as it occurred. Look at this illustration from Netflix's 14 Peaks: Nothing Is Impossible, which was made utilizing old b roll film from the era to help the viewer connect with the narrative.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->
 ### 3\. Storytelling b roll footage
 
 B roll footage can be used to tell a story that supports the narrative of your video. For example, in this video interview of Tom DeLonge, the speaker talks about living in a neighborhood. The B rolls show him driving around in his car, skateboarding on the street in the 90's. These add to the story the video creator wants to talk about not seeing people with a disability differently.
 
+<!-- affiliate ads begin -->
+<span id="1793213">
+					<video width="1080" height="1620" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 4\. Undirected b roll footage
 
 This particular kind of B roll film is captured without any direction being given to your character, as the name suggests. For the purposes of an interview video, for instance, these can be straightforward close-up views of your character's hands and facial expressions. On the other hand, while you're doing a documentary, you might record your subject participating in everyday activities.
@@ -66,6 +90,9 @@ When you are sharing a narrative that has been told in the past or that has hist
 
 Have a look at the scenes from the episode "14 Peaks: Nothing Is Impossible" that can be found on Netflix. As a result of the use of archive film footage of b roll from the relevant time period in its production, the audience is able to connect with the narrative on a deeper level.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### 6\. Pick-up shots
 
 A pick-up is a tiny shot added to previously captured material. Re-shoots involve redoing entire scenes. Both types of shots are commonly added during film editing to fix, logic, continuity, or quality flaws. These photos happen a while after the sets have been taken down, clothes and props stowed, and the actors and crew have gone on to new projects.
@@ -111,3 +138,67 @@ We sincerely hope that this post will be of use to you in making your films more
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-cutting-edge-creativity-filmoras-favorite-features-explored/"><u>[New] 2024 Approved  Cutting Edge Creativity  Filmora's Favorite Features Explored</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-exploring-periscopes-world-free-access-and-user-registration/"><u>[New] 2024 Approved  Exploring Periscope's World  Free Access & User Registration</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-htc-vive-headset-review/"><u>[New] 2024 Approved  HTC Vive Headset Review</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-optimize-viewing-the-finest-html5-video-solutions/"><u>[New] 2024 Approved  Optimize Viewing  The Finest HTML5 Video Solutions</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-cutting-edge-chrome-vocal-transforming-apps-top-5-choices-for-2024/"><u>[New] Cutting-Edge Chrome Vocal Transforming Apps  Top 5 Choices for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-elevating-your-interview-game-skills-and-tactics/"><u>[New] Elevating Your Interview Game  Skills & Tactics</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-from-zip-to-srt-the-conversion-process-unveiled/"><u>[New] In 2024, From ZIP to SRT  The Conversion Process Unveiled</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-how-to-install-and-modify-whatsapp-alerts-on-both-platforms/"><u>[New] In 2024, How to Install & Modify WhatsApp Alerts on Both Platforms</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-master-guide-to-unrestricted-digital-vaults/"><u>[New] Master Guide to Unrestricted Digital Vaults</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-pros-best-top-8-tripods-excelling-at-4k-video-capture/"><u>[New] Pro's Best  Top 8 Tripods Excelling at 4K Video Capture</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-the-ultimate-hunt-cut-to-7-fps-giants/"><u>[New] The Ultimate Hunt  Cut to 7 FPS Giants</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-unlock-your-lost-iphone-xs-potentials-with-these-tricks-for-2024/"><u>[New] Unlock Your Lost iPhone X's Potentials with These Tricks for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-deviantart-pros-sharing-snapchat-stories/"><u>[Updated] 2024 Approved  DeviantArt Pros  Sharing Snapchat Stories</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-pro-video-practice-screen-record-on-various-devices/"><u>[Updated] 2024 Approved  Pro Video Practice  Screen Record on Various Devices</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-step-by-step-from-graphic-geniuses-to-sticker-stars-in-all-chat-apps/"><u>[Updated] 2024 Approved  Step by Step  From Graphic Geniuses to Sticker Stars in All Chat Apps</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-top-5-photo-background-changer-apps-for-iphone-x87/"><u>[Updated] 2024 Approved  Top 5 Photo Background Changer Apps for iPhone X/8/7</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-clarity-champions-top-10-smartphones-with-high-res-4k-cameras/"><u>[Updated] Clarity Champions  Top 10 Smartphones with High-Res 4K Cameras</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-dive-deep-into-dynamic-dialogue-dives/"><u>[Updated] Dive Deep Into Dynamic Dialogue Dives</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-educator-elite-selective-learning-yt-channels-for-2024/"><u>[Updated] Educator Elite  Selective Learning YT Channels for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-elevate-your-artistry-the-finest-android-drawing-apps-reviewed/"><u>[Updated] In 2024, Elevate Your Artistry  The Finest Android Drawing Apps Reviewed</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-essential-tips-for-writing-accurate-slug-lines/"><u>[Updated] In 2024, Essential Tips for Writing Accurate Slug Lines</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-facebook-finders-playbook-for-quick-reconnaissance/"><u>[Updated] In 2024, Facebook Finder’s Playbook for Quick Reconnaissance</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-gopro-vs-garmin-hero5-black-vs-virb-ultra-gadget-showdown/"><u>[Updated] In 2024, GoPro Vs. Garmin  Hero5 Black Vs. VIRB Ultra - Gadget Showdown</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-heartstrings-plucked-essential-vocal-masterpieces-for-a-kiss/"><u>[Updated] In 2024, Heartstrings Plucked  Essential Vocal Masterpieces for a Kiss</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-the-newbies-roadmap-to-understanding-av1/"><u>[Updated] In 2024, The Newbie’s Roadmap to Understanding AV1</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-depth-guide-to-optimizing-photos-using-polarr-for-2024/"><u>[Updated] In-Depth Guide to Optimizing Photos Using Polarr for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-secrets-unveiled-learn-to-hide-oneself-on-video/"><u>[Updated] Secrets Unveiled? Learn to Hide Oneself on Video</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-top-editing-apps-revolutionize-your-photo-backgrounds/"><u>[Updated] Top Editing Apps  Revolutionize Your Photo Backgrounds</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-transform-your-screen-recording-process-using-aiseesoft-tools-for-2024/"><u>[Updated] Transform Your Screen Recording Process Using Aiseesoft Tools for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-unlock-creative-closure-ideas-with-our-template-service/"><u>[Updated] Unlock Creative Closure Ideas with Our Template Service</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-30-innovative-video-themes-and-layouts/"><u>2024 Approved  30 Innovative Video Themes and Layouts</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-crafting-gentle-sound-declines-with-logic-pro/"><u>2024 Approved  Crafting Gentle Sound Declines with Logic Pro</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-hero5-black-mastery-techniques-to-take-photos-and-videos-from-great/"><u>2024 Approved  Hero5 Black Mastery  Techniques to Take Photos & Videos From Great</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-integrating-tailored-thumbnails-in-your-videos/"><u>2024 Approved  Integrating Tailored Thumbnails in Your Videos</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-mastering-mobile-video-record-your-snapchat-stories/"><u>2024 Approved  Mastering Mobile Video  Record Your Snapchat Stories</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-prime-virtual-marketplaces-ringtone-selections/"><u>2024 Approved  Prime Virtual Marketplaces  Ringtone Selections</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-video-enthusiasts-guide-to-the-best-photo-backdrop-swappers/"><u>2024 Approved  Video Enthusiasts' Guide to the Best Photo Backdrop Swappers</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/auditory-excellence-on-demand-the-top-6-mics-for-livestreams/"><u>Auditory Excellence on Demand  The Top 6 Mics for Livestreams</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/dramatize-depth-and-direct-focus-using-leading-lines-in-iphone-photography-for-2024/"><u>Dramatize Depth and Direct Focus Using Leading Lines in iPhone Photography for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/dueling-masters-topping-10-royale-clashes/"><u>Dueling Masters  Topping 10 Royale Clashes</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/from-novice-to-visionary-the-ultimate-reddit-marketing-blueprint/"><u>From Novice to Visionary  The Ultimate Reddit Marketing Blueprint</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-oppo-reno-10-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 4 solution to get rid of pokemon fail to detect location On Oppo Reno 10 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-how-much-money-do-podcasters-spend/"><u>In 2024, How Much Money Do Podcasters Spend?</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-innovative-interface-intensity/"><u>In 2024, Innovative Interface Intensity</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-thriving-in-the-streaming-scene-overcoming-subscriber-limitations/"><u>In 2024, Thriving in the Streaming Scene  Overcoming Subscriber Limitations</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-top-12-prominent-oneplus-12-fingerprint-not-working-solutions-by-drfone-android/"><u>In 2024, Top 12 Prominent OnePlus 12 Fingerprint Not Working Solutions</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-unveil-top-10plus-platforms-for-virtual-worship-spaces/"><u>In 2024, Unveil Top 10+ Platforms for Virtual Worship Spaces</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/in-depth-fix-guide-for-directx-encountering-unresolvable-faults/"><u>In-Depth Fix Guide for DirectX Encountering Unresolvable Faults</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/is-investing-in-a-cheap-mobvoi-ticwatch-e2-wise-a-detailed-review/"><u>Is Investing in a Cheap Mobvoi TicWatch E2 Wise? A Detailed Review</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/optimizing-your-podcasts-the-seo-blueprint/"><u>Optimizing Your Podcasts  The SEO Blueprint</u></a></li>
+<li><a href="https://fake-location.techidaily.com/read-this-guide-to-find-a-reliable-alternative-to-fake-gps-on-nokia-g310-drfone-by-drfone-virtual-android/"><u>Read This Guide to Find a Reliable Alternative to Fake GPS On Nokia G310 | Dr.fone</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/resolve-your-audacity-sound-device-glitch-with-these-5-methods/"><u>Resolve Your Audacity Sound Device Glitch with These 5 Methods</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/1723262402976-secure-a-high-performance-gaming-pc-with-an-rtx-3080-for-only-2091-avail-lenovos-deal-now/"><u>Secure a High-Performance Gaming PC with an RTX 3,080 for Only $2,091 - Avail Lenovo's Deal Now</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/streamlining-your-avatar-on-google-meet-devices-for-2024/"><u>Streamlining Your Avatar on Google Meet Devices for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/the-comprehensive-audfreexpress-assessment-users-for-2024/"><u>The Comprehensive AudFreeXpress Assessment Users for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/the-pulse-finder-your-free-online-music-buddy/"><u>The Pulse Finder – Your Free, Online Music Buddy</u></a></li>
+<li><a href="https://techtrends.techidaily.com/travel-smart-mastering-the-art-of-roku-streaming-on-the-go/"><u>Travel Smart: Mastering the Art of Roku Streaming On-the-Go</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/ultimate-selection-of-iphone-xgif-apps-for-2024/"><u>Ultimate Selection of iPhone XGIF Apps for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/unbeatable-prices-for-top-6-action-cams-under-100/"><u>Unbeatable Prices for Top 6 Action Cams Under $100</u></a></li>
+<li><a href="https://fake-location.techidaily.com/will-ispoofer-update-on-poco-m6-pro-5g-drfone-by-drfone-virtual-android/"><u>Will iSpoofer update On Poco M6 Pro 5G | Dr.fone</u></a></li>
+</ul></div>
