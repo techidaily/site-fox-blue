@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How to Look at Comments on YouTube"
-date: 2024-07-11T13:09:26.668Z
-updated: 2024-07-12T13:09:26.668Z
+date: 2024-08-31T16:55:10.350Z
+updated: 2024-09-01T16:55:10.350Z
 tags: 
   - screen-recording
   - ai video
@@ -44,6 +44,9 @@ If you're wondering whether you really need to monitor your YouTube comments, he
 * YouTube comments present an opportunity for engagement: Responding quickly to negative comments could help you improve your image-not just with an unhappy viewers, but also with other YouTube viewers who see how you respond to conflict.
 * YouTube comments could help you develop new content: YouTube users aren't shy about expressing their opinions. Pay attentions to what they're saying about your content, and how can develop new content that they want to see.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Comment on a YouTube Video
 
 Moderating comments that appear on your video is important (and we'll get to the details of that in a minute) but as a brand, you'll want to pipe up with your own commentary, too.
@@ -56,6 +59,10 @@ Step1 Below the video itself, find the comment section.
 
 ![find the comment section youtube](https://images.wondershare.com/filmora/article-images/2022/11/find-the-comment-section-youtube.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
+The ultimate burning program for all your needs!</a>
+<!-- affiliate ads end -->
 Step2 Type your message in the add a comment field. (if you're writing on your phone you can tap the comment section to expand it.
 
 Step3 Click comment to post.
@@ -78,12 +85,19 @@ Step2 On the YouTube homepage, click on the three horizontal parallel lines in t
 
 ![horizontal parallel lines youtube](https://images.wondershare.com/filmora/article-images/2022/11/horizontal-parallel-lines-youtube.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 Step3 From the drop down menu, select “History”.
 
 Step4 On the right side under the “Manage all history” section, click on “comments”.
 
 ![manage all history comments youtube](https://images.wondershare.com/filmora/article-images/2022/11/manage-all-history-comments-youtube.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
+<!-- affiliate ads end -->
 Step5 To edit your comment, click on the “vertical ellipsis” (three vertical dots) on the far right side of the listed video page.
 
 Step6 Make the necessary edits and choose “Save”.
@@ -96,6 +110,9 @@ For example, you might click on a notification, and YouTube takes you to a parti
 
 Each time YouTube adds the “highlighted comment” or “highlighted reply” tags to a video, they create a unique URL. The version of the comment that you see uses this newly generated URL. Therefore, the only way to make these labels disappear (apart from reading the new comments) is to remove the addition to the URL.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Why Deleting YouTube Comments?
 
 If you consume a lot of YouTube content, you've likely posted hundreds or even thousands of comments on various channels. You might want to:
@@ -114,6 +131,9 @@ Comments history also contains the link to the video where you've left the comme
 
 ![delete unwanted youtube comments](https://images.wondershare.com/filmora/article-images/2022/11/delete-unwanted-youtube-comments.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Conclusion
 
 YouTube allows users to view and edit all the comments they have made on YouTube videos on both desktop and mobile apps. You can also edit or delete the comment if you so wish However you cannot delete any comments you made on YouTube from the Google my Activity page. It can be done from within the YouTube app only.
@@ -151,3 +171,57 @@ One way you can encourage people to leave comments on your videos is to finish t
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-dslr-and-mirrorless-excellence-with-ideal-gimbals/"><u>[New] 2024 Approved  DSLR & Mirrorless Excellence with Ideal Gimbals</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-breakneck-beats-short-track-highlights/"><u>[New] Breakneck Beats  Short Track Highlights</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-best-7-macos-video-player-selections/"><u>[New] In 2024, Best 7 MacOS Video Player Selections</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-chromatic-balance-and-visual-storytelling/"><u>[New] In 2024, Chromatic Balance and Visual Storytelling</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-enchanting-eloquence-exploring-the-top-8-storytelling-haunts/"><u>[New] In 2024, Enchanting Eloquence  Exploring the Top 8 Storytelling Haunts</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-outstanding-20-anime-opening-melodies/"><u>[New] In 2024, Outstanding 20 Anime Opening Melodies</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-is-the-smoothing-effect-in-photoshop-a-game-changer-or-not/"><u>[New] Is the Smoothing Effect in Photoshop a Game Changer or Not?</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-livestream-audiovideo-creators-hub/"><u>[New] LiveStream Audio/Video Creators Hub</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-navigating-social-media-how-to-proficiently-record-live-on-fb/"><u>[New] Navigating Social Media  How to Proficiently Record Live on FB</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-no-experience-no-obstacle-the-ultimate-guide-to-profits-on-reddit/"><u>[New] No Experience? No Obstacle  The Ultimate Guide to Profits on Reddit</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-sj6-mastery-showdown-sjcam-vs-xiaomis-yi-pro-4k-for-2024/"><u>[New] SJ6 Mastery Showdown  SJCam Vs. Xiaomi's Yi Pro 4K for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-the-3d-photography-duel-samsung-vs-lg-edition-for-2024/"><u>[New] The 3D Photography Duel  Samsung VS LG Edition for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-unlocking-the-full-potential-of-zoom-on-chromeos/"><u>[New] Unlocking the Full Potential of Zoom on ChromeOS</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-simplified-blur-methods-for-perfect-iphone-pics-a-quick-guide/"><u>[Updated] 2024 Approved  Simplified Blur Methods for Perfect iPhone Pics - A Quick Guide</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-visual-virtuosity-suite-for-windowsmac-users/"><u>[Updated] 2024 Approved  Visual Virtuosity Suite for Windows/Mac Users</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-best-splashproof-cameras-for-child-filmmakers-in-rainy-days/"><u>[Updated] Best Splashproof Cameras For Child Filmmakers in Rainy Days</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-hasty-steps-ios-photos-and-videos-on-windows-for-2024/"><u>[Updated] Hasty Steps  IOS Photos & Videos on Windows for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-how-to-ensure-periscope-videos-are-secured-post-record/"><u>[Updated] How to Ensure Periscope Videos Are Secured Post-Record</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-enhance-your-smartphone-photos-with-these-free-innovative-tools/"><u>[Updated] In 2024, Enhance Your Smartphone Photos with These Free, Innovative Tools</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-enhancing-engagement-with-impeccable-ppt-recordings/"><u>[Updated] In 2024, Enhancing Engagement with Impeccable PPT Recordings</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-the-role-of-workspace-dynamics-in-employee-output/"><u>[Updated] In 2024, The Role of Workspace Dynamics in Employee Output</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-unveiling-the-future-with-tomtom-bandit-2023/"><u>[Updated] In 2024, Unveiling the Future with TomTom Bandit 2023</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-navigating-image-editing-remove-background-in-picsart-guide/"><u>[Updated] Navigating Image Editing  Remove Background in Picsart Guide</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-navigating-the-world-of-drone-video-manipulation-for-2024/"><u>[Updated] Navigating the World of Drone Video Manipulation for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-perfect-your-soundtracks-essential-edits-for-crafting-podcasts-in-garageband/"><u>[Updated] Perfect Your Soundtracks  Essential Edits for Crafting Podcasts in GarageBand</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-photozoomelite-ultimate-picture-scaler/"><u>[Updated] PhotoZoomElite  Ultimate Picture Scaler</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-unbeatable-freebie-subtitle-services-our-top-picks-for-2024/"><u>[Updated] Unbeatable Freebie Subtitle Services  Our Top Picks for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-cutting-edge-actions-screening-tech-report/"><u>2024 Approved  Cutting-Edge Actions Screening Tech Report</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-diy-video-setups-perfect-self-portraits-for-youtubers/"><u>2024 Approved  DIY Video Setups  Perfect Self-Portraits for YouTubers</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-from-ground-to-sky-the-lifting-elite-drone-list/"><u>2024 Approved  From Ground to Sky  The Lifting Elite Drone List</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-leapfrog-your-sub-count-top-techniques-unveiled/"><u>2024 Approved  Leapfrog Your Sub Count  Top Techniques Unveiled</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/breaking-into-the-digital-realm-the-wirecast-approach-for-youtube-streamers/"><u>Breaking Into the Digital Realm  The WireCast Approach for YouTube Streamers</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/demystifying-3d-manufacturing-economics-expert-tips-on-computing-production-expenses/"><u>Demystifying 3D Manufacturing Economics: Expert Tips on Computing Production Expenses</u></a></li>
+<li><a href="https://blog-min.techidaily.com/easiest-guide-how-to-clone-lava-blaze-2-5g-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Easiest Guide How to Clone Lava Blaze 2 5G Phone? | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/effortless-crossfade-tips-with-audacity-software-for-2024/"><u>Effortless Crossfade Tips with Audacity Software for 2024</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/exploring-google-phone-service-an-in-depth-reception-analysis/"><u>Exploring Google Phone Service - An In-Depth Reception Analysis</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-flash-frame-filmmaking-script/"><u>In 2024, Flash Frame Filmmaking Script</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-leveraging-finalcut-pro-for-high-quality-youtube-production/"><u>In 2024, Leveraging FinalCut Pro for High-Quality YouTube Production</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-unraveling-the-itunes-radio-download-process/"><u>In 2024, Unraveling the iTunes Radio Download Process</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-vegaspro-2019-a-comprehensive-analysis/"><u>In 2024, VegasPro 2019  A Comprehensive Analysis</u></a></li>
+<li><a href="https://techidaily.com/is-your-poco-c55-working-too-slow-heres-how-you-can-hard-reset-it-drfone-by-drfone-reset-android-reset-android/"><u>Is your Poco C55 working too slow? Heres how you can hard reset it | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/leading-uav-models-suited-for-gopro-cameras-for-2024/"><u>Leading UAV Models Suited for GoPro Cameras for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/navigating-the-world-of-filmmaking-best-cameras-for-novices/"><u>Navigating the World of Filmmaking  Best Cameras for Novices</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/novices-guide-to-vectors-insight-into-types-and-software-choices/"><u>Novice's Guide to Vectors  Insight Into Types & Software Choices</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/premium-picks-the-ultimate-gopro-upgrades-for-2024/"><u>Premium Picks  The Ultimate Gopro Upgrades for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/streamlined-techniques-for-sharing-your-desktopmobile-screen-for-2024/"><u>Streamlined Techniques for Sharing Your Desktop/Mobile Screen for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/swift-access-to-youtube-srt-files-three-key-points/"><u>Swift Access to YouTube SRT Files  Three Key Points</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/unlocking-the-potential-of-virtual-collaboration-starting-zoom-calls-on-android/"><u>Unlocking the Potential of Virtual Collaboration  Starting Zoom Calls on Android</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/unveiling-the-mysteries-of-toms-electronic-marvels-and-components/"><u>Unveiling the Mysteries of Tom's Electronic Marvels and Components</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/update-your-system-with-new-intel-hd-graphics-er-4400-driver-software/"><u>Update Your System with New Intel HD Graphics Er 4400 Driver Software</u></a></li>
+</ul></div>
