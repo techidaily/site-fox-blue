@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Augmented Reality Aesthetics  Tapping Into Free LUT Resources for AR\""
-date: 2024-07-11T13:06:19.108Z
-updated: 2024-07-12T13:06:19.108Z
+date: 2024-09-04T20:43:18.767Z
+updated: 2024-09-05T20:43:18.767Z
 tags: 
   - screen-recording
   - ai video
@@ -64,12 +64,30 @@ The patch graph that renders the color gradation effect looks like this:
 
 Here are the best free LUTs resources for Spark AR:
 
+<!-- affiliate ads begin -->
+<span id="1936838">
+					<video width="374" height="48" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 1\. Frost Zombie (Technical Showcase)
 
 Client filter pieces occasionally end up on the scrap heap. It was a poor Frost Zombie in this instance. Since this is one of my simpler filters, I felt it was okay to publish the build information. Four objects make up much of the scene: an EyeColor block, a custom canvas segmentation, a face mesh, and an emitter for the breath mist (my personal favorite). To show the layers used in generating the primary zombie texture, I also moved to Substance Painter. This is a demonstration of my methods rather than a step-by-step manual.
 
 ![frost zombie](https://images.wondershare.com/filmora/article-images/2022/08/how-to-use-luts-in-spark-ar-4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975841/19272" target="_top" id="1975841">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975841" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975841/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 2\. Fur
 
 Here are the key building principles.
@@ -83,30 +101,66 @@ Here are the key building principles.
 
 ![fur](https://images.wondershare.com/filmora/article-images/2022/08/how-to-use-luts-in-spark-ar-5.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/1943647/22993" target="_top" id="1943647">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943647" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 3\. Shockwave
 
 Even while using large image sequences is frequently discouraged, you can still use them to make some extremely spectacular effects! I'll explain how the screen tap computation procedure relates to texture position in this walkthrough. If you want to apply this approach and texture sequence in your projects or give it a try.
 
 ![shockwave](https://images.wondershare.com/filmora/article-images/2022/08/how-to-use-luts-in-spark-ar-6.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885932/19272" target="_top" id="1885932">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885932" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 4\. Transition Curves
 
 There are 11 distinct animation curves included with Spark AR in the Transition patch. Here is a helpful visual aid because it might be challenging to distinguish between a quartic and a quintic when working on a project. With the SDF circle doubled (to sharpen the edge) and inserted into the Patch Pack's alpha channel, the circles are likewise straightforward rectangles. Since RGB values are three times one, the object is white.
 
 ![transition curves](https://images.wondershare.com/filmora/article-images/2022/08/how-to-use-luts-in-spark-ar-7.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1186864/12108" target="_top" id="1186864">
+  <img src="//a.impactradius-go.com/display-ad/12108-1186864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186864/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 5\. Realistic Smoke
 
 By adding smoke to a scene, you can easily add a lot of detail and realism. Nothing revolutionary is happening here. The particle emitter creates flat planes of smoke texture that are forced upward. The force slowly shifts left and right as seen in the patch editor. The Fade particle script (created by Josh Beckwith) enlarges the particles and fades them out at the same time.
 
 ![realistic smoke](https://images.wondershare.com/filmora/article-images/2022/08/how-to-use-luts-in-spark-ar-8.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1977006">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 6\. Rainbow Glitter
 
 Given how beautifully Glitter Rain was received, I believed it would be fitting to broaden the potential with an HDR setting. While Glitter Rain made use of two different colors, this technique makes use of an entirely colorless substance and gets its color information via HDR.
 
 ![rainbow glitter](https://images.wondershare.com/filmora/article-images/2022/08/how-to-use-luts-in-spark-ar-9.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Closing Thoughts
 
 Spark AR is an amazing website for LUTs and color grading. Whether you're a new student or a seasoned pro, Spark AR Studio has all the features and capabilities you need to become a good video editor. You can download free LUTs from Spark AR and apply them to your videos. The article guides on how to use LUTs in Spark AR and how to download free LUTs. So, Spark AR is one of the best online websites for LUTs I have tried.
@@ -142,3 +196,50 @@ Spark AR is an amazing website for LUTs and color grading. Whether you're a new 
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-flipping-photo-lightness-for-an-alternate-look/"><u>[New] 2024 Approved  Flipping Photo Lightness for an Alternate Look</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-incorporating-spiritual-sounds-on-cellphones/"><u>[New] 2024 Approved  Incorporating Spiritual Sounds on Cellphones</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-top-30-acid-pro-replacements-explored/"><u>[New] 2024 Approved  Top 30  ACID Pro Replacements Explored</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-enhance-video-impact-two-tiktok-techniques-for-2024/"><u>[New] Enhance Video Impact  Two TikTok Techniques for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-step-by-step-guide-to-infectious-internet-memes-gifs/"><u>[New] In 2024, Step-by-Step Guide to Infectious Internet Memes (GIFs)</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-navigating-through-premium-hdr-camera-options/"><u>[New] Navigating Through Premium HDR Camera Options</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-premiers-choice-5-best-slow-motion-cams/"><u>[New] Premier's Choice  5 Best Slow-Motion Cams</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-quick-steps-to-find-youtube-comment-feed/"><u>[New] Quick Steps to Find YouTube Comment Feed</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-the-complete-2024-breakdown-of-powerdirectors-features/"><u>[New] The Complete 2024 Breakdown of PowerDirector's Features</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-the-most-popular-stock-photo-meme-and-their-stories-for-2024/"><u>[New] The Most Popular Stock Photo Meme and Their Stories for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-time-capsule-converting-single-photographs-to-video-for-2024/"><u>[New] Time Capsule  Converting Single Photographs to Video for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-top-8-viral-vids-capturing-social-medias-attention/"><u>[New] Top 8 Viral Vids Capturing Social Media's Attention</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-transform-your-photos-canons-cost-effective-color-tools-for-2024/"><u>[New] Transform Your Photos  Canon's Cost-Effective Color Tools for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-ignite-your-artistic-spirit-find-the-premier-android-drawing-tools/"><u>[Updated] 2024 Approved  Ignite Your Artistic Spirit  Find the Premier Android Drawing Tools</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-perfect-your-content-discover-these-top-8-mobile-editors/"><u>[Updated] 2024 Approved  Perfect Your Content  Discover These Top 8 Mobile Editors</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-resolving-disabled-state-of-obs-fullscreen/"><u>[Updated] 2024 Approved  Resolving Disabled State of OBS Fullscreen</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-understanding-and-assessing-cloud-cost-variability/"><u>[Updated] 2024 Approved  Understanding & Assessing Cloud Cost Variability</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-demystifying-premiere-pros-corrections-for-overexposed-iphone-videos/"><u>[Updated] Demystifying Premiere Pro's Corrections for Overexposed iPhone Videos</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-digitally-preserved-the-ultimate-guide-for-saving-twitter-vids/"><u>[Updated] Digitally Preserved  The Ultimate Guide for Saving Twitter Vids</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-effortless-entertainment-free-quality-memes-galore/"><u>[Updated] Effortless Entertainment  FREE, Quality Memes Galore</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-enhancing-media-interaction-with-smart-control-options-for-2024/"><u>[Updated] Enhancing Media Interaction with Smart Control Options for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-go-beyond-boundaries-with-panasonic-hx-a1-wearable-camera-for-2024/"><u>[Updated] Go Beyond Boundaries with Panasonic HX-A1 Wearable Camera for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-artistic-horizons-scouting-the-finest-8-drawing-apps-for-iphones/"><u>[Updated] In 2024, Artistic Horizons  Scouting the Finest 8 Drawing Apps for iPhones</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-enlightening-epics-and-epochs-the-leading-storytelling-institutions-top-8/"><u>[Updated] In 2024, Enlightening Epics and Epochs  The Leading Storytelling Institutions (Top 8)</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-essential-guide-to-best-10-zero-cost-high-quality-tools-srt/"><u>[Updated] In 2024, Essential Guide to Best 10 Zero-Cost, High-Quality Tools (Srt)</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-pioneering-the-future-of-drones-today-and-tomorrow/"><u>[Updated] In 2024, Pioneering the Future of Drones Today & Tomorrow</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-tech-savvy-guide-to-excellent-recording-apps/"><u>[Updated] In 2024, Tech-Savvy Guide to Excellent Recording Apps</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-influencing-your-drones-performance-choosing-right-propellers-for-2024/"><u>[Updated] Influencing Your Drone's Performance  Choosing Right Propellers for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-metaverse-mirth-makers-top-tips-for-crafting-hilarious-virtual-images/"><u>[Updated] Metaverse Mirth Makers  Top Tips for Crafting Hilarious Virtual Images</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-ranking-the-best-8-websites-with-shimmering-3d-and-text-for-2024/"><u>[Updated] Ranking the Best  8 Websites with Shimmering 3D & Text for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-ultimate-guide-to-affordable-video-players-a-comprehensive-list-pc-and-mobile-for-2024/"><u>[Updated] Ultimate Guide to Affordable Video Players  A Comprehensive List (PC & Mobile) for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/beginners-bliss-how-to-set-up-and-manage-a-podcast-live-stream-easily/"><u>Beginner's Bliss  How to Set Up and Manage a Podcast Live Stream Easily</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/boosting-like-counts-tips-for-tiktok-unboxings/"><u>Boosting Like Counts  Tips for TikTok Unboxings</u></a></li>
+<li><a href="https://article-files.techidaily.com/enabling-adaptive-hdr-mode-in-windows-11-os/"><u>Enabling Adaptive HDR Mode in Windows 11 OS</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/fixing-udf-dvds-that-wont-play-a-complete-guide-using-winx-dvd-ripper/"><u>Fixing UDF DVDs That Won't Play - A Complete Guide Using WinX DVD Ripper</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/from-camera-to-channel-a-thoroughly-researched-video-instruction-manual-for-2024/"><u>From Camera to Channel  A Thoroughly Researched Video Instruction Manual for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-explore-the-pinnacle-of-hydro-interactive-games/"><u>In 2024, Explore the Pinnacle of Hydro Interactive Games</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-mastering-lock-screen-settings-how-to-enable-and-disable-on-samsung-galaxy-s24-ultra-by-drfone-android/"><u>In 2024, Mastering Lock Screen Settings How to Enable and Disable on Samsung Galaxy S24 Ultra</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/lenovo-ideapad-assessment-solid-construction-and-simple-functionality/"><u>Lenovo Ideapad Assessment: Solid Construction and Simple Functionality</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/pal-und-region-2-dvds-kostenlos-transkodieren-fur-aktuelle-formate-anleitung-and-tricks/"><u>PAL Und Region-2 DVDs Kostenlos Transkodieren Für Aktuelle Formate - Anleitung & Tricks</u></a></li>
+<li><a href="https://facebook.techidaily.com/remove-spotifys-social-linkage-with-facebook-here/"><u>Remove Spotify's Social Linkage with Facebook Here</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/the-professionals-guide-to-innovative-360-cams-2023/"><u>The Professionals’ Guide to Innovative 360° Cams, 2023</u></a></li>
+<li><a href="https://windows11.techidaily.com/top-4-cost-free-applications-for-monitoring-and-optimizing-your-windows-pcs-storage/"><u>Top 4 Cost-Free Applications for Monitoring and Optimizing Your Windows PC's Storage</u></a></li>
+</ul></div>
