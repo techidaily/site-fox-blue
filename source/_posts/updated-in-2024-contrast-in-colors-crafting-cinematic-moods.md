@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Contrast in Colors  Crafting Cinematic Moods\""
-date: 2024-07-11T12:26:15.488Z
-updated: 2024-07-12T12:26:15.488Z
+date: 2024-09-09T08:17:37.063Z
+updated: 2024-09-10T08:17:37.063Z
 tags: 
   - screen-recording
   - ai video
@@ -16,12 +16,30 @@ keywords: "Cinematic Color Contrasts,Mood Lighting Techniques,Visual Storytellin
 thumbnail: https://thmb.techidaily.com/ddb387910e1ac858898cd3858da4a32a6126aed2333f21b240bf9f3028949436.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123474/16836" target="_top" id="2123474">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123474" border="0" alt="https://techidaily.com" width="300" height="50"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123474/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Contrast in Colors: Crafting Cinematic Moods
 
 Everyone in the video editing world is full of lively and beautiful colors — just like the world we live in every day. But, if you've ever shot any film on a smartphone or a digital camera, you've probably observed the colors you see in real life don't always match up to what you want to see on your screen. In this article, you will grasp how and when to use the color grading process by stylizing the color scheme of your footage and its importance in your everyday film and video projects.
 
 ![color grading panel filmora](https://images.wondershare.com/filmora/article-images/2022/08/color-grading-panel-filmora.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1977028">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## What is Color Grading?
 
 Color grading is the video editing process wherein grading (arranging) colors in a video or film to give them a stylistic look. It is different from Color correction because color correction is the process of correcting (fixing) colors in a video or a film as a way to get them back to what they should look like for your project or output.
@@ -30,6 +48,12 @@ In cinematography, color grading refers to the manipulation of film and video im
 
 ![origianl video color grading](https://images.wondershare.com/filmora/article-images/2022/08/origianl-video-color-grading.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Color grading and color correction are processes that happen throughout postproduction. One makes the film look more native, and the other stylizes the footage. After the colorist finishes color correction, they can begin grading the film. During color grading, colorists use editing software to formalize the footage, highlighting a movie's visual tone and ambiance and making it look more cinematic.
 
 ![apply color grading to video](https://images.wondershare.com/filmora/article-images/2022/08/apply-color-grading-to-video.jpg)
@@ -64,16 +88,40 @@ Then select the New Project to create a new project file and click Import to fin
 
 ![put video to filmora cd](https://images.wondershare.com/filmora/article-images/2022/08/put-video-to-filmora-cd.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##### Step2There are 2 ways to color your video in Wondershare Filmora
 
 Advanced Color Tools icon – click the Advanced Color Tools icon in the toolbar to enter the advanced color tools window, where you can apply the preset templates or adjust the color coarsely. It is suggested to start with Presets for beginners, which will save you much time.
 
 ![advanced color tools filmora](https://images.wondershare.com/filmora/article-images/2022/08/advanced-color-tools-filmora.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Color Panel Window - to perform color correction in Wondershare Filmora, switch to the Color tab. You can modify the white balance, saturation, tint, contrast, temperature, and brightness and apply 3D LUT immediately and quickly in this editing panel. You see the output in the Preview window.
 
 ![edit color grading video fx](https://images.wondershare.com/filmora/article-images/2022/08/edit-color-grading-video-fx.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983539">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Contrast**: is the variance in luminance or color that makes an object identifiable. By modifying this setting, control the dissimilarity in color and brightness in contrary parts of the video image.
 
 **Saturation:** This setting constitutes the amount of gray in proportion to the hue. You can adjust it to make the entire video image's colors look soaked or unnoticeable.
@@ -92,6 +140,12 @@ Here, there are two options to select: The Color correction. It offers different
 
 ![open color correction filmora](https://images.wondershare.com/filmora/article-images/2022/08/open-color-correction-filmora.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##### Step2Select the specific video portion
 
 #####
@@ -104,6 +158,12 @@ First, you need to select the specific video portion you want to change the colo
 
 ![selected end portion video filmora](https://images.wondershare.com/filmora/article-images/2022/08/selected-end-portion-video-filmora.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##### Step3Apply the color correction preset that you want then click ok
 
 ![apply color correction preset](https://images.wondershare.com/filmora/article-images/2022/08/apply-color-correction-preset.jpg)
@@ -201,3 +261,43 @@ Overall, Color grading is the process of video editing to have an excellent look
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-cutting-edge-strategies-for-enhanced-chromebook-zoom/"><u>[New] Cutting-Edge Strategies for Enhanced Chromebook Zoom</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-go-beyond-screens-how-to-watch-360-videos-and-vr-via-android/"><u>[New] Go Beyond Screens How to Watch 360 Videos & VR via Android</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-hdr-horizon-highlights-selective-online-skies-compilation/"><u>[New] HDR Horizon Highlights Selective Online Skies Compilation</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-from-high-speed-to-serenity-making-captivating-slow-movies-on-instagram/"><u>[New] In 2024, From High-Speed to Serenity Making Captivating Slow Movies on Instagram</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-taming-soundtracks-audio-capture-in-windows-10/"><u>[New] In 2024, Taming Soundtracks Audio Capture in Windows 10</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-unveiling-image-quality-a-newbies-comprehensible-guide/"><u>[New] In 2024, Unveiling Image Quality A Newbie's Comprehensible Guide</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-leading-suggestions-best-iphone-audio-innovators/"><u>[New] Leading Suggestions Best iPhone Audio Innovators</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-prioritizing-elements-what-to-consider-with-a-new-4k-camera-lens/"><u>[New] Prioritizing Elements What to Consider with a New 4K Camera Lens</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-sjcam-sj6-legend-action-camera-complete-review/"><u>[New] SJCam SJ6 Legend Action Camera Complete Review</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-backtrack-with-your-iphone-films/"><u>[Updated] 2024 Approved Backtrack with Your iPhone Films</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-capture-heights-with-dji-spark-the-small-drone-selfie-powerhouse/"><u>[Updated] 2024 Approved Capture Heights with DJI Spark The Small Drone Selfie Powerhouse</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-dji-drone-family-fundamentals-advanced-models-cinematic-edition/"><u>[Updated] 2024 Approved DJI Drone Family Fundamentals, Advanced Models, Cinematic Edition</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-mastering-image-merging-techniques/"><u>[Updated] 2024 Approved Mastering Image Merging Techniques</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-top-10-overlooked-yet-best-free-speech-transcribers-for-mac/"><u>[Updated] 2024 Approved Top 10 Overlooked, Yet Best Free Speech Transcribers for Mac</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-become-a-gif-artist-basic-steps-for-2024/"><u>[Updated] Become a GIF Artist Basic Steps for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-conquerors-of-the-past-the-prime-7-battle-simulations/"><u>[Updated] Conquerors of the Past The Prime 7 Battle Simulations</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-enhancing-visual-content-consumption-via-edges-pip/"><u>[Updated] In 2024, Enhancing Visual Content Consumption via Edge’s PIP</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-shining-spots-on-screen-top-video-lights-strategies/"><u>[Updated] Shining Spots on Screen Top Video Lights Strategies</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-splendid-review-and-different-selections/"><u>[Updated] Splendid Review & Different Selections</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-top-4k-video-gear-the-definitive-lens-selection/"><u>[Updated] Top 4K Video Gear The Definitive Lens Selection</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-transformative-power-of-vlc-from-mp4-to-a-multitude-of-formats/"><u>[Updated] Transformative Power of VLC From MP4 to a Multitude of Formats</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/achieving-teleportation-magic-illusions-for-2024/"><u>Achieving Teleportation Magic Illusions for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/compare-metaverse-vs-omniverse-an-ultimate-guide-for-2024/"><u>Compare Metaverse Vs. Omniverse An Ultimate Guide for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/download-hp-laserjet-pro-m428fdw-printer-drivers-compatible-with-windows-10-11-and-7/"><u>Download HP LaserJet Pro M428fdw Printer Drivers: Compatible with Windows 10, 11 & 7</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/elevate-your-storytelling-10-prime-text-tricks-in-cinematography/"><u>Elevate Your Storytelling 10 Prime Text Tricks in Cinematography</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/enhancing-meetings-screen-capture-with-webcam/"><u>Enhancing Meetings Screen Capture with Webcam</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/examining-vivocuts-impact-on-the-video-editor-writes-of-2024/"><u>Examining VivoCut's Impact on the Video Editor' Writes of 2024</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/guide-steps-for-securely-encrypting-and-decrypting-your-macs-hard-drive/"><u>Guide: Steps for Securely Encrypting & Decrypting Your Mac's Hard Drive</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/igtv-to-facebook-distribution-masterclass-approach-for-2024/"><u>IGTV to Facebook Distribution Masterclass Approach for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-pixel-perfect-converter-max-resolution/"><u>In 2024, Pixel Perfect Converter Max Resolution</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-the-ultimate-srt-file-craftsmanship-manual/"><u>In 2024, The Ultimate SRT File Craftsmanship Manual</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/inside-polarr-the-powerhouse-photo-toolkit-for-2024/"><u>Inside Polarr The Powerhouse Photo Toolkit for 2024</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/realme-c55-screen-unresponsive-heres-how-to-fix-it-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Realme C55 Screen Unresponsive? Heres How to Fix It | Dr.fone</u></a></li>
+<li><a href="https://network-issues.techidaily.com/rectifying-switchable-graphics-issue-with-intel-and-nvidia-win10/"><u>Rectifying Switchable Graphics Issue with Intel & NVIDIA Win10</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/restoring-mouse-pointer-visibility-issues-on-windows-11-expert-fixes/"><u>Restoring Mouse Pointer Visibility Issues on Windows 11: Expert Fixes</u></a></li>
+<li><a href="https://ai-video-translation.techidaily.com/updated-in-2024-the-best-ai-translator-to-translate-videos-online/"><u>Updated In 2024, The Best AI Translator to Translate Videos Online</u></a></li>
+</ul></div>
