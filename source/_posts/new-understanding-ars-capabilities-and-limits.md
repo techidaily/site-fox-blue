@@ -1,7 +1,7 @@
 ---
 title: "[New] Understanding AR's Capabilities and Limits"
-date: 2024-09-09T08:36:45.764Z
-updated: 2024-09-10T08:36:45.764Z
+date: 2024-09-09T17:17:31.544Z
+updated: 2024-09-15T17:31:54.602Z
 tags: 
   - screen-recording
   - ai video
@@ -16,40 +16,16 @@ keywords: "AR Basics Overview,AR Limitations Insight,Exploring AR Tech,AR Potent
 thumbnail: https://thmb.techidaily.com/8710795f69b6885ee183c5bcebd20dd5644a88070a4884d479fae689522aa348.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Understanding AR's Capabilities and Limits
 
 # What is Augmented Reality?
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1492813">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Benjamin Arango
 
  Mar 27, 2024• Proven solutions
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Definition of AR
 
  Augmented Reality (AR) is the application of technology to superimpose information on digitally rendered images into real world environments to give a sense of virtual reality or create an illusion. For example, images and sounds are superimposed over what users see and hear.
@@ -58,24 +34,12 @@ thumbnail: https://thmb.techidaily.com/8710795f69b6885ee183c5bcebd20dd5644a88070
 
  The presentation of augmented reality is in some form of futuristic technology, despite the fact that it has been around for many years. For example, the heads-up display in many fighter jets utilizes the principles of augmented reality, and these date back to the early 1990s when they were used to show information about altitude, speed and direction of the aircraft.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134242/18498" target="_top" id="2134242">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134242" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134242/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How does Augmented Reality work
 
  The kind of augmented reality you are likely to experience these days utilizes a range of sensors such as cameras and computer components as well as display devices in creating the illusion of virtual objects in the real world. Some of the smartphones in the market today have all the necessary components needed in the creation of augmented reality hence they are commonly used for most of AR experiences. The basic working of augmented reality is as follows-:
 
  In general, the device will search for a particular object, which can be anything, but in most cases, they are usually 2D images like in the form of a movie poster. The augmented reality application will recognize the target through the camera and it will then process the image and augment it in some form through the utilization of sound and pictures. For example, if the target object was a movie poster, you may see it spring into life to play a trailer of the movie. So long as you continue viewing the poster through the “window” of the display object, you will see augmented reality rather than the plain old normal poster in normal reality.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## The future of Augmented Reality
 
  The future of augmented reality has never been brighter as it is at the moment. Though mobile devices are the primary avenues for VR at the moment, this is not expected to remain the case since a lot of developments, enhancements and innovations are currently taking place in the industry. For instance, work is currently on in the development of augmented reality ear buds which will allow users to adjust sounds coming from the environment.
@@ -83,6 +47,19 @@ thumbnail: https://thmb.techidaily.com/8710795f69b6885ee183c5bcebd20dd5644a88070
  There is also ongoing research on AR for contact lenses and other wearable devices. The chief aim of augmented reality is to avail natural and convenient immersions and this practically means that the current mobile devices used for AR will be replaced, though it is still not known what exactly will replace them.
 
  Like with every new technology, augmented reality comes with a plethora or ethical and political issues. For example, the Google Glass came along with a lot of privacy concerns, with some people worried that pictures may be snapped or conversations may be recorded surreptitiously. But amidst all these concerns, AR technology is expected to gather more steam in the near future and it will be a part of life for the majority.
+
+<!-- affiliate ads begin -->
+<span id="1495277">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Applications of Augmented Reality
 
@@ -119,11 +96,12 @@ thumbnail: https://thmb.techidaily.com/8710795f69b6885ee183c5bcebd20dd5644a88070
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137228/26400" target="_top" id="2137228">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137228/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Benjamin Arango
 
 Benjamin Arango is a writer and a lover of all things video.
@@ -149,33 +127,18 @@ Follow @Benjamin Arango
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-dynamic-title-creation-the-game-changer/"><u>[New] 2024 Approved Dynamic Title Creation The Game Changer</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-essential-8-tools-for-quick-subs-to-srt-on-windows-osx-and-more/"><u>[New] 2024 Approved Essential 8 Tools for Quick Subs to SRT on Windows, OSX and More</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-expert-guide-to-android-time-lapse-video-magic/"><u>[New] 2024 Approved Expert Guide to Android Time-Lapse Video Magic</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/-symphony-of-streams-harmonizing-your-multiple-youtube-views/"><u>[New] A Symphony of Streams Harmonizing Your Multiple YouTube Views</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-capturing-panoramic-views-fisheye-techniques-for-2024/"><u>[New] Capturing Panoramic Views Fisheye Techniques for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-mastering-money-making-the-ultimate-13-beginners-guide-to-reddit/"><u>[New] In 2024, Mastering Money-Making The Ultimate 13 Beginner's Guide to Reddit</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-predicting-film-production-costs-music-video/"><u>[New] In 2024, Predicting Film Production Costs Music Video</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-navigating-tiktok-lives-your-step-by-step-guide/"><u>[New] Navigating TikTok Lives Your Step-by-Step Guide</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-arctic-athleticism-revealed-the-top-of-the-line-in-olympic-snowboard-cross/"><u>[Updated] 2024 Approved Arctic Athleticism Revealed The Top of the Line in Olympic Snowboard Cross</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-instatrends-update-staying-ahead-with-fresh-reel-ideas/"><u>[Updated] 2024 Approved InstaTrends Update Staying Ahead with Fresh Reel Ideas</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-boost-engagement-in-stories-tips-for-adding-smoothly-animated-text-for-2024/"><u>[Updated] Boost Engagement in Stories Tips for Adding Smoothly Animated Text for 2024</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-frequency-capture-digital-sound-files/"><u>[Updated] Frequency Capture Digital Sound Files</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-innovating-conference-calls-with-google-meet-backdrop-shuffling/"><u>[Updated] In 2024, Innovating Conference Calls with Google Meet Backdrop Shuffling</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-prime-list-of-affordable-high-definition-cameras/"><u>[Updated] In 2024, Prime List of Affordable High Definition Cameras</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-uncovering-8-superior-online-srt-translation-tools/"><u>[Updated] In 2024, Uncovering 8 Superior Online SRT Translation Tools</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-unlock-your-creative-potential-with-audio-edits-in-canva-videos/"><u>[Updated] In 2024, Unlock Your Creative Potential with Audio Edits in Canva Videos</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-your-easy-routine-for-viewing-well-regarded-and-favorited-comments/"><u>[Updated] In 2024, Your Easy Routine for Viewing Well-Regarded and Favorited Comments</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-the-compact-powerhouse-in-flight-dji-sparks-guide-to-aerial-selfies/"><u>[Updated] The Compact Powerhouse in Flight DJI Spark's Guide to Aerial Selfies</u></a></li>
-<li><a href="https://some-tips.techidaily.com/2024-approved-understanding-color-spaces-srgb-vs-rgb/"><u>2024 Approved Understanding Color Spaces Srgb vs Rgb</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-unveiling-costless-creativity-a-deep-dive-into-best-luts/"><u>2024 Approved Unveiling Costless Creativity A Deep Dive Into Best LUTs</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-vegas-pro-2021-a-detailed-gaming-world-survey/"><u>2024 Approved Vegas Pro 2021 A Detailed Gaming World Survey</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/essential-windows-10-secrets-and-shortcuts/"><u>Essential Windows 10 Secrets & Shortcuts</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/excellence-in-resolution-macs-favorite-4k-screens/"><u>Excellence in Resolution Mac's Favorite 4K Screens</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-experience-advanced-note-organization-on-mematic/"><u>In 2024, Experience Advanced Note Organization on Mematic</u></a></li>
-<li><a href="https://fake-location.techidaily.com/life360-learn-how-everything-works-on-vivo-s18-drfone-by-drfone-virtual-android/"><u>Life360 Learn How Everything Works On Vivo S18 | Dr.fone</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/new-the-ultimate-list-of-16-free-film-making-tools-for-2024/"><u>New The Ultimate List of 16 Free Film Making Tools for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/spotlight-on-windows-11-innovations-for-2024/"><u>Spotlight on Windows 11 Innovations for 2024</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/top-5-trusted-email-protection-solutions/"><u>Top 5 Trusted Email Protection Solutions</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/transformative-tech-upgrading-phones-for-a-vr-experience-for-2024/"><u>Transformative Tech Upgrading Phones for a VR Experience for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-step-by-step-how-to-conduct-real-time-calls-via-whatsapp-on-pc/"><u>[New] 2024 Approved Step by Step How to Conduct Real-Time Calls via WhatsApp on PC</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-depth-examination-of-videoshow-24/"><u>[New] In-Depth Examination of VideoShow '24</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-expert-advice-on-editing-away-backgrounds/"><u>[Updated] Expert Advice on Editing Away Backgrounds</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-secrets-of-the-pocket-acquiring-no-pay-images/"><u>[Updated] Secrets of the Pocket Acquiring No-Pay Images</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-simplifying-large-screen-viewing-for-youtubers-for-2024/"><u>[Updated] Simplifying Large-Screen Viewing for YouTubers for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/creating-characters-in-the-metaverse-an-easy-methodology-for-2024/"><u>Creating Characters in the Metaverse An Easy Methodology for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/gtx-1650-super-graphics-card-driver-download-compatible-with-windows-10-and-11/"><u>GTX 1650 Super Graphics Card Driver Download: Compatible with Windows 10 and 11</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/in-2024-preparing-for-departure-leaving-your-discord-circle/"><u>In 2024, Preparing for Departure Leaving Your Discord Circle</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/journeying-beyond-boundaries-jaunt-vr-analysis/"><u>Journeying Beyond Boundaries Jaunt VR Analysis</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/minisforums-new-entry-in-slim-design-maximizes-power-with-amd-ryzen-9-processor-and-advanced-gpu-tech/"><u>Minisforum's New Entry in Slim Design Maximizes Power with AMD Ryzen 9 Processor and Advanced GPU Tech</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/resolved-steps-to-repair-connection-issues-in-microsoft-outlook/"><u>Resolved: Steps to Repair Connection Issues in Microsoft Outlook</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/step-by-careful-diagnosis-for-repairing-your-surfaces-wi-fi-connection-problems/"><u>Step-by-Careful Diagnosis for Repairing Your Surface's Wi-Fi Connection Problems</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/unlocking-apple-iphone-6-passcode-without-a-computer-by-drfone-ios/"><u>Unlocking Apple iPhone 6 Passcode without a Computer</u></a></li>
 </ul></div>
+
