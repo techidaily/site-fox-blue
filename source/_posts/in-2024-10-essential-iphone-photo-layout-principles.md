@@ -1,7 +1,7 @@
 ---
 title: "In 2024, 10 Essential iPhone Photo Layout Principles"
-date: 2024-07-11T12:17:16.739Z
-updated: 2024-07-12T12:17:16.739Z
+date: 2024-09-13T19:28:17.530Z
+updated: 2024-09-20T16:48:06.465Z
 tags: 
   - screen-recording
   - ai video
@@ -46,11 +46,25 @@ thumbnail: https://thmb.techidaily.com/1fd97819f96aea4d97e8ac4ff57edab197b6c14d9
 
 ![symmetrical](https://images.wondershare.com/filmora/article-images/Symmetrical.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144276/7443" target="_top" id="2144276">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144276" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144276/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Framing
 
  When we see a framed photograph, the frame brings out the beauty of the photograph. There are natural and man-made frames lying around. You just need to find that while clicking a picture. Framing the subject with such frames amplifies focus towards it, by isolating it from the world around. You can capture your subject through a hole, an arch, and different shapes and structures that you can visualize at that time.
 
 ![framing](https://images.wondershare.com/filmora/article-images/framing.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Diagonals
 
@@ -70,6 +84,13 @@ thumbnail: https://thmb.techidaily.com/1fd97819f96aea4d97e8ac4ff57edab197b6c14d9
 
 ![space](https://images.wondershare.com/filmora/article-images/Space.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997643/19272" target="_top" id="1997643">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997643" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997643/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## The Direction of Subject
 
  Like all the photography composition rules, it is important to take note of the direction of the subject in a photograph. This is known as the ‘Rule of Space’ and it leads the viewer towards the subject’s direction of motion. For example, if there is a person walking on the road, then there should be space ahead of him. If there is a person sitting in a bench or rock, he should be clicked facing into the frame, and there should be space in front of him. It will help the viewer’s eyes to go along with the direction he is facing and take notice of the other subjects such as, other people walking in front him, or any pet moving around etc.
@@ -81,6 +102,13 @@ thumbnail: https://thmb.techidaily.com/1fd97819f96aea4d97e8ac4ff57edab197b6c14d9
  Making your subject stand out against the entire frame in a photograph creates more impact. You can easily obtain this goal with your iPhone by covering the entire frame with your subject. According to this amazing photography composition technique, all you have to do is move your iPhone closer to the subject and nullify the appearance of the surroundings to take a close shot. Like this, you are able to capture the intricate detailing of a leaf with its vivid colors and texture, the detailing and motif on a wall art and much more.
 
 ![fill the screen](https://images.wondershare.com/filmora/article-images/fill-the-screen.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Break the Rules
 
@@ -95,6 +123,13 @@ thumbnail: https://thmb.techidaily.com/1fd97819f96aea4d97e8ac4ff57edab197b6c14d9
  Images come from the Internet
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918684/19272" target="_top" id="1918684">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918684" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918684/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -119,6 +154,20 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-optimal-gear-for-frame-by-frame-photography/"><u>[New] 2024 Approved Optimal Gear for Frame-by-Frame Photography</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-the-real-value-of-selfie-verifications-in-2024/"><u>[New] The Real Value of Selfie Verifications, In 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-20plus-amazing-youtube-shortcuts-you-should-know/"><u>[Updated] 20+ Amazing YouTube Shortcuts You Should Know</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-summit-elite-25-testing-analysis/"><u>[Updated] 2024 Approved Summit Elite 25 Testing Analysis</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-cost-efficient-game-capture-learn-to-livestran-a-match/"><u>[Updated] Cost-Efficient Game Capture Learn to Livestran a Match</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/updated-harness-the-power-of-twitch-livestream-tips-and-tricks/"><u>[Updated] Harness the Power of Twitch Livestream Tips & Tricks</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-elite-unmanned-aerial-vehicles-up-for-grabs/"><u>[Updated] In 2024, Elite Unmanned Aerial Vehicles Up for Grabs</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-structuring-a-significant-tiktok-close-up/"><u>2024 Approved Structuring a Significant TikTok Close-Up</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/banish-errors-restore-mspm-on-vista/"><u>Banish Errors: Restore MSPM on Vista</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-change-realme-v30t-lock-screen-clock-in-seconds-by-drfone-android/"><u>How To Change Realme V30T Lock Screen Clock in Seconds</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-understanding-the-advanced-features-in-djis-quadcopter-3/"><u>In 2024, Understanding the Advanced Features in DJI's Quadcopter 3</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/starting-point-auditions-approach-to-soft-volume-increase-for-2024/"><u>Starting Point Audition's Approach to Soft Volume Increase for 2024</u></a></li>
+<li><a href="https://driver-download.techidaily.com/successfully-downloading-and-updating-broadcom-netlink-gigabit-ethernet-drivers-for-windows-11-solution-guide/"><u>Successfully Downloading and Updating Broadcom NETLINK Gigabit Ethernet Drivers for Windows 11 - Solution Guide</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Expanding Storytelling with Alternative Cinematography"
-date: 2024-09-12T17:18:04.020Z
-updated: 2024-09-15T17:46:45.276Z
+date: 2024-09-16T18:35:53.283Z
+updated: 2024-09-20T20:19:56.949Z
 tags: 
   - screen-recording
   - ai video
@@ -54,10 +54,10 @@ We'll examine the top 5 uses for B rolls across a variety of video genres and di
 Aerial B roll is the solution when you like to show your viewers where your film is being recorded or when you are changing locations and want them to know it. The plane takes off and lands in another city, and then shots of the city, its landmarks, its famous streets, etc. are shown. You have probably seen this type of B roll footage in movies and TV shows. These images aid in putting the viewer in the character's current location. Check out this collection of setting images from the Neighbors television series.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115930/19272" target="_top" id="2115930">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115930" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115930/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2\. Visual detail b roll footage
@@ -68,9 +68,23 @@ Including archival material in your video allows your audience to experience a p
 
 B roll footage can be used to tell a story that supports the narrative of your video. For example, in this video interview of Tom DeLonge, the speaker talks about living in a neighborhood. The B rolls show him driving around in his car, skateboarding on the street in the 90's. These add to the story the video creator wants to talk about not seeing people with a disability differently.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 4\. Undirected b roll footage
 
 This particular kind of B roll film is captured without any direction being given to your character, as the name suggests. For the purposes of an interview video, for instance, these can be straightforward close-up views of your character's hands and facial expressions. On the other hand, while you're doing a documentary, you might record your subject participating in everyday activities.
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148634/16836" target="_top" id="2148634">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148634" border="0" alt="https://techidaily.com" width="80" height="31"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148634/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 5\. Atmospheric b roll footage
 
@@ -78,25 +92,11 @@ When you are sharing a narrative that has been told in the past or that has hist
 
 Have a look at the scenes from the episode "14 Peaks: Nothing Is Impossible" that can be found on Netflix. As a result of the use of archive film footage of b roll from the relevant time period in its production, the audience is able to connect with the narrative on a deeper level.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 6\. Pick-up shots
 
 A pick-up is a tiny shot added to previously captured material. Re-shoots involve redoing entire scenes. Both types of shots are commonly added during film editing to fix, logic, continuity, or quality flaws. These photos happen a while after the sets have been taken down, clothes and props stowed, and the actors and crew have gone on to new projects.
 
 If flaws were discovered during primary photography, the directors could have requested another take. The producer and director should weigh the cost of rejoining cast and crew against the need for pick-ups or re-shoots to address storyline flaws (or worse) in the final edit.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 7\. A roll vs b roll
 
@@ -136,17 +136,16 @@ We sincerely hope that this post will be of use to you in making your films more
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-transforming-the-modern-workspace-into-a-powerhouse-of-productivity-for-2024/"><u>[New] Transforming the Modern Workspace Into a Powerhouse of Productivity for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-break-free-from-periscope-unique-mobile-video-apps-for-smartphones/"><u>[Updated] Break Free From Periscope Unique Mobile Video Apps for Smartphones</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-get-started-in-editing-videos-via-windows-11s-movie-maker/"><u>[Updated] Get Started in Editing Videos via Windows 11'S Movie Maker</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-how-to-trim-and-cut-vimeo-videos-online-5-ways-for-2024/"><u>[Updated] How to Trim and Cut Vimeo Videos Online [5 Ways] for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-optimize-your-watch-activate-av1-on-youtube-platform/"><u>[Updated] Optimize Your Watch Activate AV1 on YouTube Platform</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-sharpen-your-videography-skills-converting-standard-definition-to-hdr-excellence-for-2024/"><u>[Updated] Sharpen Your Videography Skills Converting Standard Definition to HDR Excellence for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-unlockingluxurycameratech-post-mycam-for-2024/"><u>[Updated] UnlockingLuxuryCameraTech Post-MyCam for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-streamlining-visual-content-applying-texts-to-photos-in-windows-10/"><u>In 2024, Streamlining Visual Content Applying Texts to Photos in Windows 10</u></a></li>
-<li><a href="https://win11.techidaily.com/innovative-solutions-workarounds-when-renaming-folders-is-impossible-on-win-11/"><u>Innovative Solutions: Workarounds When Renaming Folders Is Impossible on Win 11</u></a></li>
-<li><a href="https://win-blog.techidaily.com/quick-solutions-overcome-fortnite-sign-in-failures-now/"><u>Quick Solutions: Overcome Fortnite Sign-In Failures Now</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/unveiling-picshots-role-in-easy-collage-crafting/"><u>Unveiling Picshot's Role in Easy Collage Crafting</u></a></li>
-<li><a href="https://sound-tweaking.techidaily.com/updated-2024-approved-the-complete-guide-to-transforming-aiff-files-into-mp3-format/"><u>Updated 2024 Approved The Complete Guide to Transforming AIFF Files Into MP3 Format</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-av1-triumph-surpassing-vp9-performance-for-2024/"><u>[New] AV1 Triumph Surpassing VP9 Performance for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-jumpstart-to-partner-elevation-secure-10k-views-in-minutes/"><u>[New] In 2024, Jumpstart to Partner Elevation Secure 10K Views in Minutes!</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-acquiring-vivid-clipart-without-investment-for-2024/"><u>[Updated] Acquiring Vivid Clipart Without Investment for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-how-to-download-whatsapp-ringtone-and-customize-it-on-ios-and-android-for-2024/"><u>[Updated] How To Download WhatsApp Ringtone And Customize It On iOS And Android for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-the-ultimate-collection-of-top-asmr-microphones/"><u>[Updated] In 2024, The Ultimate Collection of Top ASMR Microphones</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-mastering-instaclips-crafting-effective-video-promotions-for-2024/"><u>[Updated] Mastering InstaClips Crafting Effective Video Promotions for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/android-and-pc-users-choice-top-10-video-editing-software/"><u>Android & PC Users' Choice Top 10 Video Editing Software</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-premium-picks-a-list-of-must-play-google-cardboard-vr-games/"><u>In 2024, Premium Picks A List of Must-Play Google Cardboard VR Games</u></a></li>
+<li><a href="https://discover-awesome.techidaily.com/manual-de-uso-eficiente-para-windows-y-dvd-como-mejorar-su-experiencia-con-winxdvd/"><u>Manual De Uso Eficiente Para Windows Y DVD: Cómo Mejorar Su Experiencia Con WinXDVD</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/personalized-fitness-plans-powered-by-chatgpt-a-trainers-guide/"><u>Personalized Fitness Plans Powered by ChatGPT: A Trainer's Guide</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/updated-free-10-best-face-swap-apps-for-iphone-and-android-devices/"><u>Updated FREE 10 Best Face Swap Apps for iPhone and Android Devices</u></a></li>
 </ul></div>
 

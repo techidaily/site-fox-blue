@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Streamlining Video Editing in OBS With LUTs\""
-date: 2024-09-14T17:18:01.315Z
-updated: 2024-09-15T16:37:54.149Z
+date: 2024-09-17T19:34:03.897Z
+updated: 2024-09-20T19:33:01.683Z
 tags: 
   - screen-recording
   - ai video
@@ -89,6 +89,19 @@ How to use LUTs in Lumafuison
 
 ![how to use obs Lut](https://images.wondershare.com/filmora/article-images/2022/05/obs-luts-2.png)
 
+<!-- affiliate ads begin -->
+<span id="1834906">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Add Luts to OBS
 
 1. Select the LUT you wish to add to your webcam using the browse button.
@@ -107,13 +120,6 @@ Gaming Careers has created a LUT package that includes 30 free webcam filters th
 
 Gaming careers
 
-<!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2114263/17093" target="_top" id="2114263">
-  <img src="//a.impactradius-go.com/display-ad/17093-2114263" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114263/17093" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. [OBS forums free LUTs](https://obsproject.com/forum/resources/free-lut-filter-pack.594/)
 
 This package contains 76 ready-to-use LUT filter files for OBS. Use these filters to create a film-like effect for your webcam stream or video clip. Blender's film color processing was used to generate the filters. Using Blender's picture compositor, the webcam presets were made by hand. These files can be used with OBS's LUT video filter.
@@ -131,10 +137,10 @@ You'll get 18 cinematic LUTs with this Video Mark package. This filter set focus
 Video Mark
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 4\. [Rocket stock free LUTs](https://www.rocketstock.com/free-after-effects-templates/35-free-luts-for-color-grading-videos/)
@@ -142,13 +148,6 @@ Video Mark
 For your next video production, you can get 35 FREE LUTs. Add one of these retro or cinematic effects to your footage or adjust them to suit your needs. The 35 Free LUTs from RocketStock are 3D.CUBE files may be used in a variety of NLEs and color grading tools.
 
 ![free obs luts - Rocket stock ](https://images.wondershare.com/filmora/article-images/2022/05/obs-luts-6.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129738/7443" target="_top" id="2129738">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129738" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129738/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Rocket stock
 
@@ -176,6 +175,13 @@ As a result, adding professionalism to your talents is now even easier and more 
 
 ![filmora 3d lut](https://images.wondershare.com/filmora/features/3d-lut-banner.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to use LUTs in OBS Studio
 
 To create your LUT, follow the instructions below.
@@ -187,10 +193,10 @@ To create your LUT, follow the instructions below.
 ![obs Lut](https://images.wondershare.com/filmora/article-images/2022/05/obs-luts-1.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 How to use LUTs in Lumafuison
@@ -240,10 +246,10 @@ For your next video production, you can get 35 FREE LUTs. Add one of these retro
 ![free obs luts - Rocket stock ](https://images.wondershare.com/filmora/article-images/2022/05/obs-luts-6.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135359/19272" target="_top" id="2135359">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135359" border="0" alt="https://techidaily.com" width="392" height="72"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1975807/19272" target="_top" id="1975807">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975807" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135359/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975807/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Rocket stock
@@ -286,20 +292,19 @@ As a result, adding professionalism to your talents is now even easier and more 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-srgb-standardized-vs-traditional-rgb-spectrum/"><u>[New] 2024 Approved Srgb Standardized Vs Traditional Rgb Spectrum</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-best-photo-to-cartoon-software-for-windows-and-mac-for-2024/"><u>[New] Best Photo to Cartoon Software for Windows & Mac for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-transform-fb-video-files-into-mp4-directly/"><u>[New] In 2024, Transform FB Video Files Into MP4 Directly</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-ultimate-guide-top-10-photography-frame-tools/"><u>[Updated] 2024 Approved Ultimate Guide Top 10 Photography Frame Tools</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-cultivating-a-brighter-home-with-outdoor-help/"><u>[Updated] In 2024, Cultivating a Brighter Home with Outdoor Help</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-from-zero-to-youtube-pros-creating-an-account-rightly/"><u>[Updated] In 2024, From Zero to YouTube Pros Creating an Account Rightly</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-whatsapp-status-now-with-symphony-for-2024/"><u>[Updated] WhatsApp Status, Now with Symphony for 2024</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/comprehensive-data-wipe-utility-for-iphone-users-to-secure-deletion-of-personal-data/"><u>Comprehensive Data Wipe Utility for iPhone Users to Secure Deletion of Personal Data</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/cost-conscious-aerial-assistants-top-5-drones/"><u>Cost-Conscious Aerial Assistants Top 5 Drones</u></a></li>
-<li><a href="https://solve-helper.techidaily.com/download-free-fifa-world-cup-2018-match-highlights-hd-video-from-youtube/"><u>Download Free FIFA World Cup 2018 Match Highlights HD Video From YouTube</u></a></li>
-<li><a href="https://games-able.techidaily.com/enhance-gameplay-with-internationalized-rom-tweaks/"><u>Enhance Gameplay with Internationalized ROM Tweaks</u></a></li>
-<li><a href="https://android-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-from-nubia-red-magic-9-pro-phones-withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock from Nubia Red Magic 9 Pro Phones with/without a PC</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-annual-compilation-of-premium-free-lut-choices/"><u>In 2024, Annual Compilation of Premium Free LUT Choices</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/larger-than-life-instagram-videos-tips-to-break-the-barrier-for-2024/"><u>Larger-than-Life Instagram Videos Tips to Break the Barrier for 2024</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/new-in-2024-fcpx-productivity-hacks-top-40-keyboard-shortcuts-for-editors/"><u>New In 2024, FCPX Productivity Hacks Top 40 Keyboard Shortcuts for Editors</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-proven-strategies-for-inclusion-in-the-apple-catalog/"><u>[New] 2024 Approved Proven Strategies for Inclusion in the Apple Catalog</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-the-ultimate-checklist-of-key-elements-in-tagging-a-video/"><u>[New] 2024 Approved The Ultimate Checklist of Key Elements in Tagging a Video</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-essential-skills-for-youtube-gamers/"><u>[New] Essential Skills for YouTube Gamers</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-free-lut-strategies-for-enhancing-ar-experiences/"><u>[New] Free LUT Strategies for Enhancing AR Experiences</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-premium-20-free-to-use-pubg-image-arrays-for-2024/"><u>[New] Premium 20 Free-to-Use PUBG Image Arrays for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-essential-tips-installing-apple-podcasts-app-successfully/"><u>[Updated] Essential Tips Installing Apple Podcasts App Successfully</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-fine-tuning-the-art-of-recording-in-audacity/"><u>[Updated] Fine-Tuning the Art of Recording in Audacity</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-hook-creating-headline-helper/"><u>2024 Approved Hook-Creating Headline Helper</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/aerial-titans-clash-dji-and-gopros-quest/"><u>Aerial Titans Clash DJI and GoPro's Quest</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/1723208767616-end-irritating-cursor-blink-with-these-simple-solutions/"><u>End Irritating Cursor Blink with These Simple Solutions</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ative-video-marketing-youtube-trailers-with-filmora/"><u>Innovative Video Marketing YouTube Trailers with Filmora</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/movavi-mp4aac/"><u>Movavi: 最新の無償MP4動画AACフォーマット変換ツール</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/top-picks-where-to-watch-movies-online-without-paying-a-dime/"><u>Top Picks: Where to Watch Movies Online Without Paying a Dime</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/vanguard-sky-stashers-for-android-users-2024/"><u>Vanguard Sky Stashers for Android Users 2024</u></a></li>
 </ul></div>
 

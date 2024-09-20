@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Total Physical Action Scrutiny\""
-date: 2024-09-14T16:34:05.284Z
-updated: 2024-09-15T16:39:31.127Z
+date: 2024-09-19T20:33:27.349Z
+updated: 2024-09-20T17:25:32.415Z
 tags: 
   - screen-recording
   - ai video
@@ -91,6 +91,19 @@ Open it once you've finished downloading and installing it. It will open to a ho
 
 ![download](https://images.wondershare.com/filmora/article-images/2022/09/alight-motion-app-review-2.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1977032">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Import
 
 Once you have successfully gotten on the home page the next action is to import the image or graphics you want to edit. Click on the **plus (+)** button, it will take you to a page where you get to choose the resolution type, frame rate, and background color you want for your video. Click the **"Create Project"** button when you are done with your changes.
@@ -117,18 +130,25 @@ You can add text to your videos, and graphics. Alight motion has over 2000 fonts
 
 ![add text](https://images.wondershare.com/filmora/article-images/2022/09/alight-motion-app-review-5.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135359/19272" target="_top" id="2135359">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135359" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135359/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Freehand and Vector Drawing
 
 You can draw amazing shapes using the alight motion freehand drawing tool. There is a color wheel, an adjustable brush, eraser, etc. available to you. The alight motion also supports vector drawing.
 
 ![freehand and vector drawing](https://images.wondershare.com/filmora/article-images/2022/09/alight-motion-app-review-5.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Export
 
@@ -177,13 +197,6 @@ Step1 Firstly, head over to the media library tab and click import to choose the
 Step2 After adding the video to the program, drag it from the user album to the video track on the timeline. Right-click on the video and click speed and duration. A window tab will appear where you can make changes to the speed of the video. You can drag the slider back for slow motion and the front for fast motion.
 
 Step3 After you make changes to the video speed, you can see the effect In the preview window. Click on " OK" when you have gotten your desired speed.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -253,13 +266,6 @@ Once you have successfully gotten on the home page the next action is to import 
 
 Select any image or video and carry on. On this page, you can also select a shape, audio, object, element, freehand drawing, vector drawing, and text.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123479/16836" target="_top" id="2123479">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123479" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123479/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Editing
 
 After importing your video, you can start editing.
@@ -273,10 +279,10 @@ You can also add slow motion and fast motion effects to your videos. This is one
 ![editing](https://images.wondershare.com/filmora/article-images/2022/09/alight-motion-app-review-4.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1528681/16446" target="_top" id="1528681">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528681" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528681/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Add Text
@@ -298,6 +304,13 @@ Exporting your work from alight motion is quite easy. You can export files in al
 ### Subscription
 
 The alight motion app also comes with premium features. Although you create just the amazing and unique video you desire, there are still features you can only access when you subscribe for it. You can't access some new effects and creative sharing features on the free version.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915825/19272" target="_top" id="1915825">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915825" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915825/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 4: Advantages and Disadvantages of Alight Motion App
 
@@ -339,19 +352,6 @@ Step2 After adding the video to the program, drag it from the user album to the 
 
 Step3 After you make changes to the video speed, you can see the effect In the preview window. Click on " OK" when you have gotten your desired speed.
 
-<!-- affiliate ads begin -->
-<span id="1328683">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 Alight Motion editing app has lived up to the expectation of being the first motion design app for smartphones, with its amazing and standard features. You can give it a try if you feel it meets your video editing needs.
@@ -380,16 +380,16 @@ Alight Motion editing app has lived up to the expectation of being the first mot
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-dial-up-delight-your-guide-to-using-fun-lenses-in-snapchat/"><u>[New] In 2024, Dial Up Delight Your Guide to Using Fun Lenses in Snapchat</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-effortlessly-invert-colors-in-your-digital-photos/"><u>[Updated] In 2024, Effortlessly Invert Colors in Your Digital Photos</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-iphone-photography-secrets-unveiled-for-2024/"><u>[Updated] IPhone Photography Secrets Unveiled for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-streamlining-your-video-production-with-kinemaster-and-leading-alternatives-for-2024/"><u>[Updated] Streamlining Your Video Production with KineMaster & Leading Alternatives for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-quick-steps-to-proficient-gif-design/"><u>2024 Approved Quick Steps to Proficient GIF Design</u></a></li>
-<li><a href="https://fox-that.techidaily.com/correcting-mistaken-identities-a-guide-to-editing-apples-photo-library/"><u>Correcting Mistaken Identities: A Guide to Editing Apple's Photo Library</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/from-zero-to-hero-top-10-cartoon-video-makers-for-beginners/"><u>From Zero to Hero Top 10 Cartoon Video Makers for Beginners</u></a></li>
-<li><a href="https://apple-account.techidaily.com/how-to-erase-an-iphone-14-plus-without-apple-id-password-by-drfone-ios/"><u>How To Erase an iPhone 14 Plus Without Apple ID Password?</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/in-2024-rapid-photovideo-resurrection-tactics/"><u>In 2024, Rapid Photo/Video Resurrection Tactics</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/rapid-routines-transferring-iphone-content-for-2024/"><u>Rapid Routines Transferring iPhone Content for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/the-ultimate-guide-to-melodic-content-on-instagram/"><u>The Ultimate Guide to Melodic Content on Instagram</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-elite-editions-unbiased-blu-ray-player-titles-for-pcmac-for-2024/"><u>[New] Elite Editions Unbiased Blu-Ray Player Titles for PC/Mac for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-how-to-use-vlc-as-converter-to-convert-mp4-and-other-formats/"><u>[New] In 2024, How to Use VLC as Converter to Convert Mp4 and Other Formats</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-learn-how-to-utilize-telegrams-web-functionality-professionally-for-2024/"><u>[New] Learn How To Utilize Telegram's Web Functionality Professionally for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-advanced-tips-for-zooms-video-filters-for-2024/"><u>[Updated] Advanced Tips for Zoom's Video Filters for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-view-from-above-discover-our-top-11-bridge-camera-picks-for-2024/"><u>[Updated] View From Above Discover Our Top 11 Bridge Camera Picks for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-round-the-clock-insight-detailed-look-at-google-podcast/"><u>2024 Approved Round-the-Clock Insight Detailed Look at Google Podcast</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/essential-top-10-photo-keeping-websites-never-a-missed-shot/"><u>Essential Top 10 Photo-Keeping Websites, Never a Missed Shot</u></a></li>
+<li><a href="https://techtrends.techidaily.com/get-your-windows-11-search-back-on-track-with-these-simple-solutions/"><u>Get Your Windows 11 Search Back on Track with These Simple Solutions</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/get-your-xerox-printer-drivers-installed-on-windows-computers/"><u>Get Your Xerox Printer Drivers Installed on Windows Computers</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-elevate-note-taking-to-new-heights-with-mematic/"><u>In 2024, Elevate Note-Taking to New Heights with Mematic</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-transformative-tools-unveiling-top-6-nft-platforms-for-artists/"><u>In 2024, Transformative Tools Unveiling Top 6 NFT Platforms For Artists</u></a></li>
 </ul></div>
 

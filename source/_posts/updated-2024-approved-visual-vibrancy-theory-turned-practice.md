@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Visual Vibrancy  Theory-Turned-Practice\""
-date: 2024-09-13T16:23:07.152Z
-updated: 2024-09-15T16:40:40.102Z
+date: 2024-09-16T17:00:43.047Z
+updated: 2024-09-20T17:25:55.798Z
 tags: 
   - screen-recording
   - ai video
@@ -61,19 +61,6 @@ You may still be unsure as to how to implement color theory into your videos. Le
 
 ![apply color theory video](https://images.wondershare.com/filmora/article-images/2022/08/apply-color-theory-video.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1983582">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 In this scene the director decided that the backdrop should complement the top the actor is wearing, looking at our wheel we can see the complementary color would be dark purple so they started with that, to create a more dynamic scene they then used the analogous colors of that purple being pink and red and created the backdrop. This creates a harmony within the scene and makes it effortless to see all the key elements straight away.
 
 As you can see from this example the base color for the scene is a dark blue/purple and using the analogous color of pink they created a point of interest within the scene that doesn't look out of place. This is a very good way to pull the viewers eyes towards something you want them to take in above all else.
@@ -81,13 +68,20 @@ As you can see from this example the base color for the scene is a dark blue/pur
 ![movie cover with color theory](https://images.wondershare.com/filmora/article-images/2022/08/movie-cover-with-color-theory.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918714/19272" target="_top" id="1918714">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918714" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918714/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 As you can see from all the movie covers above, they all use complementary colors from the blues to the war yellows and oranges, this creates high contrast and balance and is something done within the movie industry in every scene. It's no coincidence that the joker is purple and green or that the iron man is red and gold, this is well prepared and researched in the planning stages of everything a visual artist creates.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2112008/7443" target="_top" id="2112008">
+  <img src="//a.impactradius-go.com/display-ad/7443-2112008" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112008/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Conclusion
 
@@ -123,16 +117,21 @@ By including this into your thought process when creating videos with [Filmora](
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-how-to-start-join-or-schedule-a-zoom-meeting-android/"><u>[New] 2024 Approved How to Start, Join, or Schedule a Zoom Meeting Android</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-creating-hilarious-vr-world-meme-magic-for-2024/"><u>[New] Creating Hilarious VR World Meme Magic for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-expert-tips-for-embedding-time-stamp-data-on-youtube-videos-desktopmobile/"><u>[New] In 2024, Expert Tips for Embedding Time Stamp Data on YouTube Videos (Desktop/Mobile)</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-simplifying-age-verification-on-tiktok-accounts/"><u>[Updated] 2024 Approved Simplifying Age Verification on TikTok Accounts</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-expertise-amplified-10-must-know-canva-techniques/"><u>[Updated] In 2024, Expertise Amplified 10 Must-Know Canva Techniques</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-refine-iphone-image-capture-specialized-filming-tools/"><u>[Updated] In 2024, Refine iPhone Image Capture Specialized Filming Tools</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-secrets-to-proficient-ipad-screening/"><u>[Updated] Secrets to Proficient iPad Screening</u></a></li>
-<li><a href="https://facebook.techidaily.com/fb-accelerates-text-interaction-new-tools-transforming-user-experience-in-messenger-and-instagram-apps/"><u>FB Accelerates Text Interaction: New Tools Transforming User Experience in Messenger and Instagram Apps</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/fixed-aspect-ratio-on-slant-view-laptop/"><u>Fixed Aspect Ratio on Slant-View Laptop</u></a></li>
-<li><a href="https://video-capture.techidaily.com/in-2024-ios-and-ps2-gaming-top-emulators-unveiled/"><u>In 2024, IOS and PS2 Gaming Top Emulators Unveiled</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-morning-analysis-unconventional-perspectives/"><u>In 2024, Morning Analysis Unconventional Perspectives</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-photoshop-shake-control-necessary-tool-or-unnecessary/"><u>[New] In 2024, Photoshop Shake Control Necessary Tool or Unnecessary?</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-mastering-quantum-hdr-principles/"><u>[New] Mastering Quantum HDR Principles</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-photo-mastery-top-8-web-based-creation-suite/"><u>[New] Photo Mastery Top 8 Web-Based Creation Suite</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-screen-streaming-showdown-face-off-between-obs-and-shadowtoolkit/"><u>[Updated] 2024 Approved Screen Streaming Showdown Face Off Between OBS & ShadowToolKit</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-50plus-impressive-tiktok-username-ideas-to-boost-views/"><u>[Updated] In 2024, 50+ Impressive TikTok Username Ideas to Boost Views</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-lights-spectrum-in-focus-pro-hdr-creation-tips-for-ps/"><u>[Updated] In 2024, Light's Spectrum in Focus Pro HDR Creation Tips for PS</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-quintessential-audio-drama-story-creation/"><u>[Updated] In 2024, Quintessential Audio-Drama Story Creation</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-integrating-aesthetic-enhancements-into-windows-photos-audio-plus-visuals-for-2024/"><u>[Updated] Integrating Aesthetic Enhancements Into Windows Photos Audio + Visuals for 2024</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/2024-approved-the-ultimate-list-of-live-chat-apps-for-shopify/"><u>2024 Approved The Ultimate List of Live Chat Apps for Shopify</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-your-guide-to-selecting-a-superior-virtual-reality-headset-mobility-focused-or-connection-centric/"><u>2024 Approved Your Guide to Selecting a Superior Virtual Reality Headset Mobility-Focused or Connection-Centric?</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/before-you-go-electric-the-ultimate-checklist-of-9-important-inquiries/"><u>Before You Go Electric: The Ultimate Checklist of 9 Important Inquiries</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/discover-elite-ps5-ssd-alternatives-the-quickest-nvme-storage-solutions-for-gamers/"><u>Discover Elite PS5 SSD Alternatives: The Quickest NVMe Storage Solutions for Gamers</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-beyond-inshot-top-pc-editing-solutions/"><u>In 2024, Beyond Inshot Top PC Editing Solutions</u></a></li>
+<li><a href="https://win-answers.techidaily.com/step-by-step-repair-instructions-for-dealing-with-the-dark-screen-glitch-in-fallout-4/"><u>Step-by-Step Repair Instructions for Dealing with the Dark Screen Glitch in Fallout 4</u></a></li>
+<li><a href="https://techidaily.com/three-solutions-to-hard-reset-samsung-galaxy-s23-drfone-by-drfone-reset-android-reset-android/"><u>Three Solutions to Hard Reset Samsung Galaxy S23? | Dr.fone</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/time-lapse-mastery-top-apps-for-iphone-and-android-users/"><u>Time-Lapse Mastery Top Apps for iPhone and Android Users</u></a></li>
 </ul></div>
 

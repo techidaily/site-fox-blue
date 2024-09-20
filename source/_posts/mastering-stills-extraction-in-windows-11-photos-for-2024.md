@@ -1,7 +1,7 @@
 ---
 title: "Mastering Stills Extraction in Windows 11 Photos for 2024"
-date: 2024-07-11T12:14:02.635Z
-updated: 2024-07-12T12:14:02.635Z
+date: 2024-09-16T20:27:59.649Z
+updated: 2024-09-20T20:44:38.718Z
 tags: 
   - screen-recording
   - ai video
@@ -72,6 +72,19 @@ Click on ‘Start’ > ‘Settings’ > ‘Update & Security’ > ‘Windows Upd
 
 You got to login with another Microsoft account to access Microsoft Store. It might be your existing Microsoft Store account undergoing some issues. This in turn might be affecting the Photos app from acting properly. Therefore, signing in a different account will help.
 
+<!-- affiliate ads begin -->
+<span id="1495277">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 3: Alternative way to save photo from video
 
 When you want to save photo from video Windows 10 Photos but fail to do so, you can look for alternate ways that are fruitful. ‘ScreenShot’ is an online tool that enables you to capture and edit anything popping up on your screen. From webpages, windows, media files, menus, objects, to webcams, you can literally capture anything. It supports Mac, Windows PC, Android devices etc. it supports AVI, FLV, MPEG, WMV, MOV, and MKV files and enables you to add shapes, texts, lines, arrows, and stylish effects while editing the captured images. You can even upload images to cloud or social networking sites like Facebook, Google Plus, Twitter etc. The pictures are saved in JPG, PNG, BMP, GIF, and TIFF format on your computer. Automatic video capture at fixed intervals is also supported.
@@ -83,6 +96,13 @@ Here comes the guide –
 * See your mouse cursor appear like a blue crosshair. Hold down the mouse and drag to select the parts of the video you wish to shoot. While moving the mouse, you can see that the application window is covered with a blue border. You can capture the window by clicking there.
 
 ![save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/screenshot-take-photo.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Once the image is captured, the editing tool bar is visible. It allows you to enhance the image to great extent.
 * Now, hit the ‘Save’ icon and get the image saved on your computer.
@@ -116,6 +136,19 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-crafting-the-perfect-virtual-space-with-zooms-features/"><u>[New] Crafting the Perfect Virtual Space with Zoom's Features</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-full-spectrum-analysis-of-vsco-editing-features-for-2024/"><u>[New] Full Spectrum Analysis of VSCO Editing Features for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-unveiling-the-secrets-of-facebook-videos/"><u>[New] In 2024, Unveiling the Secrets of Facebook Videos</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-kinemaster-guide-to-seamless-green-screen-implementation/"><u>[Updated] 2024 Approved Kinemaster Guide to Seamless Green Screen Implementation</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-in-2024-understanding-vr-limitations/"><u>[Updated] In 2024, Understanding VR Limitations</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/2024-approved-navigating-tiktok-lives-your-step-by-step-guide/"><u>2024 Approved Navigating TikTok Lives Your Step-by-Step Guide</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/from-daydream-to-reality-a-short-vr-history-for-2024/"><u>From Daydream to Reality A Short VR History for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-advanced-mobiles-for-crafting-perfect-dji-videos/"><u>In 2024, Advanced Mobiles for Crafting Perfect DJi Videos</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-aerial-visual-flux-free-lutts-for-dji-drones-then-pay-upgrade/"><u>In 2024, Aerial Visual Flux Free LUTTs for DJI Drones, Then Pay Upgrade</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-breaking-boundaries-education-through-vr-lenses/"><u>In 2024, Breaking Boundaries Education Through VR Lenses</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-top-12-prominent-lava-yuva-3-fingerprint-not-working-solutions-by-drfone-android/"><u>In 2024, Top 12 Prominent Lava Yuva 3 Fingerprint Not Working Solutions</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/voiceover-techniques-for-tiktok-video-amplification-for-2024/"><u>Voiceover Techniques for TikTok Video Amplification for 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Motion Magic Mixtures"
-date: 2024-09-13T17:14:37.978Z
-updated: 2024-09-15T17:19:39.961Z
+date: 2024-09-18T16:25:51.845Z
+updated: 2024-09-20T16:57:17.651Z
 tags: 
   - screen-recording
   - ai video
@@ -45,25 +45,11 @@ There is always a high demand for dynamic text animations in After Effects. This
 
 ![dynamic text animations ae](https://images.wondershare.com/filmora/article-images/2022/07/dynamic-text-animations-ae.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136548/16384" target="_top" id="2136548">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136548" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136548/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 4\. Squash & Stretch Preset
 
 If you want to add texts and titles in your video that looks like the games meant for kids, squash and stretch. Therefore, if your video content is based on comedy or you make videos for kids, this is the effect and animation you should apply on the text of your video. The animation looks cool and funny at the same time. The animations are designed by professionals and you get regular as well as advanced adjustments. There are also built-in sound effects available to make the animations for entertaining.
 
 ![squash stretch preset ae](https://images.wondershare.com/filmora/article-images/2022/07/squash-stretch-preset-ae.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118305/7443" target="_top" id="2118305">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118305" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118305/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 5\. CounterPro Preset
 
@@ -71,11 +57,25 @@ In this pack, you will find unique text effects, and you can animate text with k
 
 ![counterpro preset ae](https://images.wondershare.com/filmora/article-images/2022/07/counterpro-preset-ae.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094429/7443" target="_top" id="2094429">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094429" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094429/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 6\. Text Library
 
 If there is a must-have preset you should manage to have in After Effects is Text Library. There are as many as 1000 text presets available and this will serve all your requirements completely. Starting from animations and effects to transitions, everything is available in different categories for you to choose from and apply to your text. The pack keeps on updating to include trendy and funky text effects so that you do not miss out anything.
 
 ![text library effect ae](https://images.wondershare.com/filmora/article-images/2022/07/text-library-effect-ae.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043603/7443" target="_top" id="2043603">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043603" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043603/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 7\. Kinetic Text Animation
 
@@ -84,10 +84,17 @@ Kinetic text effect is a part of dynamic text effects and there is a high demand
 ![kinetic text aniamtion ae](https://images.wondershare.com/filmora/article-images/2022/07/kinetic-text-aniamtion-ae.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123481/16836" target="_top" id="2123481">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123481" border="0" alt="https://techidaily.com" width="720" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123481/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 8\. Text Animation Lower Third
@@ -95,13 +102,6 @@ Kinetic text effect is a part of dynamic text effects and there is a high demand
 You get eleven styles of elements in the pack, and you can customize the designs to get into any size as per your requirements. You get the elements in HD and Full HD resolution, and you can use them in the intro or outro of the video to show text and title credits. You can also use them to show quotes or keywords. Most of them have highlighted background, and technically, they are referred to as lower thirds.
 
 ![text animation lower thirds ae](https://images.wondershare.com/filmora/article-images/2022/07/text-animation-lower-thirds-ae.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120867/26400?prodsku=mars" target="_top" id="2120867">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120867" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120867/26400?prodsku=mars" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## The Bottom Line
 
@@ -137,18 +137,21 @@ As the saying goes, the more the merrier and the more presets you have, the more
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-techniques.techidaily.com/new-expert-net-archives-downloading-personal-tones/"><u>[New] Expert Net Archives Downloading Personal Tones</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-first-time-action-cam-purchases-decoded-for-2024/"><u>[New] First-Time Action Cam Purchases Decoded for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-elevate-canva-creations-with-these-10-secrets/"><u>[New] In 2024, Elevate Canva Creations with These 10 Secrets</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-the-compreeved-art-of-audio-notes-capture/"><u>[New] The Compreeved Art of Audio Notes Capture</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/does-edge-40-support-avchd-video-by-aiseesoft-video-converter-play-mts-on-android/"><u>Does Edge 40 support AVCHD video?</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/effortlessly-enhance-your-watchlist-mastering-dual-display-in-netflix/"><u>Effortlessly Enhance Your Watchlist - Mastering Dual Display in Netflix</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-contacts-from-honor-x50-gt-by-fonelab-android-recover-contacts/"><u>How to Rescue Lost Contacts from Honor X50 GT?</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-screen-mirroring-oppo-a59-5g-drfone-by-drfone-android/"><u>How to Screen Mirroring Oppo A59 5G? | Dr.fone</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-3-ways-to-erase-iphone-6s-plus-when-its-locked-within-seconds-by-drfone-ios/"><u>In 2024, 3 Ways to Erase iPhone 6s Plus When Its Locked Within Seconds</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/infographic-mind-numbing-youtube-factsfigures-and-statistics-for-2024/"><u>Infographic - Mind Numbing YouTube Facts,Figures and Statistics for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/navigating-windows-10-features-for-seamless-video-editing-for-2024/"><u>Navigating Windows 10 Features for Seamless Video Editing for 2024</u></a></li>
-<li><a href="https://win-blog.techidaily.com/optimized-experience-with-improved-latency-solutions-to-cyberpunk-2077s-lag-issues/"><u>Optimized Experience with Improved Latency: Solutions to Cyberpunk 2077'S Lag Issues</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/the-ultimate-tool-for-video-cuts-full-review-of-vivacut-24-edition/"><u>The Ultimate Tool for Video Cuts Full Review of VivaCut '24 Edition</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-blurred-lines-the-art-of-anonymizing-youtube-content/"><u>[New] Blurred Lines The Art of Anonymizing YouTube Content</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-cheap-yet-superior-4k-equipment/"><u>[New] Cheap Yet Superior 4K Equipment</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-how-to-add-fonts-to-after-effects/"><u>[New] How to Add Fonts to After Effects</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-peak-business-sky-storage-for-firms-for-2024/"><u>[New] Peak Business Sky-Storage for Firms for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-framelock-the-future-of-screen-capturing-in-2024/"><u>[Updated] 'Framelock' – The Future of Screen Capturing, In 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-a-drone-transformed-with-yuneecs-typhoon-q500/"><u>[Updated] 2024 Approved A Drone Transformed with Yuneec's Typhoon Q500</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-complete-circle-cinematic-mounts-for-2024/"><u>[Updated] Complete Circle Cinematic Mounts for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-getting-the-most-out-of-live-sports-on-youtube-tv-for-2024/"><u>[Updated] Getting the Most Out of Live Sports on YouTube TV for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-the-ultimate-guide-to-video-setup-luminosity/"><u>[Updated] In 2024, The Ultimate Guide to Video Setup Luminosity</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-mastering-the-art-of-telegram-web-navigation/"><u>2024 Approved Mastering the Art of Telegram Web Navigation</u></a></li>
+<li><a href="https://howto.techidaily.com/fixes-for-apps-keep-crashing-on-honor-x9b-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixes for Apps Keep Crashing on Honor X9b | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-metamorphic-mentations-vr-enhanced-metaphysical-reflections/"><u>In 2024, Metamorphic Mentations VR-Enhanced Metaphysical Reflections</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/no-visual-output-new-gpu/"><u>No Visual Output - New GPU?</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/starting-with-av1-an-essential-overview/"><u>Starting with AV1 An Essential Overview</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/time-honored-techniques-incorinastrating-classic-vhs-into-modern-cinematics-for-2024/"><u>Time-Honored Techniques Incorinastrating Classic VHS Into Modern Cinematics for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/top-2023-no-cost-live-stream-tools-cross-platform-edition-for-2024/"><u>Top 2023 No-Cost Live Stream Tools Cross-Platform Edition for 2024</u></a></li>
 </ul></div>
 

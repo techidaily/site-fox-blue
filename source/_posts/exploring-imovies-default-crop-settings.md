@@ -1,7 +1,7 @@
 ---
 title: "Exploring iMovie's Default Crop Settings"
-date: 2024-09-12T16:02:18.448Z
-updated: 2024-09-15T16:24:02.993Z
+date: 2024-09-17T16:27:35.289Z
+updated: 2024-09-20T16:37:11.361Z
 tags: 
   - screen-recording
   - ai video
@@ -46,10 +46,16 @@ Double-click Filmora's desktop icon once you're ready to start working on a new 
 ![imoive-crop-video-](https://images.wondershare.com/filmora/article-images/2022/05/imoive-crop-video-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135358/19272" target="_top" id="2135358">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135358" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135358/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983472">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **Step #2: Create a New Project**
@@ -116,13 +122,6 @@ The documents you import into Filmora will be stored under the Media tab, which 
 
 ![imoive-crop-video-](https://images.wondershare.com/filmora/article-images/2022/05/imoive-crop-video-4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115944/19272" target="_top" id="2115944">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115944" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115944/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 In the window's top right corner, click the Add a New Folder icon at the bottom of the "My Project" section. You can organize the footage numerically or in another method to increase your productivity and save time looking through files.
 
 ### **Step #5: Organize the Files on The Timeline**
@@ -151,6 +150,13 @@ After choosing New Project on the software's welcome screen, wait for the editor
 
 Go to the File menu and click Project Settings to choose the aspect ratio for your final film output. You'll be able to select from various aspect ratios, including the standard 16:9 or 4:3, the less common 9:16 aspect ratio for vertically oriented flicks, and the 1:1 aspect ratio for square-shaped films. You can also adjust the aspect ratio to fit your needs.
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **Step #3: Import Your Files**
 
 You can find the Import button in the upper left corner of the film editor; click it and select Import Media Files. Next, go to the hard drive folder containing the item you want to modify. After choosing the video, audio, or photo files, you want to use in your project, click the Import option.
@@ -174,6 +180,13 @@ Because raw footage frequently has incorrect orbits that you don't need in your 
 ![imoive-crop-video-](https://images.wondershare.com/filmora/article-images/2022/05/imoive-crop-video-5.jpg)
 
 Press Play or use the Spacebar to examine the video clips you've added to the timeline. You may use the playhead to jump to a certain point in the movie. Place the playhead at the exact beginning of the video segment you wish to trim, then repeat the operation on the other end.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **Step #6: Insert Effects**
 
@@ -191,6 +204,13 @@ After choosing New Project on the software's welcome screen, wait for the editor
 
 ![imoive-crop-video-](https://images.wondershare.com/filmora/article-images/2022/05/imoive-crop-video-2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151892/7443" target="_top" id="2151892">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151892" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151892/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Go to the File menu and click Project Settings to choose the aspect ratio for your final film output. You'll be able to select from various aspect ratios, including the standard 16:9 or 4:3, the less common 9:16 aspect ratio for vertically oriented flicks, and the 1:1 aspect ratio for square-shaped films. You can also adjust the aspect ratio to fit your needs.
 
 ### **Step #3: Import Your Files**
@@ -207,26 +227,13 @@ The documents you import into Filmora will be stored under the Media tab, which 
 
 ![imoive-crop-video-](https://images.wondershare.com/filmora/article-images/2022/05/imoive-crop-video-4.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1495277">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 In the window's top right corner, click the Add a New Folder icon at the bottom of the "My Project" section. You can organize the footage numerically or in another method to increase your productivity and save time looking through files.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **Step #5: Organize the Files on The Timeline**
@@ -242,13 +249,6 @@ Press Play or use the Spacebar to examine the video clips you've added to the ti
 After eliminating all the unwanted bits from your video clips, you may now separate the audio and video files, add music, make transitions between the segments, or apply one of Filmora's many graphic effects.
 
 ![imoive-crop-video-](https://images.wondershare.com/filmora/article-images/2022/05/imoive-crop-video-6.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Click the Text /Credit icon to add opening titles, end credits, or subtitles to your video. The software comes with several text templates that you can use for various purposes. Drag and drop the theme you want to use to the appropriate location on the timeline, then add the relevant text using the software's preview box.
 
@@ -278,19 +278,14 @@ Click the Text /Credit icon to add opening titles, end credits, or subtitles to 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-cutting-edge-techniques-for-excellent-sound-no-mic-included-for-2024/"><u>[New] Cutting-Edge Techniques for Excellent Sound, No Mic Included for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-5-strategies-for-enhancing-iphone-hdr-footage-in-premiere-pro/"><u>[New] In 2024, 5 Strategies for Enhancing iPhone HDR Footage in Premiere Pro</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/umpstart-traffic-top-tier-video-seo-tools/"><u>[New] Jumpstart Traffic – Top-Tier Video SEO Tools</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-10-best-live-streaming-services-for-church-you-should-know/"><u>[Updated] In 2024, 10 Best Live Streaming Services for Church You Should Know</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-navigating-the-new-picsart-app-review-and-tutorial/"><u>[Updated] Navigating the New PicsArt App – Review & Tutorial</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/ai-powered-vision-and-sound-the-new-capabilities-of-the-google-assistant/"><u>AI-Powered Vision and Sound: The New Capabilities of the Google Assistant</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/exploring-vsdcs-features-and-best-rival-tools/"><u>Exploring VSDC's Features and Best Rival Tools</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/in-2024-how-to-preserve-your-roblox-experience-with-flawless-recording-mac/"><u>In 2024, How to Preserve Your Roblox Experience with Flawless Recording (Mac)</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-simplified-avatars-navigating-the-metaverse-realm/"><u>In 2024, Simplified Avatars Navigating the Metaverse Realm</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-unveiling-the-top-10-drawing-apps-for-chromebooks/"><u>In 2024, Unveiling the Top 10 Drawing Apps for Chromebooks</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/optimizing-profile-visibility-in-snapchats-focus-for-2024/"><u>Optimizing Profile Visibility in Snapchat's Focus for 2024</u></a></li>
-<li><a href="https://review-topics.techidaily.com/simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-infinix-smart-7-drfone-by-drfone-virtual-android/"><u>Simple and Effective Ways to Change Your Country on YouTube App Of your Infinix Smart 7 | Dr.fone</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/the-art-of-podcast-imagery-creating-memorable-graphics/"><u>The Art of Podcast Imagery Creating Memorable Graphics</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/troubleshooting-guide-fixing-discord-voice-chat-issues-push-to-talk-not-responding/"><u>Troubleshooting Guide: Fixing Discord Voice Chat Issues - Push-to-Talk Not Responding</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-seamless-iphone-photography-during-video-for-2024/"><u>[New] Seamless iPhone Photography During Video for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-screentosave-mobilepc-video-recording/"><u>[Updated] 2024 Approved ScreenToSave Mobile/PC Video Recording</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-quintessential-audio-drama-story-creation/"><u>[Updated] In 2024, Quintessential Audio-Drama Story Creation</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-shoppers-ultimate-list-of-top-rated-webcams-for-2024/"><u>[Updated] Shopper’s Ultimate List of Top-Rated Webcams for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-the-full-spectrum-slomo-recording-app-evaluation-for-2024/"><u>[Updated] The Full Spectrum SloMo Recording App Evaluation for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/capturing-clarity-iphone-low-light-techniques-for-2024/"><u>Capturing Clarity IPhone Low Light Techniques for 2024</u></a></li>
+<li><a href="https://program-issues.techidaily.com/fixes-and-solutions-overcoming-the-endless-load-of-minecraft/"><u>Fixes & Solutions: Overcoming the Endless Load of Minecraft</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-boost-your-podcast-visibility-with-seo-tactics/"><u>In 2024, Boost Your Podcast Visibility with SEO Tactics</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/troubleshooting-techniques-to-restore-a-clear-image-by-eliminating-tv-screen-lines/"><u>Troubleshooting Techniques to Restore a Clear Image by Eliminating TV Screen Lines</u></a></li>
 </ul></div>
 

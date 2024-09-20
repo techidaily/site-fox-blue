@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Balancing Core & Supporting Visual Elements for 2024"
-date: 2024-09-11T16:16:46.377Z
-updated: 2024-09-15T17:45:56.421Z
+date: 2024-09-16T20:57:38.194Z
+updated: 2024-09-20T17:24:30.435Z
 tags: 
   - screen-recording
   - ai video
@@ -53,23 +53,9 @@ We'll examine the top 5 uses for B rolls across a variety of video genres and di
 
 Aerial B roll is the solution when you like to show your viewers where your film is being recorded or when you are changing locations and want them to know it. The plane takes off and lands in another city, and then shots of the city, its landmarks, its famous streets, etc. are shown. You have probably seen this type of B roll footage in movies and TV shows. These images aid in putting the viewer in the character's current location. Check out this collection of setting images from the Neighbors television series.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135359/19272" target="_top" id="2135359">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135359" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135359/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. Visual detail b roll footage
 
 Including archival material in your video allows your audience to experience a previously covered or historically significant story as it occurred. Look at this illustration from Netflix's 14 Peaks: Nothing Is Impossible, which was made utilizing old b roll film from the era to help the viewer connect with the narrative.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3\. Storytelling b roll footage
 
@@ -85,27 +71,35 @@ When you are sharing a narrative that has been told in the past or that has hist
 
 Have a look at the scenes from the episode "14 Peaks: Nothing Is Impossible" that can be found on Netflix. As a result of the use of archive film footage of b roll from the relevant time period in its production, the audience is able to connect with the narrative on a deeper level.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 6\. Pick-up shots
 
 A pick-up is a tiny shot added to previously captured material. Re-shoots involve redoing entire scenes. Both types of shots are commonly added during film editing to fix, logic, continuity, or quality flaws. These photos happen a while after the sets have been taken down, clothes and props stowed, and the actors and crew have gone on to new projects.
 
 If flaws were discovered during primary photography, the directors could have requested another take. The producer and director should weigh the cost of rejoining cast and crew against the need for pick-ups or re-shoots to address storyline flaws (or worse) in the final edit.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094477/7443" target="_top" id="2094477">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094477" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094477/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 7\. A roll vs b roll
 
 Imagine the A roll as part of the video's story. This could be a documentary film, news show, or scripted sketch. Everything else on your editing table must be rearranged to fit it. When the speaker in the following video is directly talking to the camera or interviewer, this is A roll footage. The video's most crucial segments were filmed with primary footage.
 
 <!-- affiliate ads begin -->
-<span id="1975503">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557746/17382" target="_top" id="1557746">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557746" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557746/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -142,20 +136,12 @@ We sincerely hope that this post will be of use to you in making your films more
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-holistic-capture-vs-structured-visual-space-for-2024/"><u>[New] Holistic Capture vs Structured Visual Space for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-navigating-color-grading-using-luts-to-refine-your-work-in-ae/"><u>[New] In 2024, Navigating Color Grading Using LUTs to Refine Your Work in AE</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-professional-grade-grid-tools-for-striking-instagram-posts-for-2024/"><u>[New] Professional-Grade Grid Tools for Striking Instagram Posts for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-transforming-video-tutorials-into-playable-animated-gifs-online/"><u>[Updated] 2024 Approved Transforming Video Tutorials Into Playable Animated GIFs Online</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-authenticity-through-customer-produced-videos/"><u>[Updated] In 2024, Authenticity Through Customer-Produced Videos</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-crafting-your-path-to-optimal-hdr-camera-selection/"><u>[Updated] In 2024, Crafting Your Path to Optimal HDR Camera Selection</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/advanced-methods-to-archive-your-whatsapp-chat/"><u>Advanced Methods to Archive Your WhatsApp Chat</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/changing-frozen-moments-into-sequential-movies/"><u>Changing Frozen Moments Into Sequential Movies</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/explore-the-finest-15-video-cameras-for-vlogging-success/"><u>Explore the Finest 15 Video Cameras for Vlogging Success</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/failed-to-play-mkv-movies-on-13t-by-aiseesoft-video-converter-play-mkv-on-android/"><u>Failed to play MKV movies on 13T</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/how-to-craft-an-engaging-solo-auditory-adventure-for-2024/"><u>How to Craft an Engaging Solo Auditory Adventure for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-comparing-content-formats-podcasts-versus-youtube/"><u>In 2024, Comparing Content Formats Podcasts Versus YouTube</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/new-secure-your-footage-how-to-blur-faces-in-videos-for-2024/"><u>New Secure Your Footage How to Blur Faces in Videos for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/al-recorders-top-10-tools-for-webinars/"><u>Optimal Recorders Top 10 Tools for Webinars</u></a></li>
-<li><a href="https://discover-alternatives.techidaily.com/understanding-video-compression-a-thorough-explanation-from-wonderfox/"><u>Understanding Video Compression: A Thorough Explanation From WonderFox</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-clearview-capture-watchlist-for-2024/"><u>[New] ClearView Capture Watchlist for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-a-full-analysis-of-the-lightroom-application-for-android/"><u>[Updated] 2024 Approved A Full Analysis of the Lightroom Application for Android</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-budget-savvy-gopro-upgrades-for-starters/"><u>[Updated] 2024 Approved Budget Savvy GoPro Upgrades for Starters</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/from-concept-art-to-cinematic-masterpiece-utilizing-luts-from-cg-central-for-2024/"><u>From Concept Art to Cinematic Masterpiece Utilizing Luts From CG Central for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/huntings-top-5-best-video-recorders-for-2024/"><u>Hunting's Top 5 Best Video Recorders for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-bypass-android-lock-screen-using-emergency-call-on-honor-magic-5-by-drfone-android/"><u>In 2024, How to Bypass Android Lock Screen Using Emergency Call On Honor Magic 5?</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/ultimate-selection-choosing-excellent-free-srt-translators/"><u>Ultimate Selection Choosing Excellent FREE SRT Translators</u></a></li>
 </ul></div>
 

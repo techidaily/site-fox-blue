@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Hues in Action  Implementing Color Schemes Properly\""
-date: 2024-07-11T12:16:47.087Z
-updated: 2024-07-12T12:16:47.087Z
+date: 2024-09-14T19:26:51.546Z
+updated: 2024-09-20T16:39:42.633Z
 tags: 
   - screen-recording
   - ai video
@@ -50,6 +50,13 @@ The blue lines represent what is known as split contrasting colors and these wil
 
 The corners of the black rectangle land on what is known as tetradic complement and allows you to add four colors with the understanding that they will complement each other perfectly. Lastly is the purple line which represents the analogous complementary colors, you can pick these neighboring colors with the peace of mind that they will harmonize with each other. There are many more but these four are the main ones that you will use more often than any other, by selecting colors using these four main types you can create a palette for your scenes and allow the viewer to effortlessly enjoy your content. These types work no matter where you start from on the wheel so long as you keep the distances the same.
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## But How Do I Use This
 
 You may still be unsure as to how to implement color theory into your videos. Let's look at some scenarios that color theory may help your creations.
@@ -61,6 +68,13 @@ In this scene the director decided that the backdrop should complement the top t
 As you can see from this example the base color for the scene is a dark blue/purple and using the analogous color of pink they created a point of interest within the scene that doesn't look out of place. This is a very good way to pull the viewers eyes towards something you want them to take in above all else.
 
 ![movie cover with color theory](https://images.wondershare.com/filmora/article-images/2022/08/movie-cover-with-color-theory.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080312/19272" target="_top" id="2080312">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080312" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080312/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 As you can see from all the movie covers above, they all use complementary colors from the blues to the war yellows and oranges, this creates high contrast and balance and is something done within the movie industry in every scene. It's no coincidence that the joker is purple and green or that the iron man is red and gold, this is well prepared and researched in the planning stages of everything a visual artist creates.
 
@@ -96,6 +110,22 @@ By including this into your thought process when creating videos with [Filmora](
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-animatedapps-review-full-guide-24-year-for-2024/"><u>[New] AnimatedApps Review - Full Guide '24 Year for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-maximize-mobile-video-quality-top-4-strategies-to-brighten-iphone-hdr-in-adobe/"><u>[New] In 2024, Maximize Mobile Video Quality Top 4 Strategies to Brighten iPhone HDR in Adobe</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-top-10-stock-image-memes-real-life-narratives/"><u>[New] In 2024, Top 10 Stock Image Memes Real Life Narratives</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-uncovering-8-honestly-backed-promotion-services/"><u>[New] In 2024, Uncovering 8 Honestly Backed Promotion Services</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-cutting-to-the-chase-solutions-for-stagnant-srt-exports-in-premiere-for-2024/"><u>[Updated] Cutting to the Chase Solutions for Stagnant SRT Exports in Premiere for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-file-download-voice-track-analysis-for-2024/"><u>[Updated] File Download Voice Track Analysis for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-top-free-ae-template-packs-for-amateurs-for-2024/"><u>[Updated] Top FREE AE Template Packs for Amateurs for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/grasping-the-full-potential-of-animoji-on-iphone-x/"><u>Grasping the Full Potential of Animoji on iPhone X</u></a></li>
+<li><a href="https://techidaily.com/how-to-easily-hard-reset-my-realme-c67-4g-drfone-by-drfone-reset-android-reset-android/"><u>How to Easily Hard reset my Realme C67 4G | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-remove-google-frp-lock-on-infinix-hot-30i-by-drfone-android-unlock-remove-google-frp/"><u>How to remove Google FRP Lock on Infinix Hot 30i</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-in-2024-video-editing-on-mavericks-a-beginners-guide-to-pro-results/"><u>New In 2024, Video Editing on Mavericks A Beginners Guide to Pro Results</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/recreating-retro-tech-a-custom-built-replica-of-the-iconic-1986-apple-macintosh-plus/"><u>Recreating Retro Tech: A Custom-Built Replica of the Iconic 1986 Apple Macintosh Plus</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/saturation-perfection-tool/"><u>Saturation Perfection Tool</u></a></li>
+<li><a href="https://techidaily.com/step-by-step-tutorial-disabling-driver-signing-checks-for-windows-10-systems/"><u>Step-by-Step Tutorial: Disabling Driver Signing Checks for Windows 10 Systems</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/visionpro-x-top-10-free-and-paid-alternatives-for-2024/"><u>VisionPro X Top 10 Free & Paid Alternatives for 2024</u></a></li>
+</ul></div>
 

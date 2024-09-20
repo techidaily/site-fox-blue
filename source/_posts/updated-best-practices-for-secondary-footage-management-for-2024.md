@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Best Practices for Secondary Footage Management for 2024"
-date: 2024-09-11T17:21:55.798Z
-updated: 2024-09-15T17:47:08.184Z
+date: 2024-09-18T17:47:08.166Z
+updated: 2024-09-20T19:01:16.722Z
 tags: 
   - screen-recording
   - ai video
@@ -49,13 +49,6 @@ On the other hand, cutaways can show how different people react to what is being
 
 We'll examine the top 5 uses for B rolls across a variety of video genres and discuss how to implement them effectively in your own projects.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115934/19272" target="_top" id="2115934">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115934" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115934/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1\. Archival b roll footage
 
 Aerial B roll is the solution when you like to show your viewers where your film is being recorded or when you are changing locations and want them to know it. The plane takes off and lands in another city, and then shots of the city, its landmarks, its famous streets, etc. are shown. You have probably seen this type of B roll footage in movies and TV shows. These images aid in putting the viewer in the character's current location. Check out this collection of setting images from the Neighbors television series.
@@ -64,9 +57,29 @@ Aerial B roll is the solution when you like to show your viewers where your film
 
 Including archival material in your video allows your audience to experience a previously covered or historically significant story as it occurred. Look at this illustration from Netflix's 14 Peaks: Nothing Is Impossible, which was made utilizing old b roll film from the era to help the viewer connect with the narrative.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3\. Storytelling b roll footage
 
 B roll footage can be used to tell a story that supports the narrative of your video. For example, in this video interview of Tom DeLonge, the speaker talks about living in a neighborhood. The B rolls show him driving around in his car, skateboarding on the street in the 90's. These add to the story the video creator wants to talk about not seeing people with a disability differently.
+
+<!-- affiliate ads begin -->
+<span id="1975562">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4\. Undirected b roll footage
 
@@ -85,22 +98,21 @@ A pick-up is a tiny shot added to previously captured material. Re-shoots involv
 If flaws were discovered during primary photography, the directors could have requested another take. The producer and director should weigh the cost of rejoining cast and crew against the need for pick-ups or re-shoots to address storyline flaws (or worse) in the final edit.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134229/18498" target="_top" id="2134229">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134229" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134229/18498" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1444782">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 7\. A roll vs b roll
 
 Imagine the A roll as part of the video's story. This could be a documentary film, news show, or scripted sketch. Everything else on your editing table must be rearranged to fit it. When the speaker in the following video is directly talking to the camera or interviewer, this is A roll footage. The video's most crucial segments were filmed with primary footage.
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -136,21 +148,18 @@ We sincerely hope that this post will be of use to you in making your films more
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-key-tactics-for-implementing-films-in-school-curriculum/"><u>[New] 2024 Approved Key Tactics for Implementing Films in School Curriculum</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-reviving-relics-seamless-access-to-old-fb-narratives-on-tech/"><u>[New] 2024 Approved Reviving Relics Seamless Access to Old FB Narratives on Tech</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-cutting-edge-4k-panels-top-10-revealed-list-for-2024/"><u>[New] Cutting-Edge 4K Panels Top 10 Revealed List for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-high-resolution-horizons-an-in-depth-look-at-the-asus-mg28uq/"><u>[Updated] 2024 Approved High-Resolution Horizons An In-Depth Look at the ASUS MG28UQ</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-monetizing-your-youtube-content-costing-for-2024/"><u>[Updated] Monetizing Your YouTube Content Costing for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/creating-the-ultimate-home-pc-for-professional-video-editors/"><u>Creating the Ultimate Home PC for Professional Video Editors</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-realme-gt-5-phone-with-broken-screen-by-drfone-android/"><u>How to Unlock Realme GT 5 Phone with Broken Screen</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/imagepurityplus-professional-photo-editing-suite-for-2024/"><u>ImagePurityPlus Professional Photo Editing Suite for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-from-scripts-to-subscribers-mastering-the-production-of-engaging-educational-videos-for-youtube/"><u>In 2024, From Scripts to Subscribers Mastering the Production of Engaging Educational Videos for YouTube</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-nubia-red-magic-9-proplus-screen-to-pc-using-wifi-drfone-by-drfone-android/"><u>In 2024, How to Cast Nubia Red Magic 9 Pro+ Screen to PC Using WiFi | Dr.fone</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-premier-equipment-for-cutting-edge-livestreams/"><u>In 2024, Premier Equipment for Cutting-Edge Livestreams</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-unlocking-potential-advanced-techniques-for-slug-line-creation/"><u>In 2024, Unlocking Potential Advanced Techniques for Slug Line Creation</u></a></li>
-<li><a href="https://discover-hacks.techidaily.com/1725285882266-iphonedvd/"><u>IPhoneにフィットするDVDの視聴:様々な手段で簡単に楽しむ方法</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/no-rework-or-replacement-intel-stands-by-defective-chip-production/"><u>No Rework or Replacement: Intel Stands by Defective Chip Production</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/quick-glance-at-stars-contribution-for-2024/"><u>Quick Glance at Star's Contribution for 2024</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/skype-the-top-10-audio-capture-tools/"><u>Skype The Top 10 Audio Capture Tools</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-vintage-voices-where-to-download-classical-ringtones/"><u>[New] 2024 Approved Vintage Voices Where to Download Classical Ringtones</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-compreeved-guide-to-creating-stellar-youtube-outros-for-2024/"><u>[New] Compreeved Guide to Creating Stellar YouTube Outros for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-free-cash-flow-estimator-apps/"><u>[New] In 2024, Free Cash Flow Estimator Apps</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-kinemaster-guide-to-seamless-green-screen-implementation/"><u>[Updated] 2024 Approved Kinemaster Guide to Seamless Green Screen Implementation</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-achieving-flawless-aerial-shots-the-best-gimbals-for-drones-for-2024/"><u>[Updated] Achieving Flawless Aerial Shots The Best Gimbals for Drones for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-best-of-both-worlds-top-high-quality-zero-dollar-webm-tools/"><u>[Updated] Best of Both Worlds Top High-Quality, Zero-Dollar WebM Tools</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-break-down-barriers-to-sound-convert-srt-with-ease-and-precision/"><u>[Updated] Break Down Barriers to Sound Convert SRT with Ease and Precision</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-the-art-of-disguising-reality-learn-free-green-screen-techniques-via-vfx-leaders-on-4-video-platforms/"><u>[Updated] The Art of Disguising Reality Learn Free Green Screen Techniques via VFX Leaders on 4 Video Platforms</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-ways-to-teach-you-to-transfer-files-from-zte-nubia-z60-ultra-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways To Teach You To Transfer Files from ZTE Nubia Z60 Ultra to Other Android Devices Easily | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-advanced-mobiles-for-crafting-perfect-dji-videos/"><u>In 2024, Advanced Mobiles for Crafting Perfect DJi Videos</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-breaking-boundaries-education-through-vr-lenses/"><u>In 2024, Breaking Boundaries Education Through VR Lenses</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/mastering-the-shadows-crafting-discreet-snaps/"><u>Mastering the Shadows Crafting Discreet Snaps</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/unlock-advanced-splitting-with-non-xsplit-apps/"><u>Unlock Advanced Splitting with Non-Xsplit Apps</u></a></li>
 </ul></div>
 

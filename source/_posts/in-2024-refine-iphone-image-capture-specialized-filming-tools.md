@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Refine iPhone Image Capture  Specialized Filming Tools\""
-date: 2024-07-11T12:07:01.774Z
-updated: 2024-07-12T12:07:01.774Z
+date: 2024-09-19T18:12:49.656Z
+updated: 2024-09-20T20:32:45.147Z
 tags: 
   - screen-recording
   - ai video
@@ -50,6 +50,13 @@ Nothing influences the quality of your pictures more than the optics you use to 
 
 ![iphone-lense](https://images.wondershare.com/filmora/article-images/iphone-lense.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868571/19272" target="_top" id="1868571">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868571" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868571/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## External Light Source
 
 To photograph or to film something simply means to capture the light at the certain place in a certain moment. Due to the lack of light that is not always possible and an additional source of light is often necessary to ensure that camera receives enough light. Using a camera flash can be a quick solution for this problem, but the light the flash produces can be too hard and it always comes from the same direction. [Photojojo's pocket spotlight](https://photojojo.com/awesomeness/pocket-spotlight) is an external light source that allows you to get creative with light in your videos or photos. You can adjust the brightness settings and choose between full strength, half strength, and strobe modes. Photojojo's pocket spotlight is one of many external light sources that can be used with iPhones and other Apple's devices and it will enable you to unleash your creativity.
@@ -62,17 +69,38 @@ Recording or taking photos for long periods of time can be demanding on your iPh
 
 ![battery-iphone](https://images.wondershare.com/filmora/article-images/battery-iphone.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139557/4704" target="_top" id="2139557">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139557" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139557/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Microphone
 
 The era of silent movies is long gone and today the quality of the video's sound is as important as the image quality. iPhone's built-in microphones are far from perfect and if for any reason the sound quality in your video is important to you, you should use an external shotgun microphone like [VideoMic Me](http://www.rode.com/microphones/videomicme). This microphone for iPhones is produced by Røde Microphones one the industry's leading companies which speak volumes about the quality of this small and practical microphone. VideoMic Me connects to an iPhone through the TRRS headphone/microphone socket and it can be used with both front and back cameras. This directional mic is designed to shoot outdoors and it's equipped with a deluxe furry windshield, that enables you to capture perfect audio even when it is windy outside.
 
 ![mic-iphone](https://images.wondershare.com/filmora/article-images/mic-iphone.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/1943750/22993" target="_top" id="1943750">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943750" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943750/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Stabilization Gadgets
 
 Besides tripods, you can use gimbals like [DJI Osmo Mobile](http://store.dji.com/product/osmo-mobile?gclid=CjwKEAjwgZrJBRDS38GH1Kv%5FvGYSJAD8j4Dfjx4uY6dtl4LycNBeOvkn5lBd-062PP5K%5F714fRidQxoCe8nw%5FwcB) to keep your iPhone or any other Smartphone still while recording or taking a photo. Options like ActiveTrack that is built-into the DJI GO app enable Osmo Mobile to track your movements. The handle of the device is equipped with camera controls on the handle which means that you don't even need to touch the display of your iPhone while you are using the Osmo Mobile. To make things even better, you can share videos live, create panorama photos composed out of 9 different pictures or create time-lapse videos by adjusting a few simple settings. DJI Osmo Mobile can be placed almost everywhere, which gives you the confidence to experiment without ever having to worry about the stability of the shot you are about to take.
 
 ![iphone-stabilizer](https://images.wondershare.com/filmora/article-images/iphone-stabilizer.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## The Camera Dollies
 
@@ -100,6 +128,13 @@ In the summertime, many people like to document their underwater adventures. But
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896505/19272" target="_top" id="1896505">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896505" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896505/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
@@ -123,6 +158,21 @@ Follow @Liza Brown
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/hwart-bots-surge-in-authentic-youtube-interest/"><u>[New] Thwart Bots, Surge in Authentic YouTube Interest</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-unleash-zodiac-potential-in-personal-bios-on-messaging-apps-for-2024/"><u>[New] Unleash Zodiac Potential in Personal Bios on Messaging Apps for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-the-edge-of-innovation-secure-these-7-must-have-devices/"><u>[Updated] In 2024, The Edge of Innovation Secure These 7 Must-Have Devices</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-stealthy-strategies-for-anonymous-instagram-broadcasts/"><u>[Updated] Stealthy Strategies for Anonymous Instagram Broadcasts</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-the-roadmap-to-irresistible-podcast-intros-and-exits/"><u>[Updated] The Roadmap to Irresistible Podcast Intros and Exits</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-top-free-ae-template-packs-for-amateurs-for-2024/"><u>[Updated] Top FREE AE Template Packs for Amateurs for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-understanding-ip-rules-for-instasongs/"><u>2024 Approved Understanding IP Rules for InstaSongs</u></a></li>
+<li><a href="https://win-blog.techidaily.com/enhancing-gameplay-fluidity-fixing-v-risings-stutter-and-frame-rate-problems-on-pc/"><u>Enhancing Gameplay Fluidity: Fixing V Rising's Stutter and Frame-Rate Problems on PC</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/grasping-the-full-potential-of-animoji-on-iphone-x/"><u>Grasping the Full Potential of Animoji on iPhone X</u></a></li>
+<li><a href="https://program-issues.techidaily.com/guilty-gear-strive-release-delayed-fans-await-confirmation/"><u>Guilty Gear Strive Release Delayed: Fans Await Confirmation</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-change-your-sim-pin-code-on-your-xiaomi-redmi-note-12t-pro-phone-by-drfone-android/"><u>In 2024, How To Change Your SIM PIN Code on Your Xiaomi Redmi Note 12T Pro Phone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-review-of-the-aging-netgear-c30er-cable-modem-and-router-combo/"><u>In-Depth Review of the Aging Netgear C30er Cable Modem and Router Combo</u></a></li>
+<li><a href="https://discover-dash.techidaily.com/top-13-freie-dvd-player-apps-fur-windows-11-eine-umfassende-liste/"><u>Top 13 Freie DVD-Player Apps Für Windows 11: Eine Umfassende Liste</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/visionpro-x-top-10-free-and-paid-alternatives-for-2024/"><u>VisionPro X Top 10 Free & Paid Alternatives for 2024</u></a></li>
+</ul></div>
 

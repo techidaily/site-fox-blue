@@ -1,7 +1,7 @@
 ---
 title: "\"Invisible Volume Tapering  A Guide for Audacity Enthusiasts\""
-date: 2024-09-08T16:44:00.471Z
-updated: 2024-09-15T17:33:50.749Z
+date: 2024-09-15T19:52:38.512Z
+updated: 2024-09-20T21:05:14.686Z
 tags: 
   - screen-recording
   - ai video
@@ -45,6 +45,13 @@ By selecting the audio segment, you wish to fade out and selecting Effect > Fade
 
 This effect is shown by Audacity as a curve that resembles the letter S. It results in a very gentle fading. After the first boom, there is utter quiet. It's a sound that actually gives off the impression of fading away over time. Using the repeat last effect, you can quickly repeat this fading option. Additionally, Ctrl + R serves as the shortcut for the same.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **How to Use Studio Fade Out:**
 
 Choose your audio segment, go to the Effect menu, slide to the bottom, and pick Studio Fade Out to apply the effect.
@@ -63,10 +70,10 @@ A dialog box will show up on the screen when you choose the customizable fade op
 ![adjustable fade audio audacity](https://images.wondershare.com/filmora/article-images/2022/07/adjustable-fade-audio-audacity.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1959759/19272" target="_top" id="1959759">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959759" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959759/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 4\. Crossfades Audacity
@@ -81,13 +88,20 @@ Select the area to be crossfaded using the Selection tool, and then click Effect
 
 ![crossafade audio with audacity](https://images.wondershare.com/filmora/article-images/2022/07/crossafade-audio-with-audacity.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915870/19272" target="_top" id="1915870">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915870/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Use your Selection tool to organize the clips such that a crossfade will be applied between two clips on different tracks. Go to Effect > Crossfade Songs, place the cursor where you want the fade to begin, then drag it across the tracks you wish to blend.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1528703/16446" target="_top" id="1528703">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528703" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528703/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 5\. Alternative Way to Fade Audio
@@ -108,19 +122,6 @@ In the step that follows, we'll show you how to use this platform to fade in and
 
 ![open filmora and import audio files](https://images.wondershare.com/filmora/guide/get-started-with-filmora-01.png)
 
-<!-- affiliate ads begin -->
-<span id="1424528">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 By choosing the Video Editor option from the software's home screen, you may now investigate the basic principles of editing. This will bring up the main interface for Filmora. To import your music and video files, just choose the Import button from the software's main screen, as seen below:
 
 ##### Step3 Open the Audio Editor in Filmora
@@ -135,13 +136,6 @@ The first step in this process is to learn how to use Filmora to start fading in
 
 ![fade in or fade out audio](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 To finish the fade-out, click and drag the other icon in Filmora to the necessary duration. You may hear the music by playing the file within the timeline of the Filmora preview layout.
 
 ##### Step5 Export the Modified File
@@ -151,10 +145,10 @@ The last step consists of downloading your modified file to your PC and storing 
 ![export the modified file](https://images.wondershare.com/filmora/guide/get-started-with-filmora-05.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -223,17 +217,18 @@ You may access a variety of tools and services on the platform known as Audacity
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-step-by-step-harvesting-hundreds-of-tiktok-videos/"><u>[New] 2024 Approved Step-by-Step Harvesting Hundreds of TikTok Videos</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-top-7-nft-maker-tools-for-digital-art-tokenization/"><u>[New] In 2024, Top 7 NFT Maker Tools for Digital Art Tokenization</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-in-2024-top-tech-gear-webcams-that-take-your-streams-up-a-notch/"><u>[Updated] In 2024, Top Tech Gear Webcams That Take Your Streams Up a Notch</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-maximizing-view-count-for-facebook-videos/"><u>2024 Approved Maximizing View Count for Facebook Videos</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/effortless-image-editing-picart-background-removal-for-2024/"><u>Effortless Image Editing PicArt Background Removal for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-the-pros-guide-to-best-ever-360-degree-cams-2023/"><u>In 2024, The Pro’s Guide to Best-Ever 360-Degree Cams, 2023</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/integrating-social-video-platforms-with-hdtv-for-2024/"><u>Integrating Social Video Platforms with HDTV for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/macx-pro-your-go-to-solution-for-free-wmv-mov-and-mpeg-to-avi-conversion-on-macos/"><u>MacX Pro: Your Go-To Solution for Free WMV, MOV, and MPEG to AVI Conversion on macOS</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/mastering-clear-communication-via-skype-for-2024/"><u>Mastering Clear Communication via Skype for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/parsing-rules-or-linguistic-fluency/"><u>Parsing Rules or Linguistic Fluency?</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/professional-tips-for-editing-and-refining-instagram-videos/"><u>Professional Tips for Editing and Refining Instagram Videos</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/spark-to-the-past-djis-mavic-air-reimagines-gameplay-for-2024/"><u>Spark to the Past? DJI's Mavic Air Reimagines Gameplay for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-behind-the-scenes-of-effective-online-streaming/"><u>[New] 2024 Approved Behind the Scenes of Effective Online Streaming</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-tweet-vids-made-easy-and-free-to-gif-transformation/"><u>[New] 2024 Approved Tweet Vids Made Easy & Free To GIF Transformation</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-cutting-edge-techniques-quickly-developing-quality-captions-for-facebook-posts-for-2024/"><u>[New] Cutting-Edge Techniques Quickly Developing Quality Captions for Facebook Posts for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-transform-your-tech-for-successful-social-media-livestreams/"><u>[New] Transform Your Tech for Successful Social Media Livestreams</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-unveiling-vrs-elite-accessories-top-10/"><u>[Updated] 2024 Approved Unveiling VR's Elite Accessories (Top 10)</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-perfect-recording-tool-for-exceptional-youtube-videos/"><u>[Updated] In 2024, Perfect Recording Tool For Exceptional YouTube Videos</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-next-gen-tech-talk-samsungs-bdplus-k850-ultra-review-for-2024/"><u>[Updated] Next-Gen Tech Talk Samsung's BD+ K850 Ultra Review for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-advanced-mac-skills-perfecting-srt-file-management/"><u>2024 Approved Advanced Mac Skills Perfecting SRT File Management</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/full-utilization-of-final-cut-pro-an-in-depth-guide/"><u>Full Utilization of Final Cut Pro An In-Depth Guide</u></a></li>
+<li><a href="https://driver-error.techidaily.com/get-mobile-os-downloadable-samsung-driver-for-windows/"><u>Get Mobile OS: Downloadable Samsung Driver for Windows</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/online-gag-artist/"><u>Online Gag Artist</u></a></li>
+<li><a href="https://apple-account.techidaily.com/why-apple-account-disabled-from-your-iphone-12-mini-how-to-fix-by-drfone-ios/"><u>Why Apple Account Disabled From your iPhone 12 mini? How to Fix</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/your-straightforward-guide-to-watching-favored-youtube-comments-for-2024/"><u>Your Straightforward Guide to Watching Favored YouTube Comments for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Maximizing B-Roll  Effective Techniques for 2024\""
-date: 2024-09-08T17:01:51.766Z
-updated: 2024-09-15T16:48:54.361Z
+date: 2024-09-18T20:19:43.313Z
+updated: 2024-09-20T20:11:23.306Z
 tags: 
   - screen-recording
   - ai video
@@ -57,33 +57,20 @@ Aerial B roll is the solution when you like to show your viewers where your film
 
 Including archival material in your video allows your audience to experience a previously covered or historically significant story as it occurred. Look at this illustration from Netflix's 14 Peaks: Nothing Is Impossible, which was made utilizing old b roll film from the era to help the viewer connect with the narrative.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3\. Storytelling b roll footage
 
 B roll footage can be used to tell a story that supports the narrative of your video. For example, in this video interview of Tom DeLonge, the speaker talks about living in a neighborhood. The B rolls show him driving around in his car, skateboarding on the street in the 90's. These add to the story the video creator wants to talk about not seeing people with a disability differently.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139107/17108" target="_top" id="2139107">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139107" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139107/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 4\. Undirected b roll footage
 
 This particular kind of B roll film is captured without any direction being given to your character, as the name suggests. For the purposes of an interview video, for instance, these can be straightforward close-up views of your character's hands and facial expressions. On the other hand, while you're doing a documentary, you might record your subject participating in everyday activities.
-
-<!-- affiliate ads begin -->
-<span id="1424529">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 5\. Atmospheric b roll footage
 
@@ -97,15 +84,22 @@ A pick-up is a tiny shot added to previously captured material. Re-shoots involv
 
 If flaws were discovered during primary photography, the directors could have requested another take. The producer and director should weigh the cost of rejoining cast and crew against the need for pick-ups or re-shoots to address storyline flaws (or worse) in the final edit.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 7\. A roll vs b roll
 
 Imagine the A roll as part of the video's story. This could be a documentary film, news show, or scripted sketch. Everything else on your editing table must be rearranged to fit it. When the speaker in the following video is directly talking to the camera or interviewer, this is A roll footage. The video's most crucial segments were filmed with primary footage.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037356/7443" target="_top" id="2037356">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037356" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037356/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -142,16 +136,20 @@ We sincerely hope that this post will be of use to you in making your films more
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-a-comprehensive-look-at-quantum-hdr/"><u>[New] 2024 Approved A Comprehensive Look at Quantum HDR</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-infinite-storage-pathways-select-services-showcase/"><u>[New] 2024 Approved Infinite Storage Pathways Select Services Showcase</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-films-best-shot-techniques-top-5-essentials/"><u>[New] Film's Best Shot Techniques Top 5 Essentials</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-a-journey-through-colors-leading-tutorials-for-grading-and-correction/"><u>[New] In 2024, A Journey Through Colors Leading Tutorials for Grading & Correction</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-integrating-automatic-speech-conversion-into-powerpoint-presentations/"><u>[Updated] 2024 Approved Integrating Automatic Speech Conversion Into PowerPoint Presentations</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-the-ultimate-mobile-cinema-showcase-apples-best-freepluspaid-film-watchers-guide-for-2024/"><u>[Updated] The Ultimate Mobile Cinema Showcase Apple's Best FREE+Paid Film Watchers Guide for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-ultimate-timeline-tools-at-no-cost/"><u>2024 Approved Ultimate Timeline Tools at No Cost</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/bringing-images-to-life-windows-and-mac-text-integration-techniques/"><u>Bringing Images to Life Windows & Mac Text Integration Techniques</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/efficient-fortnite-imagery-design-quickly/"><u>Efficient Fortnite Imagery Design Quickly</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-the-durability-and-joy-maisto-rc-rock-crawler-reviewed/"><u>Exploring the Durability and Joy: Maisto RC Rock Crawler Reviewed!</u></a></li>
-<li><a href="https://games-able.techidaily.com/reconciling-the-diversity-in-ps5-game-clubs/"><u>Reconciling the Diversity in PS5 Game Clubs</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-becoming-a-metaverse-veteran-top-7-gadgets-for-the-experts/"><u>[New] Becoming a Metaverse Veteran Top 7 Gadgets for the Experts</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-how-to-create-and-combine-high-dynamic-range-photos-with-lightroom/"><u>[New] How to Create and Combine High Dynamic Range Photos with Lightroom</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-syma-x5c-detailed-review-the-optimal-beginners-drone-for-2024/"><u>[New] Syma X5C Detailed Review The Optimal Beginner's Drone for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-accelerate-your-media-top-8-android-picks/"><u>[Updated] Accelerate Your Media Top 8 Android Picks</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-audioalert-essentials-downloading-and-editing-tamil-melodies/"><u>[Updated] In 2024, AudioAlert Essentials Downloading & Editing Tamil Melodies</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/demystifying-ai-illusions-effective-strategies-for-detecting-and-combatting-machine-learning-delusions/"><u>Demystifying AI Illusions: Effective Strategies for Detecting and Combatting Machine Learning Delusions</u></a></li>
+<li><a href="https://win-blog.techidaily.com/1723010262341-diablo-ii-resurrected-stability-enhancements-no-more-crashes/"><u>Diablo II Resurrected Stability Enhancements - No More Crashes!</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-can-i-get-more-stardust-in-pokemon-go-on-meizu-21-pro-drfone-by-drfone-virtual-android/"><u>How can I get more stardust in pokemon go On Meizu 21 Pro? | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-beginners-blueprint-mastering-movie-maker-with-windows-8/"><u>In 2024, Beginner's Blueprint Mastering Movie Maker with Windows 8</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-cinematic-upgrade-gopro-hero5-black-vs-hero4-silver-edition/"><u>In 2024, Cinematic Upgrade GoPro Hero5 Black vs Hero4 Silver Edition</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-complete-tutorial-sending-photos-from-apple-iphone-14-plus-to-ipad-drfone-by-drfone-transfer-from-ios/"><u>In 2024, Complete Tutorial Sending Photos From Apple iPhone 14 Plus to iPad | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-instantaneously-combine-photos-into-facebook-stories/"><u>In 2024, Instantaneously Combine Photos Into Facebook Stories</u></a></li>
+<li><a href="https://review-topics.techidaily.com/mov-playback-issues-on-motorola-razr-40-by-aiseesoft-video-converter-play-mov-on-android/"><u>MOV playback issues on Motorola Razr 40</u></a></li>
+<li><a href="https://win-blog.techidaily.com/quick-fixes-for-world-of-warcraft-crashing-problems-a-comprehensive-guide/"><u>Quick Fixes for 'World of Warcraft' Crashing Problems: A Comprehensive Guide</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/top-6-largest-advanced-ai-language-models/"><u>Top 6 Largest Advanced AI Language Models</u></a></li>
 </ul></div>
 

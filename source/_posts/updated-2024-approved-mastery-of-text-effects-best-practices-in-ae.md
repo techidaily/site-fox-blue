@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Mastery of Text Effects  Best Practices in AE\""
-date: 2024-07-11T12:08:16.023Z
-updated: 2024-07-12T12:08:16.023Z
+date: 2024-09-19T18:27:36.387Z
+updated: 2024-09-20T17:18:59.671Z
 tags: 
   - screen-recording
   - ai video
@@ -91,9 +91,23 @@ Step2 Go to Effects and Presets panel, search for the desired text effect preset
 
 ![preview effects and presets ae](https://images.wondershare.com/filmora/article-images/2022/09/preview-effects-and-presets-ae.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136545/16384" target="_top" id="2136545">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136545" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136545/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3 Go to Timeline and click on the text layer to expand it. Click on Animate option and select any property that you want to adjust and create animation based on the parameters. Go to Keyframe section and add keyframes and change parameters for different keyframes for the text to animate.
 
 ![add keyframes in after effects](https://images.wondershare.com/filmora/article-images/2022/09/add-keyframes-in-after-effects.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105876/7443" target="_top" id="2105876">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105876" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105876/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Apart from the animate option and its parameters, there are several parameters such as transform that you can adjust to edit the text effect as per your preference.
 
@@ -120,6 +134,19 @@ Step3 Double-click on the text layer on the timeline to edit the text preset. Yo
 Step4 Go to Animation section and click on Advanced button. Change different parameters under Customize section such as Blue, Opacity, Shadow, and much more. You can create keyframes on the timeline like AE and edit parameters as per your preference.
 
 ![add animation text in filmora](https://images.wondershare.com/filmora/article-images/2022/09/add-animation-text-in-filmora.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1912746">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 4\. Related FAQs of Title Effects in After Effects
 
@@ -173,6 +200,13 @@ If you want your text to be distorted and unusual, the skew parameter is there f
 
 Tracking refers to the spacing between the characters in a word for a text. You must have seen so many different types of text animations where the spacing between the characters is changing. You can create amazing funny and eye-catching text effects in After Effects by combining tracking and keyframe properly. Along with tracking, there is line anchor that determines the alignment of tracking. Similarly, there is line spacing parameter that controls the spacing between the lines.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 8\. Keyframe
 
 Keyframe is like stretching two points into multiple points and for every point, you can change the value of the different parameters we have mentioned. When different keyframes have different parameters, the text will automatically animate once you play the video.
@@ -217,6 +251,13 @@ Step3 Double-click on the text layer on the timeline to edit the text preset. Yo
 
 ![text preset settings filmora](https://images.wondershare.com/filmora/article-images/2022/09/text-preset-settings-filmora.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148772/18498" target="_top" id="2148772">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148772" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148772/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step4 Go to Animation section and click on Advanced button. Change different parameters under Customize section such as Blue, Opacity, Shadow, and much more. You can create keyframes on the timeline like AE and edit parameters as per your preference.
 
 ![add animation text in filmora](https://images.wondershare.com/filmora/article-images/2022/09/add-animation-text-in-filmora.jpg)
@@ -257,6 +298,21 @@ Motion title is a dynamic text effect template available in After Effects throug
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-in-depth-comparison-can-inshot-outshine-competitors/"><u>[New] 2024 Approved In-Depth Comparison Can InShot Outshine Competitors?</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-top-10-games-like-ghost-of-tsushima-you-must-try/"><u>[New] 2024 Approved Top 10 Games Like Ghost of Tsushima You Must Try</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-effortless-control-enhancing-gameplay-on-steam-using-switch-pro-for-2024/"><u>[New] Effortless Control Enhancing Gameplay on Steam Using Switch Pro for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-perfecting-your-winning-game-recording-strategy-on-w11/"><u>[New] In 2024, Perfecting Your Winning Game Recording Strategy on W11</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-virtual-frontiers-notable-vr-creators/"><u>[New] In 2024, Virtual Frontiers Notable VR Creators</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-leading-websites-for-acoustic-phone-alerts/"><u>[New] Leading Websites for Acoustic Phone Alerts</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-balance-your-shots-best-camera-stabilizers-reviewed/"><u>2024 Approved Balance Your Shots Best Camera Stabilizers Reviewed</u></a></li>
+<li><a href="https://win-blog.techidaily.com/exploring-the-causes-of-lowered-fps-in-fortnites-eighth-season/"><u>Exploring the Causes of Lowered FPS in Fortnite's Eighth Season</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-5-easy-ways-to-change-location-on-youtube-tv-on-oppo-a79-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Easy Ways to Change Location on YouTube TV On Oppo A79 5G | Dr.fone</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/in-2024-beginner-friendly-approach-to-videography-using-adobe-connect-platform/"><u>In 2024, Beginner-Friendly Approach to Videography Using Adobe Connect Platform</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-pokemon-emerald-master-ball-cheat-on-lava-yuva-2-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Pokémon Emerald Master Ball Cheat On Lava Yuva 2 | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-key-strategies-to-craft-persuasive-testimonials-that-resonate/"><u>In 2024, Key Strategies to Craft Persuasive Testimonials That Resonate</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/syncing-speed-and-quality-in-lunapic-edits-for-2024/"><u>Syncing Speed and Quality in LunaPic Edits for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/your-quick-guide-to-excellent-zoom-meetings/"><u>Your Quick Guide to Excellent Zoom Meetings</u></a></li>
+</ul></div>
 

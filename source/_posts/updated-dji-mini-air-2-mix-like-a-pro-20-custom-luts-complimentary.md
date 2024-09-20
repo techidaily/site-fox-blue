@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] DJI Mini, Air 2  Mix Like a Pro - 20 Custom LUTs Complimentary\""
-date: 2024-07-11T12:19:38.782Z
-updated: 2024-07-12T12:19:38.782Z
+date: 2024-09-19T17:09:33.269Z
+updated: 2024-09-20T18:26:03.615Z
 tags: 
   - screen-recording
   - ai video
@@ -60,6 +60,13 @@ This LUT suits well for outdoor recordings during the dawn, and it is the time w
 
 ![Free DJI LUTs - Sun Set](https://images.wondershare.com/filmora/article-images/2022/05/dji-luts-4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Sun Set
 
 ### 4\. Blue Space
@@ -86,11 +93,25 @@ The Wheat Color LUT focus on the brown shades. When you capture the landscapes a
 
 Wheat Color
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 7\. Vintage
 
 If you are interested in the old and vintage looks, then go for this LUT. When you apply this effect the entire timeline changes to its traditional appearance. It is something different from other LUTs in the collections. Many experienced photographers opt for this LUT to make the best of the captures.
 
 ![Free DJI LUTs - Vintage](https://images.wondershare.com/filmora/article-images/2022/05/dji-luts-8.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868571/19272" target="_top" id="1868571">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868571" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868571/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Vintage
 
@@ -129,6 +150,13 @@ Price: $37
 This LUT focus on the moods like weather, landscapes, happy moments, and surprise clicks. All these footage can use these moody LUTs to add flavors to the content. This LUT helps to express the emotions a little more precise.
 
 ![Paid DJI LUTs - Moody Drone LUTs](https://images.wondershare.com/filmora/article-images/2022/05/dji-luts-12.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036501/19272" target="_top" id="2036501">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036501" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036501/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Moody Drone LUTs
 
@@ -200,6 +228,13 @@ There are nearly 40 different presets available in this pack, and each one is un
 
 ![Paid DJI LUTs - DJI Drone LUTs](https://images.wondershare.com/filmora/article-images/2022/05/dji-luts-19.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1030380/11832" target="_top" id="1030380">
+  <img src="//a.impactradius-go.com/display-ad/11832-1030380" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030380/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 DJI Drone LUTs
 
 ### 9\. LUTS pro pack
@@ -264,6 +299,20 @@ Thus, you had an elaborate discussion on the DJI LUTS in detail, and you can use
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-hints.techidaily.com/new-2024-video-show-revamp-complete-analysis-and-guide/"><u>[New] 2024 Video Show Revamp - Complete Analysis & Guide</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-brush-boldly-beyond-professionals-palette-play-for-2024/"><u>[New] Brush Boldly Beyond - Professionals' Palette Play for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-calculating-best-podcast-debut-days/"><u>[New] In 2024, Calculating Best Podcast Debut Days</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-transform-your-live-broadcasting-skills-using-dslr-on-personal-computers/"><u>[New] Transform Your Live Broadcasting Skills Using DSLR on Personal Computers</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-visual-upgrades-top-apps-to-transform-your-photos/"><u>[New] Visual Upgrades Top Apps to Transform Your Photos</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-go-digital-capturing-lifes-motion-with-ios-device/"><u>[Updated] 2024 Approved Go Digital Capturing Life's Motion with iOS Device</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-2024-approved-navigating-the-world-of-vivacut-video-editing-insights/"><u>[Updated] 2024 Approved Navigating the World of VivaCut Video Editing - Insights</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-enhance-productivity-through-mematics-tools-for-2024/"><u>[Updated] Enhance Productivity Through Mematic's Tools for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/comparing-syma-x8c-to-previous-models/"><u>Comparing Syma X8C to Previous Models</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-did-your-iphone-14-pro-passcode-change-itself-unlock-it-now-by-drfone-ios/"><u>In 2024, Did Your iPhone 14 Pro Passcode Change Itself? Unlock It Now</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-your-perfect-video-presentation-toolkit-unveiling-the-best-36-tools-on-play-store/"><u>In 2024, Your Perfect Video Presentation Toolkit Unveiling the Best 36 Tools on Play Store</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unlocking-the-potential-of-alienwares-aurora-r7-a-cost-benefit-review-for-gamers/"><u>Unlocking the Potential of Alienware's Aurora R7: A Cost-Benefit Review for Gamers</u></a></li>
+<li><a href="https://win-studio.techidaily.com/1726027132587-youtube/"><u>YouTubeやその他ビデオサイトで動画撮影・保存ガイド</u></a></li>
+</ul></div>
 

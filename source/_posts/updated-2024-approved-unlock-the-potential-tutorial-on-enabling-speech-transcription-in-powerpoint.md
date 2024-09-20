@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Unlock the Potential  Tutorial on Enabling Speech Transcription in PowerPoint\""
-date: 2024-07-11T12:05:26.250Z
-updated: 2024-07-12T12:05:26.250Z
+date: 2024-09-13T16:27:08.275Z
+updated: 2024-09-20T19:25:42.260Z
 tags: 
   - screen-recording
   - ai video
@@ -57,6 +57,19 @@ Aside from the regular Cortana speech recognition on Windows, you can use the sp
 
 ![click on the search button](https://images.wondershare.com/filmora/article-images/2022/07/can-you-do-speech-to-text-in-powerpoint-4.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1993654">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How do I dictate PowerPoint for Mac?
 
 It is easy to use PowerPoint on a Mac after activating the **“dictation”** button.
@@ -75,9 +88,23 @@ It is easy to use PowerPoint on a Mac after activating the **“dictation”** b
 
 ![locate the speak option](https://images.wondershare.com/filmora/article-images/2022/07/can-you-do-speech-to-text-in-powerpoint-7.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144285/7443" target="_top" id="2144285">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144285" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144285/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **Use the speak option**
 
 Now you can click on the microphone button and speak to add text.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094482/7443" target="_top" id="2094482">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094482" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **Speak clearly, but conversationally**
 
@@ -125,6 +152,13 @@ What's more, now Filmora's STT feature supports direct transcription of bilingua
 
 [Make PPT Videos](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087409/7443" target="_top" id="2087409">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087409" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087409/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Use Filmora STT to make PowerPoint videos translation
 
 ##### Step 1
@@ -138,6 +172,19 @@ Select the audio asset in the timeline, and click the "Speech-to-Text" icon in t
 Click the "Speech-to-Text" icon, and it will show the parameter settings. You can choose the languages to be transcribed and to be transcribed to. Filmora's STT feature supports direct transcription of bilingual subtitles with up to 27 languages of transcription
 
 ![parameter setting](https://images.wondershare.com/filmora/guide/guide-win/setting-stt.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1977006">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## FAQs
 
@@ -182,6 +229,22 @@ Speech-to-text is an additional feature for all users. Typing is, however, the d
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-transform-photo-editing-with-top-lunapic-hacks/"><u>[New] 2024 Approved Transform Photo Editing with Top LunaPic Hacks</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-personalizing-interactions-deepening-connections-with-viewers/"><u>[New] Personalizing Interactions Deepening Connections with Viewers</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-elevate-your-vlogs-optimizing-title-description-and-tags/"><u>[Updated] 2024 Approved Elevate Your Vlogs Optimizing Title, Description & Tags</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-seamless-media-consumption-enable-automatic-playback-of-youtube-content-on-fb/"><u>[Updated] In 2024, Seamless Media Consumption Enable Automatic Playback of YouTube Content on FB</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-total-control-guide-powerdirector-user-manual/"><u>[Updated] In 2024, Total Control Guide PowerDirector User Manual</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-versatile-pc-software-beyond-inshot/"><u>2024 Approved Versatile PC Software Beyond Inshot</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/exploring-imovies-default-crop-settings/"><u>Exploring iMovie's Default Crop Settings</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/fresh-topics-eliciting-engagement-in-audio-formats/"><u>Fresh Topics Eliciting Engagement in Audio Formats</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-iphone-15-pro-max-without-passcode-drfone-by-drfone-ios/"><u>How to Unlock iPhone 15 Pro Max Without Passcode? | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-grasping-av1-starters-guidebook/"><u>In 2024, Grasping AV1 Starter's Guidebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-unlocks-trumps-online-accounts/"><u>Meta Unlocks Trump's Online Accounts</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/optimizing-endorsements-for-credibility-for-2024/"><u>Optimizing Endorsements for Credibility for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/silent-streamers-academy-learn-to-broadcast-on-ig-without-attention/"><u>Silent Streamers Academy Learn to Broadcast on IG without Attention</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/the-comprehensive-guide-to-video-editing-with-filmora/"><u>The Comprehensive Guide to Video Editing with Filmora</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/unlocking-successful-srt-shipping-out-of-premiere-for-2024/"><u>Unlocking Successful SRT Shipping Out of Premiere for 2024</u></a></li>
+</ul></div>
 

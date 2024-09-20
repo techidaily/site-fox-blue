@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Cutting-Edge Text Motion Designs for 2024\""
-date: 2024-09-11T16:18:55.160Z
-updated: 2024-09-15T16:12:39.386Z
+date: 2024-09-19T20:19:06.210Z
+updated: 2024-09-20T20:08:27.724Z
 tags: 
   - screen-recording
   - ai video
@@ -51,25 +51,11 @@ If you want to add texts and titles in your video that looks like the games mean
 
 ![squash stretch preset ae](https://images.wondershare.com/filmora/article-images/2022/07/squash-stretch-preset-ae.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 5\. CounterPro Preset
 
 In this pack, you will find unique text effects, and you can animate text with keyframe. You can animate numbers as well as characters, and it is mostly used to animate numbers to show counting. You can change different parameters of the animations and effects as per your preference. Furthermore, you can use it as a timer on your video to countdown. There are different styles available to apply to your texts and numbers.
 
 ![counterpro preset ae](https://images.wondershare.com/filmora/article-images/2022/07/counterpro-preset-ae.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115945/19272" target="_top" id="2115945">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115945" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115945/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 6\. Text Library
 
@@ -78,10 +64,17 @@ If there is a must-have preset you should manage to have in After Effects is Tex
 ![text library effect ae](https://images.wondershare.com/filmora/article-images/2022/07/text-library-effect-ae.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2006933/19272" target="_top" id="2006933">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006933" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006933/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 7\. Kinetic Text Animation
@@ -97,10 +90,17 @@ You get eleven styles of elements in the pack, and you can customize the designs
 ![text animation lower thirds ae](https://images.wondershare.com/filmora/article-images/2022/07/text-animation-lower-thirds-ae.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118313/7443" target="_top" id="2118313">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118313" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2111964/7443" target="_top" id="2111964">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111964" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118313/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111964/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938750/19272" target="_top" id="1938750">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938750/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The Bottom Line
@@ -137,12 +137,20 @@ As the saying goes, the more the merrier and the more presets you have, the more
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-movavi-plus-review-a-detailed-look-at-its-version/"><u>[New] 2024 Approved Movavi Plus Review – A Detailed Look at Its Version</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-the-duel-of-durability-hero-5-black-versus-keymission/"><u>[New] In 2024, The Duel of Durability HERO 5 Black Versus Keymission</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-mastering-motion-capture-top-gear-recommendations/"><u>[New] Mastering Motion Capture - Top Gear Recommendations</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-exploring-the-top-6-helmet-mounts-to-upgrade-your-adventure-photography/"><u>[Updated] In 2024, Exploring The Top 6 Helmet Mounts to Upgrade Your Adventure Photography</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-twitter-videos-at-full-hd-your-watchful-pathway/"><u>[Updated] In 2024, Twitter Videos at Full HD - Your Watchful Pathway</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-resolving-common-windows-11-photo-app-problems/"><u>[Updated] Resolving Common Windows 11 Photo App Problems</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-portuguese-dialect-dichotomy-south-america-meets-europe/"><u>The Portuguese Dialect Dichotomy: South America Meets Europe</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-methods-for-converting-twitter-videos-into-mp3-format/"><u>[New] 2024 Approved Methods for Converting Twitter Videos Into MP3 Format</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-precision-in-converting-videos-sdr-to-hdr-video-enhancement-techniques/"><u>[New] Precision in Converting Videos SDR to HDR Video Enhancement Techniques</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-snapedit-story-complete-video-editor-features/"><u>[New] SnapEdit Story – Complete Video Editor Features</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-saga-scholars-society-premier-picks/"><u>[Updated] 2024 Approved Saga Scholars Society - Premier Picks</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-best-free-pc-video-capture-software-roundup/"><u>[Updated] Best Free PC Video Capture Software Roundup</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-elite-meme-enhancer-program/"><u>[Updated] Elite Meme Enhancer Program</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-enhance-visuals-basic-ps-color-techniques/"><u>In 2024, Enhance Visuals Basic PS Color Techniques</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/inside-out-the-nikon-d7500-experience/"><u>Inside Out The Nikon D7500 Experience</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/navigating-new-frontiers-a-guide-to-metaverse-promotion/"><u>Navigating New Frontiers A Guide to Metaverse Promotion</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/oculus-favorites-the-8-highest-selling-games-for-2024/"><u>Oculus Favorites The 8 Highest-Selling Games for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/passos-essenciais-para-aprimorar-o-audio-de-seus-contenidos-multimidia-online/"><u>Passos Essenciais Para Aprimorar O Audio De Seus Contenidos Multimídia Online</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/pioneering-tech-insight-the-in-depth-journey-with-toms-hardware/"><u>Pioneering Tech Insight: The In-Depth Journey with Tom's Hardware</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/the-best-binge-worthy-series-on-twittersphere/"><u>The Best Binge-Worthy Series on Twittersphere</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-ultimate-guide-to-unlocking-your-iphone-14-plus-on-metropcs-by-drfone-ios/"><u>The Ultimate Guide to Unlocking Your iPhone 14 Plus on MetroPCS</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-tips-for-resolving-sound-card-issues-with-the-steelseries-arctis-prime-gaming-headsets-microphone/"><u>Troubleshooting Tips for Resolving Sound Card Issues with the SteelSeries Arctis Prime Gaming Headset's Microphone</u></a></li>
 </ul></div>
 

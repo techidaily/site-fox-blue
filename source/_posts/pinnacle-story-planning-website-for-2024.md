@@ -1,7 +1,7 @@
 ---
 title: "Pinnacle Story Planning Website for 2024"
-date: 2024-09-11T16:44:54.201Z
-updated: 2024-09-15T16:50:40.653Z
+date: 2024-09-14T16:15:49.345Z
+updated: 2024-09-20T18:38:16.255Z
 tags: 
   - screen-recording
   - ai video
@@ -55,27 +55,26 @@ Logline This is the only scripting website we know of that is dedicated exclusiv
 
 ![nicholl winners' scripts and formatting sample](https://images.wondershare.com/filmora/article-images/2022/08/script-writing-website-3.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1975658">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Want to see what a script good enough to win a Nicholl competition looks like? Here is a list of some of the past winners who will do so.
 
 And if you're confused about script formatting, you can also download this PDF that gives instructions on how to do it in a short scene.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 4\. [Screenwriting.io.](https://screenwriting.io/)
 
 ![screenwriting.io](https://images.wondershare.com/filmora/article-images/2022/08/script-writing-website-4.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123482/16836" target="_top" id="2123482">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123482" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123482/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 John August, the author of Go, Charlie's Angels, and Big Fish has created one of the best online screenwriting websites for answering basic questions about the craft and business of writing.
 
@@ -95,24 +94,18 @@ This is the first place I go for scripted stuff. They have an extensive catalog 
 
 ![imsdb](https://images.wondershare.com/filmora/article-images/2022/08/script-writing-website-5.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1993654">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. [Go Into the Story](https://gointothestory.blcklst.com/)
 
 ![go into the story](https://images.wondershare.com/filmora/article-images/2022/08/script-writing-website-6.jpg)
 
 I'm a huge fan of Scott Myers. He gives everything to the writer. Go Into the Story is the official blog for The **_Black List,_** the screenwriting community known for its annual list of the top ten unproduced screenplays in Hollywood. There is always a bank of scripts that you can filter.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151889/7443" target="_top" id="2151889">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151889" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. [Simply Scripts](https://www.simplyscripts.com/)
 
@@ -131,6 +124,13 @@ Again, there is not much difference between these pages. You can search by genre
 ![the screenplay database](https://images.wondershare.com/filmora/article-images/2022/08/script-writing-website-9.jpg)
 
 The script database is another useful resource with a large selection of scripts to choose from. If you're interested in a certain type of movie, the site also lets you search its library by genre, allowing you to browse the window displays and find something you didn't even know you were looking for.
+
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/1943648/22993" target="_top" id="1943648">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943648" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3\. Best 5 free websites to grace your scripts
 
@@ -151,13 +151,6 @@ In addition to being an award-winning blog, Scott's blog is also one that we vis
 Everyone seems to have advice about Hollywood, but who can you trust? John August is one of Hollywood's best screenwriters. He was nominated for an Academy Award for Big Fish and continues to work on major studio films such as Aladdin, Charlie and the Chocolate Factory and Charlie's Angels.
 
 John August's blog has become the place people go for screenwriting news and advice from someone who does it every day.
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129041/19576" target="_top" id="2129041">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129041" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129041/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3\. [StudioBinder](https://www.studiobinder.com/)
 
@@ -183,6 +176,13 @@ You can learn about character development and how to create a solid story struct
 
 ![the black list](https://images.wondershare.com/filmora/article-images/2022/08/script-writing-website-14.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 From the website, Blacklist is "...a closed network that connects script buyers, agents and screenwriters in one place". You can upload your script for a fee and then have users and readers rate it on a scale of 1-10\. It is a way to enter the digital age.
 
 The Blacklist appropriated the term from the McCarthy era of the 1950s and has since become a place where industry figures vote on their favorite projects of the year.
@@ -195,14 +195,14 @@ It has since expanded to an online database where users can submit their scripts
 
 ![using filmora](https://images.wondershare.com/filmora/article-images/2022/08/script-writing-website-15.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Users can adjust the white balance and dynamic range of their clips using the color tuning feature. The audio mixer feature allows you to change the audio of each track. The advanced text editor allows you to change the text's color, size, font, and even animation. The screen recording feature efficiently records the computer's screen and webcam. The video stabilization feature compensates for camera shake.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Conclusion
 
@@ -244,15 +244,20 @@ To write a video script quickly, you should use templates, which are designed to
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-invest-in-quality-the-finest-camera-tripods-reviewed-for-2024/"><u>[New] Invest in Quality The Finest Camera Tripods Reviewed for 2024</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-top-tech-savvy-apps-for-artful-picture-presentation/"><u>[New] Top Tech-Savvy Apps for Artful Picture Presentation</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-how-to-zoom-tiktok-videos/"><u>[Updated] In 2024, How to Zoom TikTok Videos</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-streaming-galore-top-nine-game-portals/"><u>[Updated] In 2024, Streaming Galore Top Nine Game Portals</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-public-melodies-for-calmness/"><u>[Updated] Public Melodies for Calmness</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/8-best-apps-for-screen-mirroring-xiaomi-redmi-note-13-proplus-5g-pc-drfone-by-drfone-android/"><u>8 Best Apps for Screen Mirroring Xiaomi Redmi Note 13 Pro+ 5G PC | Dr.fone</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/best-gear-for-comprehensively-filmed-action-for-2024/"><u>Best Gear for Comprehensively Filmed Action for 2024</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/1726030478625-flv/"><u>FLVファイルの編集手順：切り取り・回転・クロッピング方法</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-update-iphone-xs-max-without-itunes-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Update iPhone XS Max without iTunes? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-tecno-pova-5-drfone-by-drfone-virtual-android/"><u>Pokemon Go Error 12 Failed to Detect Location On Tecno Pova 5? | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-3dr-navigating-the-single-user-realm-of-3d-tech/"><u>[New] '3DR' Navigating the Single User Realm of 3D Tech</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-av1-triumph-surpassing-vp9-performance-for-2024/"><u>[New] AV1 Triumph Surpassing VP9 Performance for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-gag-galore-a-treasury-of-no-cost-memes/"><u>[New] Gag Galore A Treasury of No-Cost Memes</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-mastering-the-art-of-action-shots-with-gopro/"><u>[New] Mastering the Art of Action Shots with GoPro</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-exploring-drone-applications-now-and-beyond/"><u>[Updated] 2024 Approved Exploring Drone Applications Now & Beyond</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-ultimate-recorder-select-top-12-no-timer/"><u>[Updated] 2024 Approved Ultimate Recorder Select Top 12, No Timer</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-hand-tracking-insights-and-types/"><u>[Updated] Hand Tracking Insights and Types</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-high-end-broadcast-decision-pmix-vs-wirecast-for-professionals/"><u>2024 Approved High-End Broadcast Decision PMix Vs. Wirecast for Professionals</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-windows-pc-broadcasting-prodigy-mastering-the-art-of-live-tv-recording/"><u>2024 Approved Windows PC Broadcasting Prodigy Mastering the Art of Live TV Recording</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/asmr-audio-excellence-high-quality-mic-recommendations-for-2024/"><u>ASMR Audio Excellence High-Quality Mic Recommendations for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/expert-guide-to-sierras-cloud-documentation-and-drive-integration/"><u>Expert Guide to Sierra's Cloud Documentation & Drive Integration</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/expert-tips-to-solve-d3dx924dll-missing-error-quickly/"><u>Expert Tips to Solve 'd3dx9_24.dll' Missing Error Quickly</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-detect-and-stop-mspy-from-spying-on-your-oppo-k11-5g-drfone-by-drfone-virtual-android/"><u>How to Detect and Stop mSpy from Spying on Your Oppo K11 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-professional-film-techniques-for-drones/"><u>In 2024, Professional Film Techniques for Drones</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-ultimate-screenshot-and-recorder-windows-10/"><u>In 2024, Ultimate Screenshot & Recorder, Windows 10</u></a></li>
 </ul></div>
 

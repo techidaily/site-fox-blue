@@ -1,7 +1,7 @@
 ---
 title: "[New] How to Add Fonts to After Effects"
-date: 2024-09-13T17:16:44.278Z
-updated: 2024-09-15T17:00:02.071Z
+date: 2024-09-17T19:44:52.398Z
+updated: 2024-09-20T16:43:12.399Z
 tags: 
   - screen-recording
   - ai video
@@ -67,10 +67,10 @@ Adding text effects in Adobe After Effects is very easy and you can use these ef
 * After you are done, save the project and your text effects will be added to the final video successfully.
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 4\. Alternative ways to edit text fonts
@@ -85,9 +85,23 @@ These features also include adding texts and changing the fonts of those texts o
 
 ![use filmora to edit device](https://images.wondershare.com/filmora/guide/add-titles-win-1.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868571/19272" target="_top" id="1868571">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868571" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868571/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * First open that video that you want to edit in [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) and then you will be available with a tab called "Titles" on the top. Select that and select any style of title that you want to edit. There is a preview window available to look at the text fonts and designs.
 
 ![open wanted video to edit in filmora](https://images.wondershare.com/filmora/guide/add-titles-win-2.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151873/7443" target="_top" id="2151873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151873" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Select the text style you want to add for your title and then drag it from the title's library to your timeline. An alternate way to add texts or such title font is to right-click on it and select the "Apply" option.
 * Here you can also set a particular font or style for the title as your favorite by right-clicking on the library and then selecting "Add to favorites" for easy access.
@@ -106,29 +120,9 @@ These features also include adding texts and changing the fonts of those texts o
 
 ![use filmora to edit device](https://images.wondershare.com/filmora/guide/add-titles-win-1.png)
 
-<!-- affiliate ads begin -->
-<span id="1938136">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * First open that video that you want to edit in [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) and then you will be available with a tab called "Titles" on the top. Select that and select any style of title that you want to edit. There is a preview window available to look at the text fonts and designs.
 
 ![open wanted video to edit in filmora](https://images.wondershare.com/filmora/guide/add-titles-win-2.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 * Select the text style you want to add for your title and then drag it from the title's library to your timeline. An alternate way to add texts or such title font is to right-click on it and select the "Apply" option.
 * Here you can also set a particular font or style for the title as your favorite by right-clicking on the library and then selecting "Add to favorites" for easy access.
@@ -165,18 +159,18 @@ The article discussed the detailed process of **how to add font to Adobe After E
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-optimal-6-crafted-urban-home-concepts/"><u>[New] 2024 Approved Optimal 6 Crafted Urban Home Concepts</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-accelerating-instagram-videos-mobile-and-desktop-tips/"><u>[New] In 2024, Accelerating Instagram Videos Mobile & Desktop Tips</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-smartest-ways-to-track-wedding-dates-ios-and-android-style/"><u>[New] Smartest Ways to Track Wedding Dates, iOS & Android Style</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-instagram-tips-how-to-perfectly-flip-videos-on-devices/"><u>[Updated] 2024 Approved Instagram Tips How to Perfectly Flip Videos on Devices</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-from-current-applications-to-future-drone-horizons/"><u>[Updated] From Current Applications to Future Drone Horizons</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-the-ultimate-meme-playbook-no-10-essentials/"><u>[Updated] In 2024, The Ultimate Meme Playbook No. 10 Essentials</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-secrets-in-watching-the-instagram-story-narrative/"><u>[Updated] Secrets in Watching The Instagram Story Narrative</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/expertise-for-changing-meet-usernames-laptopmobile/"><u>Expertise for Changing Meet Usernames (Laptop/Mobile)</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-merging-youtube-soundtracks-to-cinematic-scenes/"><u>In 2024, Merging YouTube Soundtracks to Cinematic Scenes</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-ultimate-idevice-video-recording-guide/"><u>In 2024, Ultimate iDevice Video Recording Guide</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/novice-guide-to-earning-on-periscope-live-streaming-for-2024/"><u>Novice Guide to Earning on Periscope Live Streaming for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/streamlined-guide-5-efficient-windows-11-audio-recording-tips/"><u>Streamlined Guide 5 Efficient Windows 11 Audio Recording Tips</u></a></li>
-<li><a href="https://blog-min.techidaily.com/too-many-loud-and-intrusive-ads-a-plea-from-a-frustrated-user-to-microsoft/"><u>Too Many Loud and Intrusive Ads: A Plea From a Frustrated User to Microsoft</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-the-art-of-memetic-mastery-for-2024/"><u>[New] The Art of Memetic Mastery for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-the-solo-art-of-personalized-instagram-ringtone-making-for-2024/"><u>[New] The Solo Art of Personalized Instagram Ringtone Making for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-elite-selection-top-9-free-youtube-channel-branding-apps-for-2024/"><u>[Updated] Elite Selection Top 9 Free YouTube Channel Branding Apps for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-expert-analysis-on-slomo-video-softwares-performance-for-2024/"><u>[Updated] Expert Analysis on SloMo Video Software's Performance for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-mkv-playback-top-macos-apps-reviewed/"><u>[Updated] In 2024, MKV Playback Top macOS Apps Reviewed</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-maximize-your-window-usage-top-30-unknown-tips-and-tricks-for-windows-11/"><u>[Updated] Maximize Your Window Usage Top 30 Unknown Tips and Tricks for Windows 11</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/ai-enhanced-resume-craftsmayer-with-chatgpt-innovations/"><u>AI-Enhanced Résume Craftsmayer with ChatGPT Innovations</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/brief-blend-of-film-blueprints/"><u>Brief Blend of Film Blueprints</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-harmonizing-designs-using-color-principles-wisely/"><u>In 2024, Harmonizing Designs Using Color Principles Wisely</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-ispoofer-is-not-working-on-poco-c50-fixed-drfone-by-drfone-virtual-android/"><u>In 2024, iSpoofer is not working On Poco C50? Fixed | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-the-ultimate-guide-to-youtube-thumbnail-sizes/"><u>In 2024, The Ultimate Guide to YouTube Thumbnail Sizes</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/unparalleled-20-anime-series-themes-for-2024/"><u>Unparalleled 20 Anime Series Themes for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/your-ultimate-guide-to-erasing-backgrounds-in-picsart/"><u>Your Ultimate Guide to Erasing Backgrounds in Picsart</u></a></li>
 </ul></div>
 
