@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Principles of Plot Construction"
-date: 2024-09-19T16:24:19.503Z
-updated: 2024-09-20T17:59:15.237Z
+date: 2024-09-19T21:15:25.488Z
+updated: 2024-09-26T22:28:45.633Z
 tags: 
   - screen-recording
   - ai video
@@ -63,6 +63,19 @@ You must also include all the other elements so that no one is confused about wh
 
 Screenplays are a type of written or visual storytelling in which **dialogue, action, and description are all included**. They are typically used in the film industry to pitch a film or television show idea. They can be either fiction or nonfiction, depending on whether they use fictional stories or real-life facts.
 
+<!-- affiliate ads begin -->
+<span id="1983472">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 3\. Templates for screenplay
 
 In simple words, a screenplay format template is a ready-made structure into which characters, movements, and story elements can be inserted to create a usable screenplay. It is essentially a layout with specific characteristics that suit a particular genre of screenwriting.
@@ -75,13 +88,6 @@ A thriller script template will structure character movement, staging, and dialo
 
 We currently have screenplay format templates for nearly every theatrical and film genre, including drama, comedy, action, thriller, autobiography, and others. Each of these templates has a unique structure, but the best ones share some characteristics.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049379/7443" target="_top" id="2049379">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049379" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049379/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1\. Characteristics of the Ideal Screenplay Format Template
 
 Regardless of the screenplay genre, each screenplay template has some characteristics that set it apart from the rest. However, all ideal scenarios have the following characteristics in common:
@@ -92,6 +98,13 @@ Regardless of the screenplay genre, each screenplay template has some characteri
 * Creative space
 
 Let's look at each of the characteristics individually.
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484909/16446" target="_top" id="1484909">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484909" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484909/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. Comprehensive Layout
 
@@ -117,6 +130,13 @@ The same title page, with the same standard Courier font, text indentation, scen
 
 ![contemporary features](https://images.wondershare.com/filmora/article-images/2022/08/what-is-screenplay-4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047406/19272" target="_top" id="2047406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047406" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 However, with the advent of app-based screenwriting software, we have plenty of contemporary features such as automatic page numbers, time of day, parentheses, and pop-ups with specific character names.
 
 Even the general rule of thumb "one-page equals one minute of screen time" doesn't apply to all scripts today.
@@ -124,6 +144,13 @@ Even the general rule of thumb "one-page equals one minute of screen time" doesn
 While it's not necessary to have a fully automated script layout interface, any task that can be automated gives the writer more time for important tasks like contributing to off-screen production, recording voice-overs, etc.
 
 Plus, since most writers today prefer a smartphone to a traditional typewriter, it pays to have a screenplay editor in the palm of your hand.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4\. Configurability
 
@@ -138,10 +165,10 @@ For example, when I'm writing a character who's learning to write a book, I'd li
 Taking an unconventional approach to character development can seem counterproductive and time-consuming. However, a good script draft will allow the writer to do this without making the script unbalanced.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 5\. Creative Space
@@ -155,19 +182,6 @@ However, script templates should not be too restrictive in terms of creative fre
 For example, an ideal screenwriting template should allow one character out of several to experience a different phase of character development than the others at any point in the plot.
 
 ![creative space](https://images.wondershare.com/filmora/article-images/2022/08/what-is-screenplay-5.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1983471">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 This prevents all characters from looking and sounding like they were cast from a similar mold and have no unique development of their own.
 
@@ -217,5 +231,19 @@ The article has provided the most information about screenplays and how to write
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-sky-high-cloud-stashing-solutions-on-android/"><u>[New] 2024 Approved Sky-High Cloud Stashing Solutions on Android</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/new-2024-approved-twitters-hot-talk-hustle-1-10-viral-visits/"><u>[New] 2024 Approved Twitter's Hot Talk Hustle #1-#10 Viral Visits</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-best-open-source-image-editors-for-enthusiasts/"><u>[New] Best Open Source Image Editors for Enthusiasts</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-understanding-invisible-social-signals-in-online-media-for-2024/"><u>[New] Understanding Invisible Social Signals in Online Media for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-access-global-grooves-at-zero-price/"><u>[Updated] Access Global Grooves at Zero Price</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-fixed-eclipsed-youtube-short-video/"><u>[Updated] Fixed Eclipsed YouTube Short Video</u></a></li>
+<li><a href="https://location-social.techidaily.com/3-things-you-must-know-about-fake-snapchat-location-on-apple-iphone-11-pro-max-drfone-by-drfone-virtual-ios/"><u>3 Things You Must Know about Fake Snapchat Location On Apple iPhone 11 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/be-the-life-of-the-party-uploading-and-sharing-gifs-on-instagram-instant-guide-for-2024/"><u>Be the Life of the Party Uploading & Sharing GIFs on Instagram [Instant Guide] for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dubai-lingualab-2020-the-crucible-of-communication/"><u>Dubai LinguaLab 2020: The Crucible of Communication</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/ideal-mic-matches-for-dynamic-camera-use-for-2024/"><u>Ideal Mic Matches for Dynamic Camera Use for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-insider-knowledge-instagrams-music-copyright-landscape-decoded/"><u>In 2024, Insider Knowledge Instagram's Music Copyright Landscape Decoded</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/select-your-perfect-portable-optical-drive-expert-picks-s-market/"><u>Select Your Perfect Portable Optical Drive - Expert Picks 'S Market</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Live Life in HD with Panasonic HX-A1 Cam\""
-date: 2024-09-15T17:18:06.055Z
-updated: 2024-09-20T20:45:04.286Z
+date: 2024-09-25T19:20:55.683Z
+updated: 2024-09-26T19:32:01.254Z
 tags: 
   - screen-recording
   - ai video
@@ -43,6 +43,13 @@ thumbnail: https://thmb.techidaily.com/5a88545795b5ca3ae26e7c947a2bcf90d0830b425
 
  The elongated cylindrical body of this camera is very compact and less quirky and helps in operating it as a single component system. It is available in luminous orange and black colour variants and both of them look smart and classy. Its shock-proof, freeze-proof and dustproof makes it stand out exceptionally. It is compliant with IPX8 and thus you are free from hassles of adding a separate waterproof case! With a weight of only 45 gms, A1 is one of those few smallest action cameras which are easy and safe to carry. There is no built-in screen and the basic three buttons for its functioning rest on top of the camera, which can be termed as one of its shortcoming in design, as it tends to roll from sides when is set down, and thus can damage these controls if not kept carefully. These three buttons help in turning on the device, toggle recording and switch between video, still image and slow motion modes. Its built-in WiFi module allows the camera to connect to the smartphone and then transfer the media easily. This feature can also be used whenever you are framing up your shots, so you don’t feel lack of built-in screen.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918661/19272" target="_top" id="1918661">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918661" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918661/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Specification
 
 | Review Price                | $101.95 (Amazon)                                                                             |
@@ -67,6 +74,19 @@ thumbnail: https://thmb.techidaily.com/5a88545795b5ca3ae26e7c947a2bcf90d0830b425
 | Waterproof, dustproof, shockproof and freeze proof. No additional housing or case needed to take it underwater as a replacement glass cover for lens is also included. | Not compatible for 4K shooting                                                                         |
 | Allows to record Slow-motion and in dark also.                                                                                                                         | No HDMI output for HD movies                                                                           |
 | Plenty of optional mounts for any activities to increase its operational feasibility at every location.                                                                | Built-in battery does not allow you to swap out for a fresh one so no scope of improving battery life. |
+
+<!-- affiliate ads begin -->
+<span id="1982461">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Accessories in the box
 
@@ -134,10 +154,10 @@ thumbnail: https://thmb.techidaily.com/5a88545795b5ca3ae26e7c947a2bcf90d0830b425
  A1 connectivity to the Image App eases out its usage drastically. It gives a gateway to adjust the resolution and also provides access to various white balance options including dalylight and cloudy for outdoor and some user and automatic configured ones for indoor shoots. This app can also be used for live preview and toggling record acting as camera’s screen after complete configuration.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938716/19272" target="_top" id="1938716">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938716" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938716/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -149,10 +169,10 @@ thumbnail: https://thmb.techidaily.com/5a88545795b5ca3ae26e7c947a2bcf90d0830b425
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Max Wales
@@ -178,5 +198,26 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-access.techidaily.com/new-2024-approved-realistic-quantum-leaps-a-vfx-perspective/"><u>[New] 2024 Approved Realistic Quantum Leaps A VFX Perspective</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-comprehensive-guide-to-free-os-compatible-players-for-2024/"><u>[New] Comprehensive Guide to Free OS Compatible Players for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-evaluating-engagement-a-side-by-side-look-at-tiktok-and-snap/"><u>[New] Evaluating Engagement A Side-by-Side Look at TikTok & Snap</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-harness-the-power-of-iphones-shutter-speed-for-motion-blurs/"><u>[New] In 2024, Harness the Power of iPhone’s Shutter Speed for Motion Blurs</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-beginners-guide-to-zoom-webinars/"><u>[Updated] 2024 Approved Beginner’s Guide to Zoom Webinars</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-a-compreenas-guide-to-leveraging-ps-background-erasure-for-professional-results/"><u>[Updated] In 2024, A Compreenas Guide to Leveraging PS Background Erasure for Professional Results</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-deciphering-customization-the-art-of-iphone-rings/"><u>[Updated] In 2024, Deciphering Customization The Art of iPhone Rings</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-top-30-camcorders-directly-at-your-eyes-for-2024/"><u>[Updated] Top 30 Camcorders Directly At Your Eyes for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-unveiling-exciting-photography-aspects-of-ios-11-for-2024/"><u>[Updated] Unveiling Exciting Photography Aspects of iOS 11 for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-windows-mac-owners-discover-top-8-no-cost-4k-viewers-for-2024/"><u>[Updated] Windows Mac Owners - Discover Top 8 No-Cost 4K Viewers for 2024</u></a></li>
+<li><a href="https://location-fake.techidaily.com/3utools-virtual-location-not-working-on-vivo-v30-lite-5g-fix-now-drfone-by-drfone-virtual-android/"><u>3uTools Virtual Location Not Working On Vivo V30 Lite 5G? Fix Now | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/achieve-smooth-aquatic-vids-with-these-seven-steps-for-2024/"><u>Achieve Smooth Aquatic Vids with These Seven Steps for 2024</u></a></li>
+<li><a href="https://windows11.techidaily.com/expert-tips-for-effective-policy-reports-using-gpresult/"><u>Expert Tips for Effective Policy Reports Using GPResult</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-5-most-effective-methods-to-unlock-iphone-se-2020-in-lost-mode-by-drfone-ios/"><u>In 2024, 5 Most Effective Methods to Unlock iPhone SE (2020) in Lost Mode</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-boosting-sales-through-effective-strategies-for-channel-trailer-creation/"><u>In 2024, Boosting Sales Through Effective Strategies for Channel Trailer Creation</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/in-2024-instant-melody-broadcasting-on-dali-video/"><u>In 2024, Instant Melody Broadcasting on Dali Video</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-launching-your-first-telegram-marketing-campaign/"><u>In 2024, Launching Your First Telegram Marketing Campaign</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-youth-voices-channeling-lifes-milestinasubscriber-channel-for-impactful-personal-storytelling/"><u>In 2024, Youth Voices Channeling Life's Milestinasubscriber Channel for Impactful Personal Storytelling</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/top-tips-for-embedding-and-posting-correct-subtitles-on-twitter-instagram-for-2024/"><u>Top Tips for Embedding and Posting Correct Subtitles on Twitter, Instagram for 2024</u></a></li>
+</ul></div>
 

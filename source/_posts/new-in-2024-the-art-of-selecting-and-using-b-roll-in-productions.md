@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, The Art of Selecting and Using B-Roll in Productions\""
-date: 2024-09-14T20:13:26.041Z
-updated: 2024-09-20T18:31:03.413Z
+date: 2024-09-24T23:34:59.148Z
+updated: 2024-09-26T16:32:23.922Z
 tags: 
   - screen-recording
   - ai video
@@ -45,6 +45,13 @@ The ideal way to use B roll is to put it behind interviews. This kind of footage
 
 On the other hand, cutaways can show how different people react to what is being said in an interview. After all, transitions are commonly used to switch from one person's experience with a certain topic to another person's experience with the same topic. All of these different kinds of footage give filmmakers and videographers more freedom to tell their stories without relying too much on dialogue or narration.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934258/19272" target="_top" id="1934258">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934258" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934258/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 3\. What types of b roll are there?
 
 We'll examine the top 5 uses for B rolls across a variety of video genres and discuss how to implement them effectively in your own projects.
@@ -57,33 +64,33 @@ Aerial B roll is the solution when you like to show your viewers where your film
 
 Including archival material in your video allows your audience to experience a previously covered or historically significant story as it occurred. Look at this illustration from Netflix's 14 Peaks: Nothing Is Impossible, which was made utilizing old b roll film from the era to help the viewer connect with the narrative.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997717/19272" target="_top" id="1997717">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997717" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997717/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3\. Storytelling b roll footage
 
 B roll footage can be used to tell a story that supports the narrative of your video. For example, in this video interview of Tom DeLonge, the speaker talks about living in a neighborhood. The B rolls show him driving around in his car, skateboarding on the street in the 90's. These add to the story the video creator wants to talk about not seeing people with a disability differently.
 
-<!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123901/26106" target="_top" id="2123901">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123901" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123901/26106" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 4\. Undirected b roll footage
 
 This particular kind of B roll film is captured without any direction being given to your character, as the name suggests. For the purposes of an interview video, for instance, these can be straightforward close-up views of your character's hands and facial expressions. On the other hand, while you're doing a documentary, you might record your subject participating in everyday activities.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948949/19272" target="_top" id="1948949">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948949" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948949/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 5\. Atmospheric b roll footage
 
 When you are sharing a narrative that has been told in the past or that has historical significance, incorporating archival material into your video gives your audience the opportunity to see the story as it occurred at the time. This is especially useful when you are discussing a narrative that has been experienced in the past or that has futuristic relevance.
 
 Have a look at the scenes from the episode "14 Peaks: Nothing Is Impossible" that can be found on Netflix. As a result of the use of archive film footage of b roll from the relevant time period in its production, the audience is able to connect with the narrative on a deeper level.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049370/7443" target="_top" id="2049370">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049370" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049370/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 6\. Pick-up shots
 
@@ -92,10 +99,10 @@ A pick-up is a tiny shot added to previously captured material. Re-shoots involv
 If flaws were discovered during primary photography, the directors could have requested another take. The producer and director should weigh the cost of rejoining cast and crew against the need for pick-ups or re-shoots to address storyline flaws (or worse) in the final edit.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975802/19272" target="_top" id="1975802">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975802" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975802/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 7\. A roll vs b roll
@@ -134,5 +141,18 @@ We sincerely hope that this post will be of use to you in making your films more
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-a-treasure-trove-discovering-the-most-inspiring-5-book-tts-for-2024/"><u>[New] A Treasure Trove Discovering the Most Inspiring 5 Book TTs for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-harmonize-visual-and-auditory-elements-adding-filters-and-sound-to-windows-photos-app/"><u>[New] Harmonize Visual & Auditory Elements Adding Filters & Sound to Windows Photos App</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-ultimate-ps4-recording-in-obs-a-detailed-walkthrough/"><u>[New] In 2024, Ultimate PS4 Recording in OBS - A Detailed Walkthrough</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-capture-and-connect-dslr-tips-for-live-streaming-to-pcmac/"><u>[Updated] In 2024, Capture and Connect DSLR Tips for Live-Streaming to PC/Mac</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-how-to-send-hidden-youtube-videos-using-google-login/"><u>2024 Approved How to Send Hidden YouTube Videos Using Google Login</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-improve-engagement-with-skillful-use-of-jump-cuts/"><u>2024 Approved Improve Engagement with Skillful Use of Jump Cuts</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-funimate-decoded-a-step-by-step-journey/"><u>In 2024, Funimate Decoded A Step-by-Step Journey</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-harnessing-lut-power-for-free-high-quality-colorization/"><u>In 2024, Harnessing LUT Power for Free, High-Quality Colorization</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-10-best-spy-watches-for-your-lenovo-thinkphone-drfone-by-drfone-virtual-android/"><u>In 2024, Top 10 Best Spy Watches For your Lenovo ThinkPhone | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/maximize-viewership-with-innovative-youtube-thumbnail-ideas/"><u>Maximize Viewership with Innovative YouTube Thumbnail Ideas</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/skyrocket-your-storage-top-20-free-cloud-services-to-choose-from-1tbplus-for-2024/"><u>Skyrocket Your Storage - Top 20 Free Cloud Services to Choose From (1TB+) for 2024</u></a></li>
+</ul></div>
 
