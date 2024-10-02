@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Step-by-Step Approach to Crafting 3D Text in Photoshop\""
-date: 2024-09-15T20:06:59.271Z
-updated: 2024-09-20T17:27:13.077Z
+date: 2024-10-01T00:34:34.058Z
+updated: 2024-10-01T16:35:55.372Z
 tags: 
   - screen-recording
   - ai video
@@ -95,9 +95,23 @@ Step2 Import a background video or image by going to **My Media** and selecting 
 
 ![import media files filmora](https://images.wondershare.com/filmora/guide/get-started-with-filmora-02.png)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/999558/11832" target="_top" id="999558">
+  <img src="//a.impactradius-go.com/display-ad/11832-999558" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/999558/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3 Next, head over to **Titles** and search for "3D". Select any option you like and drag it to the Timeline, above your background clip.
 
 ![title option filmora](https://images.wondershare.com/filmora/guide/types-of-titles-win-1.png)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/798165/11305" target="_top" id="798165">
+  <img src="//a.impactradius-go.com/display-ad/11305-798165" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798165/11305" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step4 Lastly, double-click on the 3D Title clip in the Timeline and edit its settings. Type in your custom text, change its font, color, and other features.
 
@@ -106,10 +120,10 @@ Step4 Lastly, double-click on the 3D Title clip in the Timeline and edit its set
 That's it! Congratulations!. You've created a 3D text effect with Filmora in just four simple steps.
 
 <!-- affiliate ads begin -->
-<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1838960/17916" target="_top" id="1838960">
-  <img src="//a.impactradius-go.com/display-ad/17916-1838960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137207/26400" target="_top" id="2137207">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137207" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1838960/17916" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137207/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -121,10 +135,10 @@ Creating 3D text with Photoshop is a good idea if you already know how to use th
 Compared to Photoshop, Filmora is not only easier to use, but it's significantly more affordable as well. With that said, let's find out how you can create a 3D text effect in Filmora.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### How to Make a 3D Text Effect in Filmora
@@ -135,16 +149,16 @@ Step1 First, you should download Filmora and install the program on your compute
 
 ![open new project filmora](https://images.wondershare.com/filmora/guide/get-started-with-filmora-01.png)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139118/17108" target="_top" id="2139118">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139118" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139118/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step2 Import a background video or image by going to **My Media** and selecting **Import Media.** From here, select any clip or image you want and hit **Open.** When it's imported, simply drag the clip to the Timeline below.
 
 ![import media files filmora](https://images.wondershare.com/filmora/guide/get-started-with-filmora-02.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step3 Next, head over to **Titles** and search for "3D". Select any option you like and drag it to the Timeline, above your background clip.
 
@@ -182,5 +196,24 @@ Creating 3D text with Photoshop is a good idea if you already know how to use th
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-mastering-zoom-for-fb-live-broadcasts/"><u>[New] 2024 Approved Mastering Zoom for FB Live Broadcasts</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-stop-obs-from-skipping-audio/"><u>[New] 2024 Approved Stop OBS From Skipping Audio</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-essential-tips-for-magix-video-pro-x-users-for-2024/"><u>[New] Essential Tips for Magix Video Pro X Users for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-how-to-get-100k-view-on-youtube-video/"><u>[New] How to Get 100K View on YouTube Video</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-vlc-for-pc-and-mac-universal-media-solution/"><u>[New] VLC for PC & Mac Universal Media Solution</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-freeze-action-with-iphone-mastery-of-motion-blur-techniques-for-2024/"><u>[Updated] Freeze Action with iPhone Mastery of Motion-Blur Techniques for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-a-guide-to-creative-use-of-supplementary-footage-b-roll/"><u>[Updated] In 2024, A Guide to Creative Use of Supplementary Footage (B-Roll)</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-building-a-brand-through-effective-live-streaming-practices/"><u>[Updated] In 2024, Building a Brand Through Effective Live Streaming Practices</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-cinematic-capture-top-picks-from-video-experts/"><u>[Updated] In 2024, Cinematic Capture Top Picks From Video Experts</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-projecting-film-costs-for-your-music-video/"><u>[Updated] In 2024, Projecting Film Costs for Your Music Video</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-unleash-your-full-potential-in-the-metaverse/"><u>2024 Approved Unleash Your Full Potential in the Metaverse</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/boosting-detail-with-videoleaps-in-camera-zooming/"><u>Boosting Detail with VideoLeap's In-Camera Zooming</u></a></li>
+<li><a href="https://games-able.techidaily.com/budget-brilliance-top-deals-on-cost-effective-mobo/"><u>Budget Brilliance: Top Deals on Cost-Effective Mobo</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/essential-vr-games-for-oculus-users-of-all-ages/"><u>Essential VR Games for Oculus Users of All Ages</u></a></li>
+<li><a href="https://win-able.techidaily.com/illuminate-your-gameplay-essential-techniques-to-fix-minecrafts-blackout-screens-update/"><u>Illuminate Your Gameplay: Essential Techniques to Fix Minecraft's Blackout Screens Update</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-android-to-apple-how-to-transfer-photos-from-oppo-a56s-5g-to-ipad-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Android to Apple How To Transfer Photos From Oppo A56s 5G to iPad Easily | Dr.fone</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-mp4-video-metadata-management-solutions-for-2024/"><u>Updated MP4 Video Metadata Management Solutions for 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Mastering Digital Conversion  Old Photos to Video for 2024\""
-date: 2024-09-16T16:48:38.896Z
-updated: 2024-09-20T17:01:00.965Z
+date: 2024-09-27T18:26:58.108Z
+updated: 2024-10-01T23:29:58.721Z
 tags: 
   - screen-recording
   - ai video
@@ -91,11 +91,25 @@ To start with, you can just launch Filmora on your system and import your photos
 
 ![import Digitized Photos](https://images.wondershare.com/filmora/article-images/import-digitized-photos.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880972/19272" target="_top" id="1880972">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880972" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880972/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### 2\. Create a timeline for your photos
 
 Once you have imported your photos, you can include them in the timeline. To do this, you can click on the “+” button that is located on the top of the photo’s thumbnail. You can also just drag any photo and drop it on the preferred location in the timeline.
 
 ![create timeline for photos ](https://images.wondershare.com/filmora/article-images/create-timeline-for-photos.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925544/19272" target="_top" id="1925544">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925544" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925544/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### 3\. Edit the video
 
@@ -111,6 +125,13 @@ As stated above, you can find a wide range of video editing options to explore i
 
 ![Add Effects to Digitized Photos ](https://images.wondershare.com/filmora/article-images/add-effects-to-old-photo-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148772/18498" target="_top" id="2148772">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148772" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148772/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 To add text to your videos, just go to the “Titles” option here. This will let you select a text effect, letting you add the content of your choice.
 
 ![Add Title to Digitized Photos ](https://images.wondershare.com/filmora/article-images/add-title-old-photo-video.jpg)
@@ -124,6 +145,13 @@ Besides that, you can also add a track to the video by visiting the “Audio” 
 That’s it! After making all the changes, you can preview your video on the right side. If you are satisfied with the results, then click on the “Export” button from the top. This will open a dedicated window, letting you select a preferred format to export your file. You can also select a resolution for your video to adjust its size as well.
 
 ![Export Book Trailer File](https://images.wondershare.com/filmora/article-images/book-trailer-export-file.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://arkmc.pxf.io/c/5597632/352557/5172" target="_top" id="352557">
+  <img src="//a.impactradius-go.com/display-ad/5172-352557" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352557/5172" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Find more fancy ways to make the best photo and video slideshow with Filmora!
 
@@ -182,12 +210,26 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943648/22993" target="_top" id="1943648">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943648" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943648/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-reel-success-unlocking-the-best-10-text-strategies-for-videos/"><u>[New] 2024 Approved Reel Success - Unlocking the Best 10 Text Strategies for Videos</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-elevate-your-video-aesthetics-with-obss-customizable-luts-for-2024/"><u>[New] Elevate Your Video Aesthetics with OBS's Customizable LUTs for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-unleashing-classic-psp-gaming-best-ios-emulators-ranked/"><u>[New] In 2024, Unleashing Classic PSP Gaming Best iOS Emulators Ranked</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-mastering-subtitle-craft-with-the-best-online-resources-today-for-2024/"><u>[New] Mastering Subtitle Craft with The Best Online Resources Today for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-pushing-the-envelope-how-srgb-replaces-conventional-rgb-for-2024/"><u>[New] Pushing the Envelope How Srgb Replaces Conventional Rgb for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-mastering-iphone-photo-angles-flip-and-tilt-with-skill/"><u>[Updated] 2024 Approved Mastering iPhone Photo Angles Flip & Tilt with Skill</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-a-deep-dive-the-advanced-features-in-obs-recording-for-2024/"><u>[Updated] A Deep Dive The Advanced Features in OBS Recording for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-elite-cameras-perfect-for-professional-podcasting/"><u>[Updated] Elite Cameras Perfect for Professional Podcasting</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-top-tactics-for-boosting-vhs-quality-through-digital-tools/"><u>[Updated] Top Tactics for Boosting VHS Quality Through Digital Tools</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-pro-video-cinematography-choosing-the-right-lenses/"><u>2024 Approved Pro Video Cinematography Choosing the Right Lenses</u></a></li>
+<li><a href="https://program-issues.techidaily.com/avoid-game-crashes-expert-fixes-for-playing-maplestory-smoothly-on-windows-11/"><u>Avoid Game Crashes: Expert Fixes for Playing MapleStory Smoothly on Windows 11</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/beat-explorers-playlist-accessible-free-online-tools-for-2024/"><u>Beat Explorers' Playlist Accessible, Free Online Tools for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/expert-advice-on-efficient-webp-images-transition-to-jpeg/"><u>Expert Advice on Efficient WebP Images Transition to JPEG</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-factory-unlock-your-telstra-apple-iphone-14-by-drfone-ios/"><u>How To Factory Unlock Your Telstra Apple iPhone 14</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-simulate-gps-movement-with-location-spoofer-on-tecno-spark-20c-drfone-by-drfone-virtual-android/"><u>In 2024, How To Simulate GPS Movement With Location Spoofer On Tecno Spark 20C? | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-ranking-win11s-best-no-cost-screen-recording-software/"><u>In 2024, Ranking Win11's Best No-Cost Screen Recording Software</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/photographic-magic-the-best-grid-tools-ranked-for-2024/"><u>Photographic Magic - The Best Grid Tools Ranked for 2024</u></a></li>
+<li><a href="https://win-able.techidaily.com/solution-found-fixing-the-ominous-black-screen-in-star-wars-battlefront-ii-gameplay/"><u>Solution Found! Fixing the Ominous Black Screen in Star Wars Battlefront II Gameplay</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/the-best-ispoofer-alternative-to-try-on-oneplus-nord-ce-3-lite-5g-drfone-by-drfone-virtual-android/"><u>The Best iSpoofer Alternative to Try On OnePlus Nord CE 3 Lite 5G | Dr.fone</u></a></li>
+</ul></div>
 

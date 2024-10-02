@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Zipping Down Peaks  Top Moments From Olympic Snowboard Cross Event\""
-date: 2024-09-19T20:32:32.180Z
-updated: 2024-09-27T01:00:05.192Z
+date: 2024-09-29T05:40:35.300Z
+updated: 2024-10-01T17:15:36.701Z
 tags: 
   - screen-recording
   - ai video
@@ -82,10 +82,10 @@ Motion Tracking - Motion tracking could be the x-factor in any sports event high
 Texts and Voiceover - Most highlight videos show titles and texts over the still photos of the event so that the viewers can understand the highlights and moments easily. The titles and texts are shown with animation for better traction. However, there are many professional video creators who prefer voiceover instead of showing texts as voiceover gives a life to the video.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868495/19272" target="_top" id="1868495">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868495" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037335/7443" target="_top" id="2037335">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037335" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868495/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037335/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### A Professional [Video Editor](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -110,70 +110,12 @@ Step 4: Now add the imported media files to Video Timeline and audio files such 
 
 ![filmora edit videos](https://images.wondershare.com/filmora/article-images/edit-recordings-filmora.jpg)
 
-Step 5: Select slides and add Transitions, Effects, Titles and Elements from the top bar as in the screenshot.
-
-When everything is finished, click on Export to save the video.
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049390/7443" target="_top" id="2049390">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049390" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049390/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-## The Bottom Line
-
-To sum it up all, the women's snowboard cross event of Winter Olympics 2022 has been spectacular from all perspectives. Snowboarder Lindsey Jacobellis of the United States has won the gold medal after 16 years and she corrected her blunder that she made 16 years ago. We have illustrated how to create awesome snowboard cross finals and highlights videos with Filmora.
-
-## Part 2\. Create a Video to Save the Highlights of Snowboard Cross
-
-When you check out high-quality snowboard cross highlights videos online, you will find that there are certain elements that are common across all such videos. Starting from video effects and video editing to audio additions, here are all the common features used in snowboard cross highlights.
-
-Pan and Zoom - You will see that still photos are slowly zooming and finally focusing on the main athlete in a group competition. This effect is called pan and zoom effect and it is currently the trending feature in a highlight video with still footage.
-
-Transition - Transition effects are the most commonly used effects in a highlight video where still photos are used continuously. The transition effects make shifting from one photo to another smooth and eye-pleasing. The video editor you choose to make your highlight video should have ample number of transition effects.
-
-Slow Motion - You need to have slow motion effect on your snowboard cross finals. This is because you will have to allow your viewers to check out the video footages comfortably to understand the best moments. There is no doubt that video footages are the main selling point in a highlight video and therefore, you have to give enough time on the clips that you collect from social media platforms.
-
-Motion Tracking - Motion tracking could be the x-factor in any sports event highlight video. Motion tracking is highlighting a particular athlete such as the winner throughout a video clip so that the viewers could understand who the winner is and how he performed. You can highlight the athlete through motion tracking by attaching arrow, text, clipart and likewise.
-
-Texts and Voiceover - Most highlight videos show titles and texts over the still photos of the event so that the viewers can understand the highlights and moments easily. The titles and texts are shown with animation for better traction. However, there are many professional video creators who prefer voiceover instead of showing texts as voiceover gives a life to the video.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-### A Professional [Video Editor](https://tools.techidaily.com/wondershare/filmora/download/)
-
-You need to have all the above-mentioned video effects and audio options in the video editor that you choose to make your video highlights. We recommend Wondershare Filmora where all the features and options are readily available. In fact, there are over 800 effects and options available to make professional-quality snowboard cross Olympics 2022 highlights. Here are the steps to make highlights video with Filmora.
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-For Win 7 or later (64-bit)
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-For macOS 10.12 or later
-
-Step 1: Launch Filmora and click on New Project. Go to File > Project Settings and set aspect ratio, resolution and even frame rate.
-
-![filmora screen recorder](https://images.wondershare.com/filmora/article-images/filmora-record-screen.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2141684/17092" target="_top" id="2141684">
-  <img src="//a.impactradius-go.com/display-ad/17092-2141684" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141684/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-Step 3: Go to Import > Import with Instant Cutter Tool. Import and trim all the still and video footage of snowboard cross finals that you have collected.
-
-Step 4: Now add the imported media files to Video Timeline and audio files such as music and voiceover to the Audio Timeline.
-
-![filmora edit videos](https://images.wondershare.com/filmora/article-images/edit-recordings-filmora.jpg)
 
 Step 5: Select slides and add Transitions, Effects, Titles and Elements from the top bar as in the screenshot.
 
@@ -197,6 +139,13 @@ Motion Tracking - Motion tracking could be the x-factor in any sports event high
 
 Texts and Voiceover - Most highlight videos show titles and texts over the still photos of the event so that the viewers can understand the highlights and moments easily. The titles and texts are shown with animation for better traction. However, there are many professional video creators who prefer voiceover instead of showing texts as voiceover gives a life to the video.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### A Professional [Video Editor](https://tools.techidaily.com/wondershare/filmora/download/)
 
 You need to have all the above-mentioned video effects and audio options in the video editor that you choose to make your video highlights. We recommend Wondershare Filmora where all the features and options are readily available. In fact, there are over 800 effects and options available to make professional-quality snowboard cross Olympics 2022 highlights. Here are the steps to make highlights video with Filmora.
@@ -224,22 +173,15 @@ Step 5: Select slides and add Transitions, Effects, Titles and Elements from the
 When everything is finished, click on Export to save the video.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2075483/7443" target="_top" id="2075483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075483" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075483/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The Bottom Line
 
 To sum it up all, the women's snowboard cross event of Winter Olympics 2022 has been spectacular from all perspectives. Snowboarder Lindsey Jacobellis of the United States has won the gold medal after 16 years and she corrected her blunder that she made 16 years ago. We have illustrated how to create awesome snowboard cross finals and highlights videos with Filmora.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 2\. Create a Video to Save the Highlights of Snowboard Cross
 
@@ -255,6 +197,71 @@ Motion Tracking - Motion tracking could be the x-factor in any sports event high
 
 Texts and Voiceover - Most highlight videos show titles and texts over the still photos of the event so that the viewers can understand the highlights and moments easily. The titles and texts are shown with animation for better traction. However, there are many professional video creators who prefer voiceover instead of showing texts as voiceover gives a life to the video.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+### A Professional [Video Editor](https://tools.techidaily.com/wondershare/filmora/download/)
+
+You need to have all the above-mentioned video effects and audio options in the video editor that you choose to make your video highlights. We recommend Wondershare Filmora where all the features and options are readily available. In fact, there are over 800 effects and options available to make professional-quality snowboard cross Olympics 2022 highlights. Here are the steps to make highlights video with Filmora.
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+For Win 7 or later (64-bit)
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+For macOS 10.12 or later
+
+Step 1: Launch Filmora and click on New Project. Go to File > Project Settings and set aspect ratio, resolution and even frame rate.
+
+![filmora screen recorder](https://images.wondershare.com/filmora/article-images/filmora-record-screen.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938682/19272" target="_top" id="1938682">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938682" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938682/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+Step 3: Go to Import > Import with Instant Cutter Tool. Import and trim all the still and video footage of snowboard cross finals that you have collected.
+
+Step 4: Now add the imported media files to Video Timeline and audio files such as music and voiceover to the Audio Timeline.
+
+![filmora edit videos](https://images.wondershare.com/filmora/article-images/edit-recordings-filmora.jpg)
+
+Step 5: Select slides and add Transitions, Effects, Titles and Elements from the top bar as in the screenshot.
+
+When everything is finished, click on Export to save the video.
+
+## The Bottom Line
+
+To sum it up all, the women's snowboard cross event of Winter Olympics 2022 has been spectacular from all perspectives. Snowboarder Lindsey Jacobellis of the United States has won the gold medal after 16 years and she corrected her blunder that she made 16 years ago. We have illustrated how to create awesome snowboard cross finals and highlights videos with Filmora.
+
+## Part 2\. Create a Video to Save the Highlights of Snowboard Cross
+
+When you check out high-quality snowboard cross highlights videos online, you will find that there are certain elements that are common across all such videos. Starting from video effects and video editing to audio additions, here are all the common features used in snowboard cross highlights.
+
+Pan and Zoom - You will see that still photos are slowly zooming and finally focusing on the main athlete in a group competition. This effect is called pan and zoom effect and it is currently the trending feature in a highlight video with still footage.
+
+Transition - Transition effects are the most commonly used effects in a highlight video where still photos are used continuously. The transition effects make shifting from one photo to another smooth and eye-pleasing. The video editor you choose to make your highlight video should have ample number of transition effects.
+
+Slow Motion - You need to have slow motion effect on your snowboard cross finals. This is because you will have to allow your viewers to check out the video footages comfortably to understand the best moments. There is no doubt that video footages are the main selling point in a highlight video and therefore, you have to give enough time on the clips that you collect from social media platforms.
+
+Motion Tracking - Motion tracking could be the x-factor in any sports event highlight video. Motion tracking is highlighting a particular athlete such as the winner throughout a video clip so that the viewers could understand who the winner is and how he performed. You can highlight the athlete through motion tracking by attaching arrow, text, clipart and likewise.
+
+Texts and Voiceover - Most highlight videos show titles and texts over the still photos of the event so that the viewers can understand the highlights and moments easily. The titles and texts are shown with animation for better traction. However, there are many professional video creators who prefer voiceover instead of showing texts as voiceover gives a life to the video.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### A Professional [Video Editor](https://tools.techidaily.com/wondershare/filmora/download/)
 
 You need to have all the above-mentioned video effects and audio options in the video editor that you choose to make your video highlights. We recommend Wondershare Filmora where all the features and options are readily available. In fact, there are over 800 effects and options available to make professional-quality snowboard cross Olympics 2022 highlights. Here are the steps to make highlights video with Filmora.
@@ -280,13 +287,6 @@ Step 4: Now add the imported media files to Video Timeline and audio files such 
 Step 5: Select slides and add Transitions, Effects, Titles and Elements from the top bar as in the screenshot.
 
 When everything is finished, click on Export to save the video.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## The Bottom Line
 
@@ -316,22 +316,24 @@ To sum it up all, the women's snowboard cross event of Winter Olympics 2022 has 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-from-novice-to-pro-mastering-spotify-advertisement-techniques/"><u>[New] 2024 Approved From Novice to Pro Mastering Spotify Advertisement Techniques</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-harmony-in-transit-relocating-your-loved-songs/"><u>[New] 2024 Approved Harmony in Transit Relocating Your Loved Songs</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/new-chucklecanvas-funny-images-for-social-media-sharing/"><u>[New] ChuckleCanvas Funny Images for Social Media Sharing</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-enhancing-engagement-on-video-calls-using-snap-features/"><u>[Updated] 2024 Approved Enhancing Engagement on Video Calls Using Snap Features</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-essential-strategies-for-successful-zoom-meetings-using-win10/"><u>[Updated] In 2024, Essential Strategies for Successful Zoom Meetings Using WIN10</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-the-economics-of-youtube-marketing-strategies/"><u>[Updated] In 2024, The Economics of YouTube Marketing Strategies</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-chromatic-soundscapes-selecting-the-right-tune/"><u>2024 Approved Chromatic Soundscapes Selecting the Right Tune</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-top-10-budget-friendly-cloud-service-providers/"><u>2024 Approved Top 10 Budget-Friendly Cloud Service Providers</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/clearviewenlarge-7-image-size-tailored-for-you-for-2024/"><u>ClearViewEnlarge 7 Image Size Tailored for You for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/essential-video-communication-tools-list/"><u>Essential Video Communication Tools List</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-avoiding-compression-larger-youtube-videos/"><u>In 2024, Avoiding Compression Larger YouTube Videos</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-unbeatable-summer-movie-list-10-familial-classics/"><u>In 2024, Unbeatable Summer Movie List 10 Familial Classics</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-video-download-signed-talent-contracts/"><u>In 2024, Video Download - Signed Talent Contracts</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-wins-for-windows-11-users-for-2024/"><u>New Wins for Windows 11 Users for 2024</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/pioneering-your-way-to-effective-ai-dialogues/"><u>Pioneering Your Way to Effective AI Dialogues</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/pros-and-cons-of-opting-for-a-local-llm-is-it-the-right-choice/"><u>Pros & Cons of Opting for a Local LLM: Is It the Right Choice?</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/top-actions-cameras-reviewed-hero5-vs-yi-in-the-spotlight/"><u>Top Actions Cameras Reviewed Hero5 Vs. YI in the Spotlight</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-taking-the-leap-secrets-for-free-fcp-acquisition/"><u>[New] 2024 Approved Taking the Leap Secrets for Free FCP Acquisition</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-ai-powered-virtual-patient-interactions/"><u>[New] AI-Powered Virtual Patient Interactions</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-mastering-the-social-media-game-the-best-30-nicknames-for-tiktok-for-2024/"><u>[New] Mastering the Social Media Game The Best 30 Nicknames for TikTok for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-perfecting-aerial-images-key-factors-in-picking-a-gimbal-for-2024/"><u>[New] Perfecting Aerial Images Key Factors in Picking a Gimbal for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-top-tier-talk-transcribers-in-schools/"><u>[New] Top-Tier Talk Transcribers in Schools</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-unleashing-originality-in-virtual-meme-worlds-for-2024/"><u>[New] Unleashing Originality in Virtual Meme Worlds for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-fast-forward-features-unveiled-the-editors-guidebook/"><u>[Updated] Fast-Forward Features Unveiled The Editor's Guidebook</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-harnessing-royalty-free-graphics-a-compreeved-guide-for-2024/"><u>[Updated] Harnessing Royalty-Free Graphics A Compreeved Guide for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-specter-3-challenge-golem-4s-arrival/"><u>[Updated] Specter 3 Challenge Golem 4'S Arrival</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-unleash-your-time-potential-with-gratuitous-clock-tools-for-2024/"><u>[Updated] Unleash Your Time Potential with Gratuitous Clock Tools for 2024</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/installing-your-favorite-streams-a-comprehensive-walkthrough-for-the-ccloud-addon-on-kodi-leia-update/"><u>Installing Your Favorite Streams: A Comprehensive Walkthrough for the cCloud Addon on Kodi Leia Update</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/ios-vs-android-evaluating-the-distinct-features-of-the-app-store-and-google-play-stores/"><u>IOS vs Android: Evaluating The Distinct Features of the App Store and Google Play Stores</u></a></li>
+<li><a href="https://fox-that.techidaily.com/struggling-with-iphone-vpn-connection-here-are-7-fixes-that-work/"><u>Struggling with iPhone VPN Connection? Here Are 7 Fixes That Work</u></a></li>
+<li><a href="https://win-forum.techidaily.com/transform-your-mod-videos-into-mp4-seamlessly-free-online-tool-by-movavi/"><u>Transform Your MOD Videos Into MP4 Seamlessly - Free Online Tool by Movavi</u></a></li>
+<li><a href="https://windows11.techidaily.com/troubleshooting-code-0x0001-for-nvidia-experience-in-windows/"><u>Troubleshooting Code 0X0001 for Nvidia Experience in Windows</u></a></li>
+<li><a href="https://games-able.techidaily.com/unlock-free-fun-on-switch-curated-collection/"><u>Unlock Free Fun on Switch: Curated Collection</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-in-2024-discover-the-best-animation-creators-for-every-level-of-expertise/"><u>Updated In 2024, Discover the Best Animation Creators for Every Level of Expertise</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/vivid-verbiage-instagrams-guide-to-animation-for-captions-for-2024/"><u>Vivid Verbiage Instagram's Guide to Animation for Captions for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/ways-to-find-unlocking-codes-for-motorola-moto-g13-phones-by-drfone-android/"><u>Ways To Find Unlocking Codes For Motorola Moto G13 Phones</u></a></li>
 </ul></div>
 

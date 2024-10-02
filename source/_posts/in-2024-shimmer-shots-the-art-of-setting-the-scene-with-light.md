@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Shimmer Shots  The Art of Setting the Scene with Light\""
-date: 2024-09-23T18:18:27.117Z
-updated: 2024-09-26T16:07:32.551Z
+date: 2024-09-25T04:50:50.764Z
+updated: 2024-10-02T02:32:19.241Z
 tags: 
   - screen-recording
   - ai video
@@ -98,10 +98,16 @@ We usually set the lights around 50% brightness and a color temperature of 5600K
 ![the light setting](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-9.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880944/19272" target="_top" id="1880944">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880944" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880944/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1770776">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Summary
@@ -138,14 +144,22 @@ Hopefully, you learned something about lighting by taking a look at our setup. I
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/new-audireview-listening-and-recording-evaluation-for-2024/"><u>[New] Audireview Listening & Recording Evaluation for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-transform-your-devices-tone-swiftly-with-these-leading-chrome-apps-for-2024/"><u>[New] Transform Your Device's Tone Swiftly With These Leading Chrome Apps for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-from-vision-to-execution-the-full-spectrum-of-personal-branding-on-youtube/"><u>[Updated] 2024 Approved From Vision to Execution The Full Spectrum of Personal Branding on YouTube</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-geniusedit-ai-precision-in-photo-mastery/"><u>2024 Approved GeniusEdit AI Precision in Photo Mastery</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-streamline-projects-with-free-video-intros/"><u>2024 Approved Streamline Projects with Free Video Intros</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-supreme-selection-ideal-sierra-dvd-and-video-apps/"><u>2024 Approved Supreme Selection Ideal Sierra Dvd & Video Apps</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-top-12-budget-friendly-high-performing-video-players-pcandroid-devices/"><u>2024 Approved Top 12 Budget-Friendly, High-Performing Video Players PC/Android Devices</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-ultimate-picture-narrative-craft-pro-edition/"><u>2024 Approved Ultimate Picture Narrative Craft - Pro Edition</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/the-top-picks-excellent-fb-lite-video-downloaders-of-2023/"><u>The Top Picks Excellent FB Lite Video Downloaders of 2023</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-instantly-accessible-music-mixes-assembling-youtube-playlists-webmobile-style/"><u>[New] 2024 Approved Instantly Accessible Music Mixes Assembling YouTube Playlists Web/Mobile Style</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-becoming-an-expert-in-lut-technology/"><u>[New] Becoming an Expert in LUT Technology</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-flying-economically-top-five-drones-(100-price-tag/"><u>[New] In 2024, Flying Economically Top Five Drones <$100 Price Tag</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-windows-11-discover-new-apps-and-games-now/"><u>[New] In 2024, Windows 11 Discover New Apps & Games Now</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-tale-transmogrifiers-guild-elite-eight/"><u>[New] Tale Transmogrifiers Guild – Elite Eight</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-enhancing-detail-in-youtube-clips/"><u>[Updated] 2024 Approved Enhancing Detail in YouTube Clips</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-transform-your-visual-storytelling-with-luts-in-ae/"><u>[Updated] In 2024, Transform Your Visual Storytelling with LUTs in AE</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-wallet-friendly-cloud-cabinetry-big-files-cheap-storage/"><u>[Updated] Wallet-Friendly Cloud Cabinetry Big Files Cheap Storage</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-youtube-essentials-for-successful-channel-creation/"><u>[Updated] Youtube Essentials for Successful Channel Creation</u></a></li>
+<li><a href="https://change-location.techidaily.com/detailed-guide-of-ispoofer-for-pogo-installation-on-samsung-galaxy-xcover-7-drfone-by-drfone-virtual-android/"><u>Detailed guide of ispoofer for pogo installation On Samsung Galaxy XCover 7 | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/digital-draw-dance-windows-and-mac-cartoony-creators-guide/"><u>Digital Draw-Dance Windows & Mac Cartoony Creator's Guide</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-come-up-with-the-best-pokemon-team-on-poco-c51-drfone-by-drfone-virtual-android/"><u>How to Come up With the Best Pokemon Team On Poco C51? | Dr.fone</u></a></li>
+<li><a href="https://article-files.techidaily.com/leverage-advanced-transcription-tools-within-microsoft-word-to-boost-productivity/"><u>Leverage Advanced Transcription Tools Within Microsoft Word to Boost Productivity</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/mastering-ev-charging-in-your-garage-a-complete-guide-for-personal-use/"><u>Mastering EV Charging in Your Garage: A Complete Guide for Personal Use</u></a></li>
+<li><a href="https://program-issues.techidaily.com/team-fortress-2-no-more-crashing-a-step-by-step-fix-for-constant-breakdowns/"><u>Team Fortress 2 No More Crashing - A Step-by-Step Fix for Constant Breakdowns</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-fiscal-perspective-of-sony-dsc-w800-investing-in-quality-not-just-price/"><u>The Fiscal Perspective of Sony DSC-W800 - Investing in Quality, Not Just Price</u></a></li>
+<li><a href="https://program-issues.techidaily.com/troubleshooting-tips-addressing-fortnites-out-of-memory-situation/"><u>Troubleshooting Tips: Addressing Fortnite’s Out-of-Memory Situation</u></a></li>
 </ul></div>
 
