@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Aerial Artistry in Motion  Examining GoPro Karma Performance\""
-date: 2024-09-27T16:44:43.313Z
-updated: 2024-10-01T18:45:19.565Z
+date: 2024-10-01T00:02:58.713Z
+updated: 2024-10-07T08:07:05.762Z
 tags: 
   - screen-recording
   - ai video
@@ -57,10 +57,10 @@ thumbnail: https://thmb.techidaily.com/a0a9154950aed42e7733b765877eaeb4a66b52b52
  The overall verdict is that this is a fantastic drone for capturing stunning images but it doesn't have the easy flying mode or the battery life to compete with some of the best drones available at the same price point. Although you might have to sacrifice a bit in image quality when compared to a GoPro camera with some competitors, it's often worth it for value knowing that you can capture the shot and maintain control over your drone.
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Detailed review for GoPro Karma
@@ -100,10 +100,10 @@ thumbnail: https://thmb.techidaily.com/a0a9154950aed42e7733b765877eaeb4a66b52b52
 ![gopro karma controller](https://images.wondershare.com/filmora/article-images/gopro-karma-controller.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2027181/19272" target="_top" id="2027181">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027181" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027181/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  One thing that the GoPro Karma did especially well was creating a beautiful controller. The RC controller is relatively small but it feels exactly like playing a videogame with plenty of functions and no need to have a compatible device to use the drone. The other extremely strong point is the camera. Nobody can build a great outdoor camera that is it as resilient as a GoPro with the Hero 5 Black version of this drone capable of shooting in 4K with an astounding video quality, you can catch some amazing video as well as incredible still images on this drone.
@@ -115,10 +115,10 @@ Overall, the GoPro Karma is a fairly strong showing for a drone. Although it can
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016134/19272" target="_top" id="2016134">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016134" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016134/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Max Wales
@@ -146,16 +146,21 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-video-recordings.techidaily.com/new-earnings-demystified-youtube-shorts-revenue-split-explained/"><u>[New] Earnings Demystified YouTube Shorts Revenue Split Explained</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-essential-principles-of-animated-visual-content/"><u>[New] In 2024, Essential Principles of Animated Visual Content</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-10-best-asmr-recorders-for-exceptional-audio-quality-for-2024/"><u>[Updated] 10 Best ASMR Recorders for Exceptional Audio Quality for 2024</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-stream-like-a-pro-integrate-your-obs-setup-for-youtube-and-twitch/"><u>[Updated] Stream Like a Pro Integrate Your OBS Setup for YouTube & Twitch</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-the-storyline-secret-to-youtube-triumph/"><u>[Updated] The Storyline Secret to YouTube Triumph</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-expert-guide-to-screen-zooming-on-microsoft-teams/"><u>2024 Approved Expert Guide to Screen Zooming on Microsoft Teams</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-melodic-matchmaking-complementary-soundtracks-for-boxings/"><u>2024 Approved Melodic Matchmaking Complementary Soundtracks for Boxings</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/critical-takeaways-from-testing-a-troublesome-and-expensive-microsoft-surface-duo/"><u>Critical Takeaways From Testing a Troublesome & Expensive Microsoft Surface Duo</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-mirthful-mayhem-a-top-20-list-of-hilarious-tiktok-jokes-and-riddles/"><u>In 2024, Mirthful Mayhem A Top 20 List of Hilarious TikTok Jokes & Riddles</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-unlocking-the-potential-of-gopros-burst-functionality/"><u>In 2024, Unlocking the Potential of GoPro's Burst Functionality</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/is-your-device-truly-experiencing-dolby-atmos-audio-quality/"><u>Is Your Device Truly Experiencing Dolby Atmos Audio Quality?</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-from-concept-to-classroom-a-guide-to-creating-engaging-edu-videos-on-youtube/"><u>[New] In 2024, From Concept to Classroom A Guide to Creating Engaging Edu-Videos on YouTube</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-leading-vr-accessories-the-top-10-countdown/"><u>[New] Leading VR Accessories The Top 10 Countdown</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-the-ultimate-route-to-record-your-favorite-streaming-content-hulu-for-2024/"><u>[New] The Ultimate Route to Record Your Favorite Streaming Content (Hulu) for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-easysnap-win11-no-hassle-just-screenshots/"><u>[Updated] EasySnap Win11 No Hassle, Just Screenshots</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-add-auditory-components-to-premiere-pro-videos/"><u>2024 Approved Add Auditory Components to Premiere Pro Videos</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-elevate-your-podcasts-name-game-10-ai-powered-options/"><u>2024 Approved Elevate Your Podcast's Name Game 10 AI-Powered Options</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-font-fusion-merging-style-and-content-in-after-effects/"><u>2024 Approved Font Fusion Merging Style & Content in After Effects</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-master-the-quick-and-easy-photo-fixes-in-windows/"><u>2024 Approved Master the Quick & Easy Photo Fixes in Windows</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-mastering-livestran-interactions-with-these-ten-backtrack-techniques/"><u>2024 Approved Mastering Livestran Interactions with These Ten Backtrack Techniques</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-mastering-the-art-of-minuscule-web-pixels/"><u>2024 Approved Mastering the Art of Minuscule Web Pixels</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-pinnacle-of-video-quality-the-best-5-low-speed-recorders/"><u>2024 Approved Pinnacle of Video Quality The Best 5 Low-Speed Recorders</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-unveiling-secrets-phantoms-slow-motion-techniques/"><u>2024 Approved Unveiling Secrets Phantom's Slow Motion Techniques</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/leading-edge-in-photo-editing-top-6-signature-removers-unveiled/"><u>Leading Edge in Photo Editing Top 6 Signature Removers Unveiled</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/pivoting-from-srt-to-subtitle-format-for-2024/"><u>Pivoting From SRT to Subtitle Format for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/running-out-of-room-on-your-android-phone-or-tablet-learn-easy-techniques-for-assessing-and-enhancing-storage-capacity/"><u>Running Out of Room on Your Android Phone or Tablet? Learn Easy Techniques for Assessing and Enhancing Storage Capacity</u></a></li>
+<li><a href="https://techtrends.techidaily.com/shell32dll-missing-discover-effective-fixes-here/"><u>Shell32.dll Missing? Discover Effective Fixes Here</u></a></li>
 </ul></div>
 

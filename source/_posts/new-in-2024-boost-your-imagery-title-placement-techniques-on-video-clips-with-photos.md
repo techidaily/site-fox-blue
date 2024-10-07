@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Boost Your Imagery  Title Placement Techniques on Video Clips with Photos\""
-date: 2024-09-13T17:58:15.332Z
-updated: 2024-09-20T18:39:43.457Z
+date: 2024-10-03T09:08:49.818Z
+updated: 2024-10-06T17:43:25.089Z
 tags: 
   - screen-recording
   - ai video
@@ -56,6 +56,13 @@ Do you wish to add titles/text to video on Photos in Windows 10 for your video p
 * Select the best-animated text fonts to suit the background. There are different layouts for each of the font style. Preview the animation by using Playback Control. If the text is not animating, you may try to increase the duration to 3-4 seconds that works well
 * For addition of credits, try to use the Classic text style. Put each of the credits in a new line and do give credits to yourself as well
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How to Make Text Move in Windows 10 Photos App
 
 The Photos app in Windows 10 is even easier than the old Windows Movie Maker. You do not need a sharp learning curve for using this app and any beginner can use it with ease and comfort. The Photos app has an anchoring system along with the text tool that makes the text move with the video images. Here’s how you can make the text move in Windows 10 Photos app-
@@ -67,11 +74,25 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/effects-photos.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144282/7443" target="_top" id="2144282">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144282" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144282/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Some of the effects might not have the option to move or anchor but if you choose the one that does allow moving of texts, you get an option to attach once you select it
 * Pin the slider in Attach to a point at the On position
 * To add the 3D moving image, drag the blue anchor to the object you’d like to attach and wait as it process
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/attach-effects-photos-min.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975821/19272" target="_top" id="1975821">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975821" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975821/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * To increase or decrease the length of animation time, adjust the slider
 
@@ -84,6 +105,13 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 To add titles/text to video on Photos in Windows 10 and to make the text move with the Windows 10 Photos app, follow the above steps and get going easily. The steps are really simple and you just need to understand and apply the steps for successfully adding texts to your videos.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -108,12 +136,26 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2112007/7443" target="_top" id="2112007">
-  <img src="//a.impactradius-go.com/display-ad/7443-2112007" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112007/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-ice-warriors-battle-the-spectacular-winter-olympics-snowboard-showdown/"><u>[New] Ice Warriors Battle - The Spectacular Winter Olympics Snowboard Showdown</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-pro-level-streaming-tech-innovations-you-need-for-2024/"><u>[New] Pro-Level Streaming Tech Innovations You Need for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-top-6-slide-show-creation-apps-on-latest-iphones-for-2024/"><u>[New] Top 6 Slide Show Creation Apps on Latest iPhones for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-ideal-approaches-to-stream-and-record-major-sports-games/"><u>[Updated] In 2024, Ideal Approaches to Stream and Record Major Sports Games</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-quick-guide-iphones-easiest-screen-recording-method/"><u>[Updated] In 2024, Quick Guide IPhone's Easiest Screen Recording Method</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-no-pay-unlock-fcp-paths-to-a-free-edit-suite/"><u>[Updated] No Pay? Unlock FCP Paths to a Free Edit Suite</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/best-ways-on-how-to-unlockbypassswiperemove-infinix-smart-8-pro-fingerprint-lock-by-drfone-android/"><u>Best Ways on How to Unlock/Bypass/Swipe/Remove Infinix Smart 8 Pro Fingerprint Lock</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/complete-resolution-for-zooms-dark-display-dilemma-on-computers-guide-updated/"><u>Complete Resolution for Zoom's Dark Display Dilemma on Computers (Guide Updated )</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/masters-top-ten-female-gaming-influencers-for-2024/"><u>Game Masters Top Ten Female Gaming Influencers for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/how-to-overcome-error-code-54-on-iphone-troubleshooting-itunes-sync-issues-after-windows-11-upgrade/"><u>How to Overcome Error Code -54 on iPhone: Troubleshooting iTunes Sync Issues After Windows 11 Upgrade</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-reset-the-security-questions-of-your-apple-id-from-your-iphone-14-pro-max-by-drfone-ios/"><u>How To Reset the Security Questions of Your Apple ID From Your iPhone 14 Pro Max</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-seo-enhanced-title-builder-for-peak-video-visibility/"><u>In 2024, SEO-Enhanced Title Builder for Peak Video Visibility</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-top-10-miniature-portable-dvd-systems-unveiled/"><u>In 2024, Top 10 Miniature Portable DVD Systems Unveiled</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-video-editing-vs-visual-effects-premiere-vs-after-effects-explained/"><u>New Video Editing vs Visual Effects Premiere vs After Effects Explained</u></a></li>
+<li><a href="https://program-issues.techidaily.com/now-running-smoothly-solve-your-total-war-saga-troy-pc-glitches-with-latest-update/"><u>Now Running Smoothly: Solve Your Total War Saga: Troy PC Glitches with Latest Update</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/ranking-the-leading-free-srt-translation-tools/"><u>Ranking the Leading Free SRT Translation Tools</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/revolutionizing-your-phones-storage-space-with-these-47-effective-video-trimmers/"><u>Revolutionizing Your Phone's Storage Space with These 47 Effective Video Trimmers</u></a></li>
+<li><a href="https://win-dash.techidaily.com/step-by-step-guide-to-updating-your-brother-hl-l2300d-printer-driver-download/"><u>Step by Step Guide to Updating Your Brother HL-L2300D Printer Driver Download</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/streamlining-skype-calls-with-advanced-zoom-use-for-2024/"><u>Streamlining Skype Calls with Advanced Zoom Use for 2024</u></a></li>
+</ul></div>
 

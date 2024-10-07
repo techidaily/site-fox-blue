@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Leading Heavy-Duty UAVs for Maximum Carry Capacity\""
-date: 2024-09-15T20:25:17.272Z
-updated: 2024-09-20T19:08:28.922Z
+date: 2024-10-01T17:30:09.014Z
+updated: 2024-10-07T12:53:52.363Z
 tags: 
   - screen-recording
   - ai video
@@ -55,6 +55,13 @@ Here are the best heavy lifting drones available in 2020, broken into over-10 kg
 | [FREEFLY ALTA 8](#freefly)                     | 18kg                                    | 16min       |       |
 | [ONYXSTAR HYDRA-12](#hydra12)                  | 12kg                                    | 30min       |       |
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868495/19272" target="_top" id="1868495">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868495" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868495/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Heavy lifting Drones: Under-10kg payload
 
 #### 1\. Tarot T-18 Ready To Fly Drone
@@ -95,6 +102,13 @@ With the capability of taking off with a payload of about 6 kg, the DJI Matrice 
 
 The DJI's Matrice 100 combines the benefits of an easy-to-fly quadocpter with the ability to deliver a relatively good sized payload of around 3.6 kg. The X-configuration of the drone provides the perfect support for the on-board 4K camera, as well as space to add a supported third-party camera (like a GoPro.) With a flight time of around 50 min., the DJI's Matrice 100 is the perfect tool for anyone who needs a drone that can handle slightly heavier lifts.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139115/17108" target="_top" id="2139115">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139115" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139115/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Heavy lifting Drones: Over-10kg payload
 
 #### 1\. Vulcan UAV Airlift
@@ -113,6 +127,13 @@ As the need for drones that can do some seriously heavy lifting has increased, t
 
 ![vulcan uav raven](https://images.wondershare.com/filmora/article-images/vulcan-uav-raven.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938745/19272" target="_top" id="1938745">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938745" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938745/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 The Vulcan UAV Raven is an absolute workhorse of a multicopter. Purpose-designed to be able to handle the toughest of jobs, this drone is capable of carrying a payload of up to 20 kg thanks to its high-grade carbon fibre and aluminium frame. This tough design is also one of the most safe drones on the market, as the Vulcan UAV Raven is built to be able to survive within the tough, and demanding worlds of both commercial and personal usage.
 
 #### 4\. [FREEFLY ALTA 8](https://www.amazon.com/gp/product/B01IPYJM8I/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01IPYJM8I&linkId=94a786b60aab874baf4feb7315107813)
@@ -130,6 +151,13 @@ Building off of an already sturdy line of drones, the Freefly ALTA 8 is the perf
 The HYDRA-12 was purpose-designed to be able to help you handle heavy payloads with absolute ease. Thanks to its 12 motors, this drone is capable of carrying a payload of up to 12 kg effectively and smoothly. Thanks to the HYDRA-12's ability to carry heavy payloads the possibilities for this drone are nearly endless. What is impossible for many drones on the market, the HYDRA-12 will do with great ease. And with a 30 min. flight time, you will have a lot of time in the air to get your job done.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148648/16836" target="_top" id="2148648">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148648" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148648/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
@@ -156,12 +184,26 @@ Follow @Liza Brown
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037355/7443" target="_top" id="2037355">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037355" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037355/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-leveraging-data-key-performance-indicators-for-igtv-videos/"><u>[New] 2024 Approved Leveraging Data Key Performance Indicators for IGTV Videos</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-optimal-avi-playback-software-for-pcmobile-users-for-2024/"><u>[New] Optimal AVI Playback Software for PC/Mobile Users for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-optimizing-googles-automatic-speech-recognition-features-for-2024/"><u>[New] Optimizing Google's Automatic Speech Recognition Features for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-the-artisan-editor-refining-video-transitions-with-inshot/"><u>[New] The Artisan Editor Refining Video Transitions with Inshot</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-transformative-visual-experiences-with-tiktok-enhancements-for-2024/"><u>[New] Transformative Visual Experiences with TikTok Enhancements for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-amplifying-photos-through-acoustics-internet-based/"><u>[Updated] Amplifying Photos Through Acoustics, Internet-Based</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-how-to-infuse-life-into-phototext-with-3d-effects/"><u>[Updated] In 2024, How to Infuse Life Into PhotoText with 3D Effects</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-masterful-filmmaking-moves-with-kinemaster/"><u>[Updated] Masterful Filmmaking Moves with Kinemaster</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-overcoming-the-crashes-in-windows-11s-photos-application/"><u>2024 Approved Overcoming the Crashes in Windows 11'S Photos Application</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/conjure-humorous-content-for-online-community-giphy/"><u>Conjure Humorous Content for Online Community, Giphy</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/deciphering-disguised-dialogues-with-youtube-viewers-for-2024/"><u>Deciphering Disguised Dialogues with YouTube Viewers for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/gigglegridiron-craft-memes-from-anywhere-anytime-for-2024/"><u>GiggleGridiron Craft Memes From Anywhere, Anytime for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-at-the-helm-of-augmented-perception-tools/"><u>In 2024, At the Helm of Augmented Perception Tools</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-remove-a-previously-synced-google-account-from-your-oneplus-11r-by-drfone-android/"><u>In 2024, How to Remove a Previously Synced Google Account from Your OnePlus 11R</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-subtle-symmetry-balancing-visuals-like-a-pro/"><u>In 2024, Subtle Symmetry Balancing Visuals Like a Pro</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-most-useful-tips-for-pokemon-go-ultra-league-on-oppo-reno-10-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, The Most Useful Tips for Pokemon Go Ultra League On Oppo Reno 10 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/quietude-quotient-windowsmac-music-control-for-2024/"><u>Quietude Quotient Windows/Mac Music Control for 2024</u></a></li>
+<li><a href="https://driver-install.techidaily.com/startech-windows-drives-mended-across-xp-to-11/"><u>StarTech Windows Drives Mended Across XP to 11</u></a></li>
+<li><a href="https://fake-location.techidaily.com/ultimate-guide-to-free-pptp-vpn-for-beginners-on-oppo-find-n3-flip-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Free PPTP VPN For Beginners On Oppo Find N3 Flip | Dr.fone</u></a></li>
+</ul></div>
 

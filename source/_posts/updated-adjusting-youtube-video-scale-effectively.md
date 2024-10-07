@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Adjusting YouTube Video Scale Effectively"
-date: 2024-09-29T18:09:18.573Z
-updated: 2024-10-01T23:14:28.324Z
+date: 2024-09-30T21:26:18.344Z
+updated: 2024-10-07T05:33:00.222Z
 tags: 
   - screen-recording
   - ai video
@@ -59,26 +59,26 @@ Step2Drag and drop the target YouTube video on Filmora into Project Media folder
 
 ![drag video into project media folder ](https://images.wondershare.com/filmora/guide/get-started-with-filmora-02.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3Thereafter, drag and drop the YouTube video file from Project Media folder into Timeline. Click on Crop icon located at the top of the timeline.
 
 ![drag video file into timeline](https://images.wondershare.com/filmora/guide/filmora-split-button.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484950/16446" target="_top" id="1484950">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484950" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484950/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step4From Crop window, go to Pan & Zoom section. Place the rectangular box on that portion of the video which you want to zoom in. Mark the start and end of the video for pan and zoom effect. Play the video to watch how the effect unfolds. Finally, click on OK button.
 
 ![go to pan zoom section](https://images.wondershare.com/filmora/guide/crop-video-filmora.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037358/7443" target="_top" id="2037358">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037358" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139117/17108" target="_top" id="2139117">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139117" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037358/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139117/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 If you want, you can export the edited video in any desired file format directly from [Filmora](https://tools.techidaily.com/wondershare/filmora/download/).
@@ -93,18 +93,18 @@ Step2From the top, click on Create button and select Upload Videos. Add the down
 
 ![youtube built in editor zoom](https://images.wondershare.com/filmora/article-images/2022/07/zoom-in-youtube-2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484939/16446" target="_top" id="1484939">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484939" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484939/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3After uploading, click on the Video and select Editor option from the left menu.
 
 Step4You will find Zoom in and Zoom out icon below the video preview. Here, zoom in means the timeline gets zoomed so that you can check out the video frame by frame to find out all the details in any portion of the video.
 
 ![zoom in out youtube video](https://images.wondershare.com/filmora/article-images/2022/07/zoom-in-youtube-3.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139117/17108" target="_top" id="2139117">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139117" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139117/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## The Bottom Line
 
@@ -127,10 +127,10 @@ Step4From Crop window, go to Pan & Zoom section. Place the rectangular box on th
 ![go to pan zoom section](https://images.wondershare.com/filmora/guide/crop-video-filmora.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 If you want, you can export the edited video in any desired file format directly from [Filmora](https://tools.techidaily.com/wondershare/filmora/download/).
@@ -145,18 +145,18 @@ Step2From the top, click on Create button and select Upload Videos. Add the down
 
 ![youtube built in editor zoom](https://images.wondershare.com/filmora/article-images/2022/07/zoom-in-youtube-2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step3After uploading, click on the Video and select Editor option from the left menu.
 
 Step4You will find Zoom in and Zoom out icon below the video preview. Here, zoom in means the timeline gets zoomed so that you can check out the video frame by frame to find out all the details in any portion of the video.
 
 ![zoom in out youtube video](https://images.wondershare.com/filmora/article-images/2022/07/zoom-in-youtube-3.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## The Bottom Line
 
@@ -186,19 +186,22 @@ There are several ways you can zoom into YouTube videos to check out the desired
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-premium-8-editors-compatible-with-linux/"><u>[New] 2024 Approved Premium 8 Editors Compatible with Linux</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-9-premier-apps-for-extracting-and-saving-youtube-videos-on-android-for-2024/"><u>[New] 9 Premier Apps for Extracting and Saving YouTube Videos on Android for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-does-your-channel-benefit-from-regular-youtube-payments/"><u>[New] Does Your Channel Benefit From Regular YouTube Payments?</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-powerful-payload-the-elite-airborne-workhorses/"><u>[New] Powerful Payload The Elite Airborne Workhorses</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-sharpfocusx7-size-your-photography-right/"><u>[Updated] 2024 Approved SharpFocusX7 Size Your Photography Right</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-top-sites-for-fetching-got-ringtone-downloads/"><u>[Updated] 2024 Approved Top Sites for Fetching GoT Ringtone Downloads</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-discover-the-secrets-to-customizing-game-sounds-with-our-step-by-step-process-no-charge/"><u>[Updated] Discover the Secrets to Customizing Game Sounds with Our Step-by-Step Process (No Charge!)</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-from-novice-to-pro-the-complete-guide-to-greenscreen-in-kinemaster/"><u>[Updated] From Novice to Pro The Complete Guide to Greenscreen in KineMaster</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-perfecting-soundtracks-top-10-microphones/"><u>2024 Approved Perfecting Soundtracks Top 10 Microphones</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/2024-approved-srgb-efficiency-against-basic-rgb/"><u>2024 Approved Srgb Efficiency Against Basic Rgb</u></a></li>
-<li><a href="https://change-location.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-vivo-y27-4g-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Vivo Y27 4G | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-methods-to-change-gps-location-on-tecno-spark-20-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, Methods to Change GPS Location On Tecno Spark 20 Pro+ | Dr.fone</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-navigating-virtual-realms-the-finest-vr-technology/"><u>In 2024, Navigating Virtual Realms The Finest VR Technology</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-5-car-locator-apps-for-honor-magic-5-drfone-by-drfone-virtual-android/"><u>Top 5 Car Locator Apps for Honor Magic 5 | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-elite-insight-parrots-second-gen-drone-20/"><u>[New] Elite Insight Parrot's Second-Gen Drone 2.0</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-vision-and-craft-best-cinematography-practices-for-2024/"><u>[New] Vision and Craft Best Cinematography Practices for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-ultimate-drone-video-editing-guide-for-experts-and-novices/"><u>[Updated] In 2024, Ultimate Drone Video Editing Guide for Experts and Novices</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-superior-video-playback-on-ios-top-10-app-picks/"><u>[Updated] Superior Video Playback on iOS Top 10 App Picks</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/ai-assistants-showdown-is-it-snapchats-my-ai-or-chatgpt-for-you/"><u>AI Assistants Showdown: Is It Snapchat's My AI or ChatGPT for You?</u></a></li>
+<li><a href="https://win-answers.techidaily.com/beat-pc-crash-woes-with-these-9-effective-tips-for-stable-gameplay-in-ark-survival-evolved/"><u>Beat PC Crash Woes with These 9 Effective Tips for Stable Gameplay in ARK: Survival Evolved</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/expert-endorsed-ae-text-tools-for-2024/"><u>Expert-Endorsed AE Text Tools for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/how-to-fix-unfortunately-contacts-has-stopped-error-on-honor-magic-6-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Unfortunately, Contacts Has Stopped Error on Honor Magic 6 | Dr.fone</u></a></li>
+<li><a href="https://techtrends.techidaily.com/how-to-set-a-timer-on-an-iphone-camera/"><u>How to Set a Timer on an iPhone Camera</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-iphones-viewpoint-vista-selecting-superior-shots-for-images/"><u>In 2024, IPhone's Viewpoint Vista Selecting Superior Shots for Images</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-professional-filmmaking-optics-that-elevate-4k-vision/"><u>In 2024, Professional Filmmaking Optics That Elevate 4K Vision</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/optimal-live-video-distributors-suite-for-2024/"><u>Optimal Live Video Distributors' Suite for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-poco-c51-drfone-by-drfone-virtual-android/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On Poco C51 | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/remove-google-frp-lock-on-blaze-2-pro-by-drfone-android-unlock-remove-google-frp/"><u>Remove Google FRP lock on Blaze 2 Pro</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/revolutionizing-video-creation-with-magix-video-pro-x-for-2024/"><u>Revolutionizing Video Creation with Magix Video Pro X for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/ultimate-guide-resolving-windows-driver-power-state-issues/"><u>Ultimate Guide: Resolving Windows Driver Power State Issues</u></a></li>
+<li><a href="https://windows11.techidaily.com/windows-11-guide-unique-monitors-wallpapers-tips/"><u>Windows 11 Guide: Unique Monitors Wallpapers Tips</u></a></li>
 </ul></div>
 
