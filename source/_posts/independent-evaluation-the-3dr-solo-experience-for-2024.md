@@ -1,7 +1,7 @@
 ---
 title: "\"Independent Evaluation  The '3DR' Solo Experience for 2024\""
-date: 2024-09-15T16:15:14.720Z
-updated: 2024-09-20T20:00:55.463Z
+date: 2024-10-06T18:13:17.767Z
+updated: 2024-10-12T22:53:27.233Z
 tags: 
   - screen-recording
   - ai video
@@ -53,6 +53,13 @@ thumbnail: https://thmb.techidaily.com/91d5be9a6861c4c9aa999253b8784315fe4d3aae2
 
  The 3DR solo drone is designed to serve with amazing aerial photography functions that is why it is one of the most preferred drones by cinematographers. One can easily connect it with GoPro cameras to get stunning shots on height. But the downside is its short battery life and weak GPS.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151893/7443" target="_top" id="2151893">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151893" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151893/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Complete Review
 
 #### 1\. Basic Specs Info
@@ -72,6 +79,13 @@ thumbnail: https://thmb.techidaily.com/91d5be9a6861c4c9aa999253b8784315fe4d3aae2
 
 ![3dr solo design](https://images.wondershare.com/filmora/article-images/3dr-solo-design.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094480/7443" target="_top" id="2094480">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094480" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094480/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [Check at Amazon](https://www.amazon.com/gp/product/B00ZPM7BOG/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00ZPM7BOG&linkId=5a8069fda1f7be3bf48e831452f3ee9d)
 
  People call 3DR Solo one of the most impressive drone with minimal complexities in design. It is the best product for cinematographic needs and you could easily imagine it hovering on the top to capture scenes for Hollywood movies. You will find a 5200mAh battery on top portion of this drone, located near power button. It appears little heavier with the gimbal, camera and battery installation, the overall weight goes up to 3.35 pounds. Note that, you need to get your drone registered with FAA to organise its flights because the weight goes above 0.5 pounds limit. You will find indicating LEDs on this device that keep on indicating full status during its flights and they can be observed in day light too. Users need to connect this device with a smartphone or iOS device to avail full control as well as to get live preview of shoots.
@@ -88,6 +102,19 @@ thumbnail: https://thmb.techidaily.com/91d5be9a6861c4c9aa999253b8784315fe4d3aae2
 
 ![3dr solo controller](https://images.wondershare.com/filmora/article-images/3dr-solo-controller.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1975636">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  The 3DR solo controller appears trendy with just two joysticks that offer direct control to acceleration, yaw, pitch and roll. The fly button can be accessed for initiated automated landing and takeoff. A tiny screen is provided to display continuous information about battery condition and telemetry data. One additional knob is available for adjustments of camera angle controls. Other then this you will find one customizable button to activate autonomous flight mode. It also provides one pause button that helps users to make their drone stable in air. All other controls can be managed from application.
 
 #### 6\. Camera
@@ -101,6 +128,13 @@ thumbnail: https://thmb.techidaily.com/91d5be9a6861c4c9aa999253b8784315fe4d3aae2
 **You may also like:** [10 Must Have drone accessories and parts](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997675/19272" target="_top" id="1997675">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997675" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997675/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Max Wales
 
@@ -125,12 +159,24 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134229/18498" target="_top" id="2134229">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134229" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134229/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-cut-the-cord-clutter-simultaneous-playthrough-of-videos/"><u>[New] 2024 Approved Cut the Cord Clutter Simultaneous Playthrough of Videos</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-frostbite-fame-highlights-of-cold-climates-games-for-2024/"><u>[New] Frostbite Fame Highlights of Cold Climates Games for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-essential-tips-to-avoid-obs-framing-errors/"><u>[Updated] 2024 Approved Essential Tips to Avoid OBS Framing Errors</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-foundations-of-frame-and-frequency-in-visual-media/"><u>[Updated] 2024 Approved Foundations of Frame and Frequency in Visual Media</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-perfect-harmony-music-in-instagram-storytelling/"><u>[Updated] 2024 Approved Perfect Harmony Music in Instagram Storytelling</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-perfect-photo-finishes-picarts-background-erase-method/"><u>[Updated] 2024 Approved Perfect Photo Finishes PicArt's Background Erase Method</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-prime-prospects-the-hottest-google-cardboard-vr-gaming-titles/"><u>[Updated] In 2024, Prime Prospects The Hottest Google Cardboard VR Gaming Titles</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-unlocking-google-docs-transcription-your-complete-manual/"><u>[Updated] Unlocking Google Docs Transcription Your Complete Manual</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/crafting-quality-content-setting-up-your-mac-for-minecraft-sessions/"><u>Crafting Quality Content Setting Up Your Mac for Minecraft Sessions</u></a></li>
+<li><a href="https://fake-location.techidaily.com/does-life360-notify-when-you-log-out-on-xiaomi-mix-fold-3-drfone-by-drfone-virtual-android/"><u>Does Life360 Notify When You Log Out On Xiaomi Mix Fold 3? | Dr.fone</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/from-download-to-implementation-installing-obs-on-a-macpc-for-2024/"><u>From Download to Implementation Installing OBS on a MacPC for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-changeadd-location-filters-on-snapchat-for-your-asus-rog-phone-8-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change/Add Location Filters on Snapchat For your Asus ROG Phone 8 | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-xiaomi-redmi-note-13-proplus-5g-pin-codepattern-lockpassword-by-drfone-android/"><u>In 2024, How to Unlock Xiaomi Redmi Note 13 Pro+ 5G PIN Code/Pattern Lock/Password</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-photographic-prowess-with-an-insight-into-lut-functionality/"><u>In 2024, Photographic Prowess with an Insight Into LUT Functionality</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-premier-selection-of-iphone-x876-compatible-gif-apps/"><u>In 2024, Premier Selection of iPhone X/8/7/6-Compatible GIF Apps</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-ultimate-selection-of-cameras-for-film-production/"><u>In 2024, Ultimate Selection of Cameras for Film Production</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/who-is-your-invisible-chatterbox-insights-into-the-dead-internet-concept-and-virtual-dialogues/"><u>Who Is Your Invisible Chatterbox?: Insights Into the Dead Internet Concept and Virtual Dialogues</u></a></li>
+</ul></div>
 

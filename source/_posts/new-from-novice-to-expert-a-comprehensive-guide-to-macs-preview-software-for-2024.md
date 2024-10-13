@@ -1,7 +1,7 @@
 ---
 title: "\"[New] From Novice to Expert  A Comprehensive Guide to Mac's Preview Software for 2024\""
-date: 2024-10-03T17:38:42.003Z
-updated: 2024-10-06T23:36:13.454Z
+date: 2024-10-06T17:07:53.776Z
+updated: 2024-10-13T01:38:00.361Z
 tags: 
   - screen-recording
   - ai video
@@ -41,6 +41,13 @@ Being the default image editor for Mac, Apple tried to make the **Preview app** 
 
 The instructions given in the following sections explain how to edit pictures with the **Preview app for Mac**:
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How to View and Edit Photos in Preview on Mac
 
 As mentioned earlier, the **Preview app** is a default photo viewer on Mac that also has many editing tools. Therefore:
@@ -55,13 +62,6 @@ As mentioned earlier, the **Preview app** is a default photo viewer on Mac that 
 * Use the tools present on the standard toolbar at the top of the interface
 * Alternatively, click **Tools** from the top, and choose your preferred editing option from the menu
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1030380/11832" target="_top" id="1030380">
-  <img src="//a.impactradius-go.com/display-ad/11832-1030380" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030380/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### How to Show Markup Tools in Preview on Mac
 
 Markup Tools gives easy access to the editing tools the **Preview app** has. By default, Markup Tools is kept hidden, but automatically becomes visible when you make some changes to the image. However, you can follow the process given below to manually show Markup Tools in Preview:
@@ -75,13 +75,6 @@ Click the **Show Markup Toolbar** icon present at the upper-right area to reveal
 Click the **Hide Markup Tools** icon from the upper-right area to hide **Markup Toolbar**.
 
 **Note:** Throughout this demonstration, the **Markup Toolbar** is kept visible to access the editing tools easily.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068412/7443" target="_top" id="2068412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068412" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068412/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### How to Crop in Preview
 
@@ -99,13 +92,6 @@ Drag the mouse pointer over the area of the photo you want to keep. If need be, 
 
 Keeping the area of interest on the photo selected, click **Crop** from the **Markup Toolbar** at the top to crop the image.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### How to Rotate Image in Preview
 
 Rotating an image in the **Preview app** is fairly simple. To do so:
@@ -117,6 +103,13 @@ Use the method explained above to open the photo in Preview.
 **Step 2: Rotate the Image**
 
 Click the **Rotate Left** icon from the upper-right area of the standard toolbar to rotate the image anticlockwise. Alternatively, you can also click **Tools** from the top, and choose your preferred rotation direction or flipping orientation from the menu that comes down next.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975816/19272" target="_top" id="1975816">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975816" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975816/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### How to Add Text to Image in Preview
 
@@ -133,6 +126,13 @@ Click inside the frame, delete the existing placeholder text, and type a new cap
 **Step 3: Format the Text**
 
 Select the text, click the **Text Style** icon from the **Markup Toolbar**, and change font, size, color, etc. using the available options.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082542/7443" target="_top" id="2082542">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082542" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082542/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### How to Remove Background in Preview
 
@@ -179,10 +179,10 @@ After opening an image, click **File** from the menu bar at the top, and click *
 Choose a destination folder in the **Where** field, select your preferred format from the **Format** drop-down list, and click **Save** to convert the image.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037346/7443" target="_top" id="2037346">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037346" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105883/7443" target="_top" id="2105883">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105883" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037346/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105883/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Part 2: FAQs About Preview App on Mac
@@ -244,17 +244,19 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-design-unique-outro-videos-without-paying-a-penny/"><u>[New] 2024 Approved Design Unique Outro Videos Without Paying a Penny</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-2024-approved-evaluating-professional-filmmaking-tools-filmora-and-democreator/"><u>[New] 2024 Approved Evaluating Professional Filmmaking Tools Filmora & Democreator</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-apple-melodies-enhancing-visual-storytelling-for-2024/"><u>[Updated] Apple Melodies Enhancing Visual Storytelling for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-elite-streaming-gear-top-hd-360-cameras-compared/"><u>[Updated] Elite Streaming Gear Top HD 360° Cameras Compared</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-twitch-revival-tactics-for-forgotten-sessions/"><u>[Updated] In 2024, Twitch Revival Tactics for Forgotten Sessions</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/1726029232795-ts/"><u>効率的にTSファイルカット: ステップバイステップガイド</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/eradicating-windows-update-issue-x8019/"><u>Eradicating Windows Update Issue X8019</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/scripts-to-screen-making-youtube-splits/"><u>From Scripts to Screen Making YouTube Splits</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/harmony-in-chat-blending-music-into-status-for-2024/"><u>Harmony in Chat Blending Music Into Status for 2024</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-best-3-xiaomi-redmi-note-12r-emulator-for-mac-to-run-your-wanted-android-apps-drfone-by-drfone-android/"><u>In 2024, Best 3 Xiaomi Redmi Note 12R Emulator for Mac to Run Your Wanted Android Apps | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/the-artists-toolbox-essential-video-tips-for-musicians-on-youtube-for-2024/"><u>The Artist's Toolbox Essential Video Tips for Musicians on YouTube for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/unleashing-virtual-reality-the-ultimate-iphone-experience-for-2024/"><u>Unleashing Virtual Reality The Ultimate IPhone Experience for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-jump-to-youtube-affiliate-ranking-with-a-swift-10000-views/"><u>[New] 2024 Approved Jump to YouTube Affiliate Ranking with a Swift 10,000 Views</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-hook-creating-headline-helper/"><u>[New] Hook-Creating Headline Helper</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-find-your-favorite-with-these-top-5-iphone-podcast-services/"><u>[New] In 2024, Find Your Favorite with These Top 5 iPhone Podcast Services</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-key-applications-for-superior-vtuber-audible-identity/"><u>[New] Key Applications for Superior Vtuber Audible Identity</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-navigating-the-world-of-srts-a-complete-tutorial-and-advice/"><u>[New] Navigating the World of SRTs A Complete Tutorial and Advice</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-price-tracker-for-cloud-space-services-a-detailed-review/"><u>[Updated] 2024 Approved Price Tracker for Cloud Space Services A Detailed Review</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/boost-visual-impact-selecting-excellent-edges-for-instagram-shots-for-2024/"><u>Boost Visual Impact Selecting Excellent Edges for Instagram Shots for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-oneplus-ace-2v-location-on-skout-drfone-by-drfone-virtual-android/"><u>How to Change OnePlus Ace 2V Location on Skout | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-masterful-manipulation-speedy-stylization-techniques-for-win10-apps/"><u>In 2024, Masterful Manipulation Speedy Stylization Techniques for WIN10 Apps</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-watching-social-media-videos-on-appletv/"><u>In 2024, Watching Social Media Videos on AppleTV</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/instant-screen-grabber-plus-easy-guide-soundtrack-for-2024/"><u>Instant Screen Grabber + Easy Guide Soundtrack for 2024</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/physical-chemical-and-biological-properties/"><u>Physical, Chemical, and Biological Properties.</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/reviewing-the-powerhouse-of-magixs-photo-toolkit-for-2024/"><u>Reviewing the Powerhouse of MAGIX's Photo Toolkit for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/unboxing-and-testing-in-depth-review-of-asus-rog-swift-oled-for-ultimate-gaming-experience/"><u>Unboxing and Testing: In-Depth Review of Asus ROG Swift OLED for Ultimate Gaming Experience</u></a></li>
 </ul></div>
 

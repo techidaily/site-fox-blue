@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Snap with a Single Purpose - Remove Bg Using Affinity\""
-date: 2024-10-02T01:05:31.594Z
-updated: 2024-10-06T23:39:12.220Z
+date: 2024-10-07T06:34:33.150Z
+updated: 2024-10-13T01:41:26.590Z
 tags: 
   - screen-recording
   - ai video
@@ -41,9 +41,29 @@ Now access the **Pixel Persona** section in the left corner of the software scre
 
 ![accessing the pixel persona in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/accessing-the-pixel-persona-in-affinity-designer.png)
 
+<!-- affiliate ads begin -->
+<span id="1982485">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step2 Go to the **"Layers"** tab in the right pane, right-click your layer, and disable **"Lock."** Now right-click on your layer again, and select **"Rasterize"** to enable editing of specific parts of the image.
 
 ![unlocking the image layer in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/unlocking-the-image-layer-in-affinity-designer.png)
+
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2141687/17094" target="_top" id="2141687">
+  <img src="//a.impactradius-go.com/display-ad/17094-2141687" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141687/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step3 To make a selection around your subject, first enable the **"Snap To Edges"** and **"Soft Edges"** feature from the top toolbar. This will help you automatically detect the edges and give it a more tapered finish.
 
@@ -58,10 +78,10 @@ Click the **"Refine"** option in the toolbar to open the **"Refine Selection"** 
 ![refining the outline around the image to remove background in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/refining-the-outline-around-the-image-to-remove-background-in-affinity-designer.png)
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step5 In the last step, press the **"Delete"** key on your keyboard to remove the background, or click **"Edit"** and choose the **"Cut"** option.
@@ -69,10 +89,10 @@ Step5 In the last step, press the **"Delete"** key on your keyboard to remove th
 Now, hit **"Control+D"** to deselect the selection. Alternatively, you can click **"Select"** in the top toolbar and choose the **"Deselect"** option. Finally, you can export your file using the **"File" > "Export"** option.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2111968/7443" target="_top" id="2111968">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111968" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111968/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### How to Remove a Busy Background in Affinity Designer
@@ -138,13 +158,6 @@ And if you have any interests in finding free images to expand your resource, yo
 
 Hopefully, this article and video can help you create ideal images!
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016170/19272" target="_top" id="2016170">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016170" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016170/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## The Best Alternative of Affinity Photo
 
 Since Affinity Photo is a desktop software available for a one-time purchase of $40.99, you might be looking for an online free alternative if you need more space or can afford the subscription fee.
@@ -154,16 +167,10 @@ Therefore, we recommend using [Wondershare PixCut](https://pixcut.wondershare.co
 ![wondershare pixcut for removing image background](https://images.wondershare.com/filmora/article-images/2023/03/wondershare-pixcut-for-removing-image-background.png)
 
 <!-- affiliate ads begin -->
-<span id="1977028">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1902289/19272" target="_top" id="1902289">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902289" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902289/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Editing experts recommend Wondershare PixCut as the best alternative to many editing problems. An AI-powered automatic editing tool, this software has quicker solutions for you when it comes to removing an image's background. Some of its many benefits are:
@@ -181,13 +188,6 @@ Editing experts recommend Wondershare PixCut as the best alternative to many edi
 * Create a free account for easier future access.
 * Paid and customized accounts for premium benefits.
 * Customized categories that include e-commerce, car dealership, social media, graphic designing, personal, and marketing use.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -223,16 +223,24 @@ Hopefully, this article and video can help you create ideal images!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-knowledge.techidaily.com/new-fostering-fun-with-metaverse-satirical-artifacts/"><u>[New] Fostering Fun with Metaverse Satirical Artifacts</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-flip-the-script-unique-approaches-to-retracing-yt-content/"><u>[Updated] 2024 Approved Flip the Script Unique Approaches to Retracing YT Content</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-big-sur-readiness-system-and-hardware-guide-for-2024/"><u>[Updated] Big Sur Readiness System & Hardware Guide for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-entrepreneurs-essentials-top-free-business-templates-for-2024/"><u>[Updated] Entrepreneur's Essentials Top Free Business Templates for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-injecting-spark-into-your-unique-podcast-format-for-2024/"><u>[Updated] Injecting Spark Into Your Unique Podcast Format for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-instant-annotation-text-overlaying-on-images-and-videos-using-windows-photos-for-2024/"><u>[Updated] Instant Annotation Text Overlaying on Images & Videos Using Windows Photos for 2024</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-masterful-viewing-for-artists-best-monitor-guide/"><u>[Updated] Masterful Viewing for Artists – Best Monitor Guide</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-a-guide-oneplus-12-wireless-and-wired-screen-mirroring-drfone-by-drfone-android/"><u>In 2024, A Guide OnePlus 12 Wireless and Wired Screen Mirroring | Dr.fone</u></a></li>
-<li><a href="https://win-forum.techidaily.com/step-by-step-guide-clearing-out-memory-dump-files-on-windows-10/"><u>Step-by-Step Guide: Clearing Out Memory Dump Files on Windows 10</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/streamline-video-capture-macbook-webcam-tips/"><u>Streamline Video Capture MacBook Webcam Tips</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/the-ultimate-guide-to-metaverse-memes-and-diy-humor-mastery/"><u>The Ultimate Guide to Metaverse Memes and DIY Humor Mastery</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/-new-take-on-favorite-movies-7-alternatives-for-2024/"><u>[New] A New Take on Favorite Movies - #7 Alternatives for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-browse-the-web-for-unique-personalized-wrapped-presents-at-leading-e-stores-for-2024/"><u>[New] Browse the Web for Unique, Personalized Wrapped Presents at Leading E-Stores for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-dark-domain-vs-radiant-realm-the-final-face-off/"><u>[New] In 2024, Dark Domain vs Radiant Realm The Final Face-Off</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-high-capacity-sd-card-for-sony-a7s-series/"><u>[New] In 2024, High-Capacity SD Card for Sony A7S Series</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-master-the-art-of-livestreaming-three-key-approaches-subscriber-less-style-for-2024/"><u>[New] Master the Art of Livestreaming Three Key Approaches, Subscriber-Less Style for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-technological-trendsetters-exclusive-picks-for-2024/"><u>[New] Technological Trendsetters - Exclusive Picks for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-canva-meme-generator-for-2024/"><u>[Updated] Canva Meme Generator for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-the-eraser-guru-expert-tips-for-psx-users/"><u>[Updated] In 2024, The Eraser Guru Expert Tips for PSX Users</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-mastering-podcast-xml-creating-rss-feeds-from-scratch-for-2024/"><u>[Updated] Mastering Podcast XML Creating RSS Feeds From Scratch for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-ultimate-virtual-world-cinema-lineup/"><u>[Updated] Ultimate Virtual World Cinema Lineup</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-essential-guide-to-firefox-split-screen-feature/"><u>2024 Approved Essential Guide to Firefox Split Screen Feature</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/a-comprehensive-guide-to-professional-level-video-editing-on-windows-11/"><u>A Comprehensive Guide to Professional-Level Video Editing on Windows 11</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/conquer-iphone-photography-by-perfecting-motion-capture-for-2024/"><u>Conquer iPhone Photography by Perfecting Motion Capture for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-expert-ai-visualization-toolset/"><u>In 2024, Expert AI Visualization Toolset</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-remove-a-previously-synced-google-account-from-your-xiaomi-redmi-13c-by-drfone-android/"><u>In 2024, How to Remove a Previously Synced Google Account from Your Xiaomi Redmi 13C</u></a></li>
+<li><a href="https://extra-information.techidaily.com/macos-sierra-switching-back-to-os-x-el-capitan/"><u>MacOS Sierra Switching Back To OS X El Capitan</u></a></li>
+<li><a href="https://techtrends.techidaily.com/ps5-or-ps5-slim-a-thorough-guide-to-sonys-cutting-edge-gaming-systems/"><u>PS5 or PS5 Slim? A Thorough Guide to Sony's Cutting-Edge Gaming Systems.</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/realms-of-reality-understanding-the-metaverse-through-6-instances/"><u>Realms of Reality Understanding the Metaverse Through 6 Instances</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-guide-resolve-silent-anthem-gameplay-on-windows-10-systems/"><u>Troubleshooting Guide: Resolve Silent Anthem Gameplay on Windows 10 Systems</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  A Drone Transformed with Yuneec's Typhoon Q500\""
-date: 2024-09-16T17:29:08.482Z
-updated: 2024-09-20T16:31:59.656Z
+date: 2024-10-09T00:06:49.160Z
+updated: 2024-10-12T17:21:02.529Z
 tags: 
   - screen-recording
   - ai video
@@ -59,6 +59,13 @@ thumbnail: https://thmb.techidaily.com/6ed52b8d826a5b6701c9229d81239cb21a1a6ea95
 
  Yuneec has launched this camera unit with so many advanced features that make it highly suitable for professional [aerial photography](https://tools.techidaily.com/wondershare/filmora/download/) or videography needs. It is one of the easy to operate and fast to adjust drone unit with little higher price range. Users can capture impressive footage with this camera whether you begin with ground or in air shooting.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918719/19272" target="_top" id="1918719">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918719" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918719/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Complete Review for Yuneec Typhoon Q500 4K
 
 #### 1\.  Basic Specs Info
@@ -78,6 +85,13 @@ thumbnail: https://thmb.techidaily.com/6ed52b8d826a5b6701c9229d81239cb21a1a6ea95
 #### 2\.  Design
 
 ![yuneec typhoon design](https://images.wondershare.com/filmora/article-images/yuneec-typhoon-q500-design.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948891/19272" target="_top" id="1948891">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948891" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948891/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  This device is having big size that makes it difficult to carry on trips. But the design is sturdy with impressive appearance. At the same time, you are going to find one charger, two batteries and two sets of propellers with this package. Few other accessories are sunshield, neck strap, ST10+ controller, cable and a steady Grip mount. The design is almost good but demands little polish to appear attractive. Professionals love to work with its sturdy body and stable design that helps to keep videos shake free during flight hours.
 
@@ -99,7 +113,21 @@ thumbnail: https://thmb.techidaily.com/6ed52b8d826a5b6701c9229d81239cb21a1a6ea95
 
 ![yuneec typhoon q500 camera](https://images.wondershare.com/filmora/article-images/yuneec-typhoon-q500-camera.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087248/19272" target="_top" id="2087248">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087248" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087248/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  As already discussed, it supports 4k recording abilities so users can expect breathtaking shoots in air. The camera is designed to offer 115 degree Field of View where 30 fps frame rate is supported for both 4K and 1080p resolution modes. Users can enjoy automatic settings at initial stage and once they are able to learn all advanced controls then it becomes much easier to shift towards classic flights with smart modes. You will be glad to know that this drone also has settings for slow motion videos with 1080p resolution and at frame rate of 120fps. It provides great flexibility to professional videographers for their advanced recording needs.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -130,12 +158,21 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148640/16836" target="_top" id="2148640">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148640" border="0" alt="https://techidaily.com" width="234" height="60"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148640/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-social-media-video-to-music-conversion-guide/"><u>[New] Social Media Video to Music Conversion Guide</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-a-detailed-review-of-the-top-10-gopro-protectors/"><u>[Updated] A Detailed Review of the Top 10 GoPro Protectors</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-tailored-titling-for-stellar-online-video-content/"><u>[Updated] In 2024, Tailored Titling for Stellar Online Video Content</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-transform-your-snaps-into-art-with-snapseed-basics/"><u>[Updated] In 2024, Transform Your Snaps Into Art with Snapseed Basics</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-innovative-approach-stitching-gopro-sequences-in-holoscopic-clips/"><u>[Updated] Innovative Approach Stitching GoPro Sequences in Holoscopic Clips</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-virtual-broadcast-battle-pitting-obs-against-twitchs-channel-space-for-2024/"><u>[Updated] Virtual Broadcast Battle Pitting OBS Against Twitch's Channel Space for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/customizing-time-before-next-login-after-failure-in-win-1011/"><u>Customizing Time Before Next Login After Failure in Win 10/11</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/evaluating-video-coders-are-you-team-av1-or-vp9/"><u>Evaluating Video Coders Are You Team Av1 or VP9?</u></a></li>
+<li><a href="https://win-dash.techidaily.com/how-to-obtain-and-install-logitech-audio-device-drivers-for-multiple-windows-versions/"><u>How to Obtain and Install Logitech Audio Device Drivers for Multiple Windows Versions</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-reset-your-infinix-smart-8-lock-screen-password-by-drfone-android/"><u>How to Reset your Infinix Smart 8 Lock Screen Password</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-attracting-eyes-with-these-6-video-genres/"><u>In 2024, Attracting Eyes with These 6 Video Genres</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/sci-fis-new-realms-exploring-the-best-metaverse-adventures-on-screen/"><u>Sci-Fi's New Realms Exploring the Best Metaverse Adventures on Screen</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/the-complete-seo-strategy-for-podcast-growth-for-2024/"><u>The Complete Seo Strategy for Podcast Growth for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/top-tier-free-screen-capture-programs-2023-edition/"><u>Top-Tier Free Screen Capture Programs – 2023 Edition</u></a></li>
+</ul></div>
 

@@ -1,0 +1,252 @@
+---
+title: "[New] Capturing Sound in Windows 11 Explained"
+date: 2024-10-11T05:12:15.902Z
+updated: 2024-10-13T02:06:53.813Z
+tags: 
+  - screen-recording
+  - ai video
+  - ai audio
+  - ai auto
+categories: 
+  - ai
+  - screen
+description: "This Article Describes [New] Capturing Sound in Windows 11 Explained"
+excerpt: "This Article Describes [New] Capturing Sound in Windows 11 Explained"
+keywords: "WindoSounds11Explain,WindowsSoundCaptureGuide,CaptureAudioWin11Tutorial,Win11SoundRecordingBasics,SoundCaptureWindows11StepByStep,AudioRecordingInWin11,LearningSoundW11Technology"
+thumbnail: https://thmb.techidaily.com/243178c138d6204ad2bbeb47ec4cfcdba020958c11cab04cb22d5f5327eef01b.jpg
+---
+
+## Capturing Sound in Windows 11 Explained
+
+Meta: Looking for an audio recorder software for Windows 10 to record any audio playing on the computer? Here is the list of the top 5 best audio recorders.
+
+There are times when we want to record our voice on our computer for future references. A voice recording could be a song, audio from a musical instrument, a narration, a dictation, a reminder, a podcast and much more. However, Windows does not have a ready-made and instant option to record your voice through the microphone. Therefore, you will need an audio recorder Windows 10 to record your voice and audio instantly.
+
+A versatile sound recorder Windows 10 can capture audio from external audio devices such as an external microphone. In fact, there are some audio recorders available that can record any audio playing on your computer such as recording from online audio and video streaming platforms. In this article, we are listing down the top 5 best audio recorder software Windows 10 that you can use for recording your voice.
+
+>  Disclaimer: This post includes affiliate links
+>
+>  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
+>
+
+## 1\. Windows Voice Recorder
+
+Recording audio on Windows 10 is easy with Windows Voice Recorder app that comes preinstalled on Windows 10\. It is a simple and easy to use application to quickly record any audio playing on your computer.
+
+Even though there are limited features available in comparison to other audio recorder software Windows 10, many prefer it as it is instantly available and no need to brainstorm to operate it. Besides, there are basic editing options available to make the recording perfect from all perspectives. Here are the steps to record audio on Windows 10 with Windows Voice Recorder app.
+
+****Step 1:** On the Start menu, type “Voice Recorder” and click on Voice Recorder app or press Enter key. If it is not available already, you can go to Microsoft Store and download it on your computer.
+
+****Step 2:** Open Voice Recorder app opens, click on Record(microphone) button. Alternatively, you can press Ctrl + R together to start recording when you are ready.
+
+![record button](https://images.wondershare.com/filmora/article-images/record-button.jpg)
+
+****Step 3:** Click on Stop button to stop the recording. Alternatively, you can use Spacebar or Enter key to stop recording.
+
+![stop button](https://images.wondershare.com/filmora/article-images/stop-button.jpg)
+
+The recorded audio will be saved automatically in Documents under Sound Recordings folder.
+
+## 2\. Audacity
+
+Audacity is a completely free audio recording software for Windows 10\. Audacity is used by professionals to record music and songs. You can record audio from microphone and mixer. You can edit the recording and crisp it proper so that you can share and publish it on different platforms. In fact, Audacity lets you save the recording in different file formats so that you can play and use it on different platforms. Here are the steps for Win 10 record audio with Audacity.
+
+****Step 1:** Download and install Audacity on your computer.
+
+****Step 2:** Launch Audacity and go to Edit > Preferences to set the parameters perfectly.
+
+****Step 3:** Click on Red Record button to start recording whatever you say on the microphone. You can check live audio spectrum analyzer to ensure that your voice is getting recorded.
+
+![red record button to start recording](https://images.wondershare.com/filmora/article-images/red-record-button-to-start-recording.jpg)
+
+****Step 4:** To stop recording, click on Black Stop button. Go to File > Export As to save the file in desired file format.
+
+![black stop button](https://images.wondershare.com/filmora/article-images/black-stop-button.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027195/19272" target="_top" id="2027195">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027195" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027195/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+## 3\. Quick Sound Recorder Free
+
+Quick Sound Recorder is a no non-sense Windows 10 audio record app. It is completely free and super simple to use. You can record and save the audio in MP3 file format. It organizes the recording in its library so that you can find them easily and play to listen to them any time. There is an option to share the recordings through email as well as upload them to SkyDrive. Here are the steps for recording sound Windows 10 with Quick Sound Recorder Free app.
+
+Step 1: Go to Microsoft Store and install Quick Sound Recorder Free app.
+
+Step 2: Open the app and click on Microphone icon to start recording instantly. You will see the timer showing the recording time.
+
+![the recording time](https://images.wondershare.com/filmora/article-images/the-recording-time.jpg)
+
+Step 3: To stop recording, click on Stop button and save the recording in MP3 file.
+
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+## 4\. Adobe Audition
+
+Adobe Audition is Windows 10 audio recording software for professionals. There are unlimited features and functionalities to record as well as edit and mix any audio as per requirements. It is a premium software designed for the audio industry and you can try out its free trial version. Here are the steps to record audio on Windows 10 with Adobe Audition.
+
+Step 1: Open Adobe Audition and go to File > New > Multi-track Session. A pop-up box will appear where you can change bit rate, sample rate, destination folder and others. Click on Ok button.
+
+![open adobe audition](https://images.wondershare.com/filmora/article-images/open-adobe-audition.jpg)
+
+Step 2: Click on R icon to arm all the tracks.
+
+![click on r icon](https://images.wondershare.com/filmora/article-images/click-on-r-icon.jpg)
+
+Step 3: and then click on Recording button on the Record panel to start recording.
+
+Step 4: To stop recording, click on Stop button on the Record panel.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136624/26400" target="_top" id="2136624">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136624" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136624/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+## 5\. [Filmora Recorder](https://tools.techidaily.com/wondershare/filmora/download/)
+
+If you want to record audio with video on Widows 10, Wondershare Filmora is the audio recording software for Windows 10\. This is useful for those who want to record webcam video while recording through an external microphone. You can also record anything playing on your computer such as a music video. Here are the steps to record audio on Windows 10 with Filmora.
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+For Win 7 or later (64-bit)
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+For macOS 10.12 or later
+
+Step 1: Launch Filmora and select New Project option.
+
+Step 2: From Record menu, go to Record Voiceover option.
+
+![filmora screen recorder](https://images.wondershare.com/filmora/article-images/filmora-record-screen.jpg)
+
+Step 3: From the pop-up box, select the external microphone. Click on Record button to start recording.
+
+Step 4: When you are done, click on Stop button and export the recorded audio in MP3 format.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+## Conclusion
+
+We have how to record audio on Windows 10 using free as well as premium software. If you want to record your voice right away, you should use Windows Voice Recorder app that comes preinstalled. You can even install Quick Sound Recorder Free app instantly and start recording. For professional-level recording, Audacity and Adobe Audition are perfect. But Wondershare Filmora stands out for audio as well as video recording and editing in Windows 10.
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+For macOS 10.12 or later
+
+Step 1: Launch Filmora and select New Project option.
+
+Step 2: From Record menu, go to Record Voiceover option.
+
+![filmora screen recorder](https://images.wondershare.com/filmora/article-images/filmora-record-screen.jpg)
+
+Step 3: From the pop-up box, select the external microphone. Click on Record button to start recording.
+
+Step 4: When you are done, click on Stop button and export the recorded audio in MP3 format.
+
+## Conclusion
+
+We have how to record audio on Windows 10 using free as well as premium software. If you want to record your voice right away, you should use Windows Voice Recorder app that comes preinstalled. You can even install Quick Sound Recorder Free app instantly and start recording. For professional-level recording, Audacity and Adobe Audition are perfect. But Wondershare Filmora stands out for audio as well as video recording and editing in Windows 10.
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+For macOS 10.12 or later
+
+Step 1: Launch Filmora and select New Project option.
+
+Step 2: From Record menu, go to Record Voiceover option.
+
+![filmora screen recorder](https://images.wondershare.com/filmora/article-images/filmora-record-screen.jpg)
+
+Step 3: From the pop-up box, select the external microphone. Click on Record button to start recording.
+
+Step 4: When you are done, click on Stop button and export the recorded audio in MP3 format.
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+## Conclusion
+
+We have how to record audio on Windows 10 using free as well as premium software. If you want to record your voice right away, you should use Windows Voice Recorder app that comes preinstalled. You can even install Quick Sound Recorder Free app instantly and start recording. For professional-level recording, Audacity and Adobe Audition are perfect. But Wondershare Filmora stands out for audio as well as video recording and editing in Windows 10.
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+For macOS 10.12 or later
+
+Step 1: Launch Filmora and select New Project option.
+
+Step 2: From Record menu, go to Record Voiceover option.
+
+![filmora screen recorder](https://images.wondershare.com/filmora/article-images/filmora-record-screen.jpg)
+
+Step 3: From the pop-up box, select the external microphone. Click on Record button to start recording.
+
+Step 4: When you are done, click on Stop button and export the recorded audio in MP3 format.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948954/19272" target="_top" id="1948954">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948954" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948954/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+## Conclusion
+
+We have how to record audio on Windows 10 using free as well as premium software. If you want to record your voice right away, you should use Windows Voice Recorder app that comes preinstalled. You can even install Quick Sound Recorder Free app instantly and start recording. For professional-level recording, Audacity and Adobe Audition are perfect. But Wondershare Filmora stands out for audio as well as video recording and editing in Windows 10.
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/updated-gathered-group-glances-for-2024/"><u>[Updated] Gathered Group Glances for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-ar-merging-physical-and-fictional-worlds/"><u>2024 Approved AR Merging Physical and Fictional Worlds</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-ascending-audio-the-ultimate-budget-friendly-asmr-kit-selection/"><u>2024 Approved Ascending Audio - The Ultimate Budget-Friendly ASMR Kit Selection</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-dive-into-this-collection-of-14-text-animation-marvels/"><u>2024 Approved Dive Into This Collection of 14 Text Animation Marvels</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-exclusive-list-of-e-commerce-sites-for-one-of-a-kind-boxed-gifts/"><u>2024 Approved Exclusive List of E-Commerce Sites for One-of-a-Kind Boxed Gifts</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-innovate-with-imagery-installing-the-windows-11-movie-maker-app/"><u>2024 Approved Innovate with Imagery Installing the Windows 11 Movie Maker App</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/beyond-inshot-top-pc-editing-solutions/"><u>Beyond Inshot Top PC Editing Solutions</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/break-free-from-gmail-unveiling-8-exceptional-email-alternatives-for-202n4/"><u>Break Free From Gmail: Unveiling 8 Exceptional Email Alternatives for 202N4</u></a></li>
+<li><a href="https://win-dash.techidaily.com/easy-access-to-updated-ricoh-mp-c3003-drivers-install-now/"><u>Easy Access to Updated Ricoh MP C3003 Drivers - Install Now</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/top-apps-and-online-tools-to-track-vivo-y27-5g-phone-withwithout-imei-number-by-drfone-android/"><u>Top Apps and Online Tools To Track Vivo Y27 5G Phone With/Without IMEI Number</u></a></li>
+<li><a href="https://blog-min.techidaily.com/understanding-currently-unavailable-errors-on-hulu-and-solutions-to-rectify-them/"><u>Understanding 'Currently Unavailable' Errors on Hulu and Solutions to Rectify Them</u></a></li>
+</ul></div>
+

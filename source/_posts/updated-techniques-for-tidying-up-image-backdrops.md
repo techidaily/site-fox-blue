@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Techniques for Tidying Up Image Backdrops"
-date: 2024-09-30T09:37:48.589Z
-updated: 2024-10-07T01:50:59.902Z
+date: 2024-10-10T03:02:40.468Z
+updated: 2024-10-12T20:24:19.839Z
 tags: 
   - screen-recording
   - ai video
@@ -99,6 +99,299 @@ Hold the “CTRL” key and select your layer mask. Go to the "Select" tab, find
 
 ![expand selection by pixels](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-8.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080342/19272" target="_top" id="2080342">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080342" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080342/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+Step 3: Apply Photo Blur
+
+Right-click on the background layer and choose "Convert to Smart Object." Head over to the "Filter" tab, expand "Blur Gallery," and choose "Tilt-Shift." You can change the field lines to adjust the depth of field for your image and create a smooth transition. You can also control the intensity of the blur from the slider present on the right. Click “OK” and save your image.
+
+![confirm blur settings](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-9.jpg)
+
+## Part 3: How to Remove Photo Background?
+
+Want to remove the background from your image? Photoshop offers a photo-cut background solution for that. You can try that by following the steps below:
+
+Step 1: Remove Background
+
+To start with, insert your image and go to the Properties window. Under "Quick Options," click on the "Remove Background" option. Photoshop will automatically detect your subject and remove the background.
+
+![tap on remove background](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-10.jpg)
+
+Step 2: Refine Outline
+
+To fix any mistake in your selection, go to the "Select" tab and click "Select and Mask." From the toolbar, choose the "Quick Selection" tool. You can use the minus sign to get rid of the extra background or the plus sign to bring back the background. Click on “OK” and save your image.
+
+![remove remaining backgroud](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-11.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+## Part 4: 3 Best Websites to Download Stunning Photo Editing Background Images
+
+Looking for a suitable background for your image? You can now download images and swap them for your original backgrounds easily. The following sites offer free background pictures for your every need.
+
+### 1\. [Unsplash](https://unsplash.com/s/photos/background)
+
+Want the best photo editing background library for your images? Unsplash might be the site you are looking for.
+
+Unsplash is one of the biggest online storage sites for royalty-free images. You can find free images that you can use as image backgrounds in high resolution. You can search for any theme you want and find countless related images. Everything from nature to architectural and colorful backgrounds can be found on Unsplash.
+
+![unsplash background website](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-12.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+### 2\. [Pexels](https://www.pexels.com/search/background/)
+
+Pexels is another web-based tool that contains numerous stock photos and videos for your various needs. You can find thousands of suitable images as your background photo. The app is used by designers, creators, bloggers, and everyday users alike.
+
+You can search for the image background of your choice and download it for free on Pexels. Users can search for a specific theme, texture, color, and more. Pexels is powered by creators worldwide that contribute to its ever-growing library.
+
+![pexels background images](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-13.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027176/19272" target="_top" id="2027176">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027176" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027176/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+### 3\. [Pixabay](https://pixabay.com/images/search/background/)
+
+If you are looking for a website to find backgrounds in HD quality, you can try Pixabay. This remarkable site offers you a wide spectrum of options to choose from. Pixabay contains one of the widest collections of high-quality stock images.
+
+Pixabay allows users to like, comment, or save the images of their choice. You can also refine your searches by orientation, size, color, and more. You can find background images that inspire and excite easily on Pixabay.
+
+![pixabay background photos](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-14.jpg)
+
+## Wrapping Up
+
+With a wide range of editing tools available today, you can change any aspect of your image quite easily. You can easily achieve photo editing background removal or photo editor blur background on Photoshop. To replace your image background, you can try the useful sites mentioned above. They can help you find some stunning background images for various purposes.
+
+02 [How to Blur Photo Background?](#part2)
+
+03 [How to Remove Photo Background?](#part3)
+
+04 [3 Best Websites to Download Stunning Photo Editing Background Images](#part4)
+
+## Part 1: How Can You Edit Photo Background Better?
+
+Want to achieve the perfect photo editing background technique? What better way to do that than Photoshop?
+
+[Photoshop](https://www.adobe.com/products/photoshop.html) by Adobe is a premium-level image and graphics editor. Photoshop has held the gold standard for editing graphics and images for years. It is undoubtedly the best photo background editor app you can find to get your job done. With its precise tools and a sleek interface, it is relatively easy to insert your photo and edit background image.
+
+Here is how you can edit and replace your image background in Photoshop:
+
+Step 1: Select your Subject
+
+Add your image to the interface of the program. From the toolbar on the left, tap the “Quick Selection” tool. Now drag the area of the image you want to select using the brush. You can hold the “Alt” key and drag the unwanted areas to remove them from the selection.
+
+![use quick selection tool](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-1.jpg)
+
+Step 2: Mask your Selection
+
+Go to the options bar present at the top. Tap on “Select and Mask” to convert your selection into a mask. From the “Properties” panel, tap “View Mode” to determine how you want to see your selection. “Overlay” works best in general.
+
+![select the view mode](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-2.jpg)
+
+Step 3: Polish the Edges
+
+You can now further refine your selected part using the different tools offered by Photoshop. Use the “Quick Selection” tool to add or remove large areas. For hair and soft edges, you can use the “Refine Edge Brush” tool. The “Lasso/Polygonal Lasso” tool can help manually draw areas for your selection.
+
+![edit the image edges](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-3.jpg)
+
+Step 4: Remove Residual Colors
+
+From the panel at the right, select "Output Settings." Check the box next to "Decontaminate Colors" to get rid of any leftover color fringe from your foreground. From "Output," you now need to add a new layer by clicking on "New Layer with Layer Mask."
+
+![remove the selected color](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-4.jpg)
+
+Step 5: Add a New Background
+
+You can now paste the image you wish to add as a background for your photo. Position your image on the layer below the one with your foreground. You can resize your background image if required by selecting the “Free Transform” tool.
+
+![ add new picture background](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-5.jpg)
+
+Step 6: Fix the Colors
+
+To blend the colors of your two images, select your foreground layer. Now go to "Image" and open "Adjustments." From here, launch the "Match Color" popup window. Navigate to "Source" and select your image. From the "Layer" option, choose the layer you want to fix.
+
+Tick the “Neutralize” box and adjust the “Luminance” and “Intensity” until you meet your requirements. You are all done now! Click “OK” and save your newly edited image.
+
+![fix the image colors](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-6.jpg)
+
+## Part 2: How to Blur Photo Background?
+
+A blurred background helps bring your image into focus. If you want a photo editor to blur background of your image, you can try Photoshop. Here are the steps for that:
+
+Step 1: Isolate Subject
+
+Isolate your subject on a separate layer by accessing the “Quick Selection” tool and clicking on the “Select Subject” button. You can use the "Lasso" tool to refine your selection. Click on "Select and Mask" and select the “Black and White View.” Now, choose the output to "New Layer with Layer Mask."
+
+![change the output](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-7.jpg)
+
+Step 2: Expand the Selection
+
+Hold the “CTRL” key and select your layer mask. Go to the "Select" tab, find and expand "Modify," and tap "Expand." Select a suitable number and tap “OK” Next, go to the “Edit” tab and select “Content-Aware Fill."
+
+![expand selection by pixels](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-8.jpg)
+
+Step 3: Apply Photo Blur
+
+Right-click on the background layer and choose "Convert to Smart Object." Head over to the "Filter" tab, expand "Blur Gallery," and choose "Tilt-Shift." You can change the field lines to adjust the depth of field for your image and create a smooth transition. You can also control the intensity of the blur from the slider present on the right. Click “OK” and save your image.
+
+![confirm blur settings](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-9.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+## Part 3: How to Remove Photo Background?
+
+Want to remove the background from your image? Photoshop offers a photo-cut background solution for that. You can try that by following the steps below:
+
+Step 1: Remove Background
+
+To start with, insert your image and go to the Properties window. Under "Quick Options," click on the "Remove Background" option. Photoshop will automatically detect your subject and remove the background.
+
+![tap on remove background](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-10.jpg)
+
+Step 2: Refine Outline
+
+To fix any mistake in your selection, go to the "Select" tab and click "Select and Mask." From the toolbar, choose the "Quick Selection" tool. You can use the minus sign to get rid of the extra background or the plus sign to bring back the background. Click on “OK” and save your image.
+
+![remove remaining backgroud](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-11.jpg)
+
+## Part 4: 3 Best Websites to Download Stunning Photo Editing Background Images
+
+Looking for a suitable background for your image? You can now download images and swap them for your original backgrounds easily. The following sites offer free background pictures for your every need.
+
+### 1\. [Unsplash](https://unsplash.com/s/photos/background)
+
+Want the best photo editing background library for your images? Unsplash might be the site you are looking for.
+
+Unsplash is one of the biggest online storage sites for royalty-free images. You can find free images that you can use as image backgrounds in high resolution. You can search for any theme you want and find countless related images. Everything from nature to architectural and colorful backgrounds can be found on Unsplash.
+
+![unsplash background website](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-12.jpg)
+
+### 2\. [Pexels](https://www.pexels.com/search/background/)
+
+Pexels is another web-based tool that contains numerous stock photos and videos for your various needs. You can find thousands of suitable images as your background photo. The app is used by designers, creators, bloggers, and everyday users alike.
+
+You can search for the image background of your choice and download it for free on Pexels. Users can search for a specific theme, texture, color, and more. Pexels is powered by creators worldwide that contribute to its ever-growing library.
+
+![pexels background images](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-13.jpg)
+
+### 3\. [Pixabay](https://pixabay.com/images/search/background/)
+
+If you are looking for a website to find backgrounds in HD quality, you can try Pixabay. This remarkable site offers you a wide spectrum of options to choose from. Pixabay contains one of the widest collections of high-quality stock images.
+
+Pixabay allows users to like, comment, or save the images of their choice. You can also refine your searches by orientation, size, color, and more. You can find background images that inspire and excite easily on Pixabay.
+
+![pixabay background photos](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-14.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+## Wrapping Up
+
+With a wide range of editing tools available today, you can change any aspect of your image quite easily. You can easily achieve photo editing background removal or photo editor blur background on Photoshop. To replace your image background, you can try the useful sites mentioned above. They can help you find some stunning background images for various purposes.
+
+02 [How to Blur Photo Background?](#part2)
+
+03 [How to Remove Photo Background?](#part3)
+
+04 [3 Best Websites to Download Stunning Photo Editing Background Images](#part4)
+
+## Part 1: How Can You Edit Photo Background Better?
+
+Want to achieve the perfect photo editing background technique? What better way to do that than Photoshop?
+
+[Photoshop](https://www.adobe.com/products/photoshop.html) by Adobe is a premium-level image and graphics editor. Photoshop has held the gold standard for editing graphics and images for years. It is undoubtedly the best photo background editor app you can find to get your job done. With its precise tools and a sleek interface, it is relatively easy to insert your photo and edit background image.
+
+Here is how you can edit and replace your image background in Photoshop:
+
+Step 1: Select your Subject
+
+Add your image to the interface of the program. From the toolbar on the left, tap the “Quick Selection” tool. Now drag the area of the image you want to select using the brush. You can hold the “Alt” key and drag the unwanted areas to remove them from the selection.
+
+![use quick selection tool](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-1.jpg)
+
+Step 2: Mask your Selection
+
+Go to the options bar present at the top. Tap on “Select and Mask” to convert your selection into a mask. From the “Properties” panel, tap “View Mode” to determine how you want to see your selection. “Overlay” works best in general.
+
+![select the view mode](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-2.jpg)
+
+Step 3: Polish the Edges
+
+You can now further refine your selected part using the different tools offered by Photoshop. Use the “Quick Selection” tool to add or remove large areas. For hair and soft edges, you can use the “Refine Edge Brush” tool. The “Lasso/Polygonal Lasso” tool can help manually draw areas for your selection.
+
+![edit the image edges](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-3.jpg)
+
+Step 4: Remove Residual Colors
+
+From the panel at the right, select "Output Settings." Check the box next to "Decontaminate Colors" to get rid of any leftover color fringe from your foreground. From "Output," you now need to add a new layer by clicking on "New Layer with Layer Mask."
+
+![remove the selected color](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-4.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+Step 5: Add a New Background
+
+You can now paste the image you wish to add as a background for your photo. Position your image on the layer below the one with your foreground. You can resize your background image if required by selecting the “Free Transform” tool.
+
+![ add new picture background](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-5.jpg)
+
+Step 6: Fix the Colors
+
+To blend the colors of your two images, select your foreground layer. Now go to "Image" and open "Adjustments." From here, launch the "Match Color" popup window. Navigate to "Source" and select your image. From the "Layer" option, choose the layer you want to fix.
+
+Tick the “Neutralize” box and adjust the “Luminance” and “Intensity” until you meet your requirements. You are all done now! Click “OK” and save your newly edited image.
+
+![fix the image colors](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-6.jpg)
+
+## Part 2: How to Blur Photo Background?
+
+A blurred background helps bring your image into focus. If you want a photo editor to blur background of your image, you can try Photoshop. Here are the steps for that:
+
+Step 1: Isolate Subject
+
+Isolate your subject on a separate layer by accessing the “Quick Selection” tool and clicking on the “Select Subject” button. You can use the "Lasso" tool to refine your selection. Click on "Select and Mask" and select the “Black and White View.” Now, choose the output to "New Layer with Layer Mask."
+
+![change the output](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-7.jpg)
+
+Step 2: Expand the Selection
+
+Hold the “CTRL” key and select your layer mask. Go to the "Select" tab, find and expand "Modify," and tap "Expand." Select a suitable number and tap “OK” Next, go to the “Edit” tab and select “Content-Aware Fill."
+
+![expand selection by pixels](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-8.jpg)
+
 Step 3: Apply Photo Blur
 
 Right-click on the background layer and choose "Convert to Smart Object." Head over to the "Filter" tab, expand "Blur Gallery," and choose "Tilt-Shift." You can change the field lines to adjust the depth of field for your image and create a smooth transition. You can also control the intensity of the blur from the slider present on the right. Click “OK” and save your image.
@@ -149,6 +442,13 @@ Pixabay allows users to like, comment, or save the images of their choice. You c
 
 ![pixabay background photos](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-14.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100529/7443" target="_top" id="2100529">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Wrapping Up
 
 With a wide range of editing tools available today, you can change any aspect of your image quite easily. You can easily achieve photo editing background removal or photo editor blur background on Photoshop. To replace your image background, you can try the useful sites mentioned above. They can help you find some stunning background images for various purposes.
@@ -178,13 +478,6 @@ Step 2: Mask your Selection
 Go to the options bar present at the top. Tap on “Select and Mask” to convert your selection into a mask. From the “Properties” panel, tap “View Mode” to determine how you want to see your selection. “Overlay” works best in general.
 
 ![select the view mode](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-2.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step 3: Polish the Edges
 
@@ -270,13 +563,6 @@ You can search for the image background of your choice and download it for free 
 
 ![pexels background images](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-13.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036472/19272" target="_top" id="2036472">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036472" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036472/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 3\. [Pixabay](https://pixabay.com/images/search/background/)
 
 If you are looking for a website to find backgrounds in HD quality, you can try Pixabay. This remarkable site offers you a wide spectrum of options to choose from. Pixabay contains one of the widest collections of high-quality stock images.
@@ -284,292 +570,6 @@ If you are looking for a website to find backgrounds in HD quality, you can try 
 Pixabay allows users to like, comment, or save the images of their choice. You can also refine your searches by orientation, size, color, and more. You can find background images that inspire and excite easily on Pixabay.
 
 ![pixabay background photos](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-14.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123730/7443" target="_top" id="2123730">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123730" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123730/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-## Wrapping Up
-
-With a wide range of editing tools available today, you can change any aspect of your image quite easily. You can easily achieve photo editing background removal or photo editor blur background on Photoshop. To replace your image background, you can try the useful sites mentioned above. They can help you find some stunning background images for various purposes.
-
-02 [How to Blur Photo Background?](#part2)
-
-03 [How to Remove Photo Background?](#part3)
-
-04 [3 Best Websites to Download Stunning Photo Editing Background Images](#part4)
-
-## Part 1: How Can You Edit Photo Background Better?
-
-Want to achieve the perfect photo editing background technique? What better way to do that than Photoshop?
-
-[Photoshop](https://www.adobe.com/products/photoshop.html) by Adobe is a premium-level image and graphics editor. Photoshop has held the gold standard for editing graphics and images for years. It is undoubtedly the best photo background editor app you can find to get your job done. With its precise tools and a sleek interface, it is relatively easy to insert your photo and edit background image.
-
-Here is how you can edit and replace your image background in Photoshop:
-
-Step 1: Select your Subject
-
-Add your image to the interface of the program. From the toolbar on the left, tap the “Quick Selection” tool. Now drag the area of the image you want to select using the brush. You can hold the “Alt” key and drag the unwanted areas to remove them from the selection.
-
-![use quick selection tool](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-1.jpg)
-
-Step 2: Mask your Selection
-
-Go to the options bar present at the top. Tap on “Select and Mask” to convert your selection into a mask. From the “Properties” panel, tap “View Mode” to determine how you want to see your selection. “Overlay” works best in general.
-
-![select the view mode](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-2.jpg)
-
-Step 3: Polish the Edges
-
-You can now further refine your selected part using the different tools offered by Photoshop. Use the “Quick Selection” tool to add or remove large areas. For hair and soft edges, you can use the “Refine Edge Brush” tool. The “Lasso/Polygonal Lasso” tool can help manually draw areas for your selection.
-
-![edit the image edges](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-3.jpg)
-
-Step 4: Remove Residual Colors
-
-From the panel at the right, select "Output Settings." Check the box next to "Decontaminate Colors" to get rid of any leftover color fringe from your foreground. From "Output," you now need to add a new layer by clicking on "New Layer with Layer Mask."
-
-![remove the selected color](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-4.jpg)
-
-Step 5: Add a New Background
-
-You can now paste the image you wish to add as a background for your photo. Position your image on the layer below the one with your foreground. You can resize your background image if required by selecting the “Free Transform” tool.
-
-![ add new picture background](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-5.jpg)
-
-Step 6: Fix the Colors
-
-To blend the colors of your two images, select your foreground layer. Now go to "Image" and open "Adjustments." From here, launch the "Match Color" popup window. Navigate to "Source" and select your image. From the "Layer" option, choose the layer you want to fix.
-
-Tick the “Neutralize” box and adjust the “Luminance” and “Intensity” until you meet your requirements. You are all done now! Click “OK” and save your newly edited image.
-
-![fix the image colors](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-6.jpg)
-
-## Part 2: How to Blur Photo Background?
-
-A blurred background helps bring your image into focus. If you want a photo editor to blur background of your image, you can try Photoshop. Here are the steps for that:
-
-Step 1: Isolate Subject
-
-Isolate your subject on a separate layer by accessing the “Quick Selection” tool and clicking on the “Select Subject” button. You can use the "Lasso" tool to refine your selection. Click on "Select and Mask" and select the “Black and White View.” Now, choose the output to "New Layer with Layer Mask."
-
-![change the output](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-7.jpg)
-
-Step 2: Expand the Selection
-
-Hold the “CTRL” key and select your layer mask. Go to the "Select" tab, find and expand "Modify," and tap "Expand." Select a suitable number and tap “OK” Next, go to the “Edit” tab and select “Content-Aware Fill."
-
-![expand selection by pixels](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-8.jpg)
-
-Step 3: Apply Photo Blur
-
-Right-click on the background layer and choose "Convert to Smart Object." Head over to the "Filter" tab, expand "Blur Gallery," and choose "Tilt-Shift." You can change the field lines to adjust the depth of field for your image and create a smooth transition. You can also control the intensity of the blur from the slider present on the right. Click “OK” and save your image.
-
-![confirm blur settings](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-9.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868499/19272" target="_top" id="1868499">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868499" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868499/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-## Part 3: How to Remove Photo Background?
-
-Want to remove the background from your image? Photoshop offers a photo-cut background solution for that. You can try that by following the steps below:
-
-Step 1: Remove Background
-
-To start with, insert your image and go to the Properties window. Under "Quick Options," click on the "Remove Background" option. Photoshop will automatically detect your subject and remove the background.
-
-![tap on remove background](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-10.jpg)
-
-Step 2: Refine Outline
-
-To fix any mistake in your selection, go to the "Select" tab and click "Select and Mask." From the toolbar, choose the "Quick Selection" tool. You can use the minus sign to get rid of the extra background or the plus sign to bring back the background. Click on “OK” and save your image.
-
-![remove remaining backgroud](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-11.jpg)
-
-## Part 4: 3 Best Websites to Download Stunning Photo Editing Background Images
-
-Looking for a suitable background for your image? You can now download images and swap them for your original backgrounds easily. The following sites offer free background pictures for your every need.
-
-### 1\. [Unsplash](https://unsplash.com/s/photos/background)
-
-Want the best photo editing background library for your images? Unsplash might be the site you are looking for.
-
-Unsplash is one of the biggest online storage sites for royalty-free images. You can find free images that you can use as image backgrounds in high resolution. You can search for any theme you want and find countless related images. Everything from nature to architectural and colorful backgrounds can be found on Unsplash.
-
-![unsplash background website](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-12.jpg)
-
-### 2\. [Pexels](https://www.pexels.com/search/background/)
-
-Pexels is another web-based tool that contains numerous stock photos and videos for your various needs. You can find thousands of suitable images as your background photo. The app is used by designers, creators, bloggers, and everyday users alike.
-
-You can search for the image background of your choice and download it for free on Pexels. Users can search for a specific theme, texture, color, and more. Pexels is powered by creators worldwide that contribute to its ever-growing library.
-
-![pexels background images](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-13.jpg)
-
-### 3\. [Pixabay](https://pixabay.com/images/search/background/)
-
-If you are looking for a website to find backgrounds in HD quality, you can try Pixabay. This remarkable site offers you a wide spectrum of options to choose from. Pixabay contains one of the widest collections of high-quality stock images.
-
-Pixabay allows users to like, comment, or save the images of their choice. You can also refine your searches by orientation, size, color, and more. You can find background images that inspire and excite easily on Pixabay.
-
-![pixabay background photos](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-14.jpg)
-
-## Wrapping Up
-
-With a wide range of editing tools available today, you can change any aspect of your image quite easily. You can easily achieve photo editing background removal or photo editor blur background on Photoshop. To replace your image background, you can try the useful sites mentioned above. They can help you find some stunning background images for various purposes.
-
-02 [How to Blur Photo Background?](#part2)
-
-03 [How to Remove Photo Background?](#part3)
-
-04 [3 Best Websites to Download Stunning Photo Editing Background Images](#part4)
-
-## Part 1: How Can You Edit Photo Background Better?
-
-Want to achieve the perfect photo editing background technique? What better way to do that than Photoshop?
-
-[Photoshop](https://www.adobe.com/products/photoshop.html) by Adobe is a premium-level image and graphics editor. Photoshop has held the gold standard for editing graphics and images for years. It is undoubtedly the best photo background editor app you can find to get your job done. With its precise tools and a sleek interface, it is relatively easy to insert your photo and edit background image.
-
-Here is how you can edit and replace your image background in Photoshop:
-
-Step 1: Select your Subject
-
-Add your image to the interface of the program. From the toolbar on the left, tap the “Quick Selection” tool. Now drag the area of the image you want to select using the brush. You can hold the “Alt” key and drag the unwanted areas to remove them from the selection.
-
-![use quick selection tool](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-1.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137975/21526" target="_top" id="2137975">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137975" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137975/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-Step 2: Mask your Selection
-
-Go to the options bar present at the top. Tap on “Select and Mask” to convert your selection into a mask. From the “Properties” panel, tap “View Mode” to determine how you want to see your selection. “Overlay” works best in general.
-
-![select the view mode](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-2.jpg)
-
-Step 3: Polish the Edges
-
-You can now further refine your selected part using the different tools offered by Photoshop. Use the “Quick Selection” tool to add or remove large areas. For hair and soft edges, you can use the “Refine Edge Brush” tool. The “Lasso/Polygonal Lasso” tool can help manually draw areas for your selection.
-
-![edit the image edges](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-3.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-Step 4: Remove Residual Colors
-
-From the panel at the right, select "Output Settings." Check the box next to "Decontaminate Colors" to get rid of any leftover color fringe from your foreground. From "Output," you now need to add a new layer by clicking on "New Layer with Layer Mask."
-
-![remove the selected color](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-4.jpg)
-
-Step 5: Add a New Background
-
-You can now paste the image you wish to add as a background for your photo. Position your image on the layer below the one with your foreground. You can resize your background image if required by selecting the “Free Transform” tool.
-
-![ add new picture background](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-5.jpg)
-
-Step 6: Fix the Colors
-
-To blend the colors of your two images, select your foreground layer. Now go to "Image" and open "Adjustments." From here, launch the "Match Color" popup window. Navigate to "Source" and select your image. From the "Layer" option, choose the layer you want to fix.
-
-Tick the “Neutralize” box and adjust the “Luminance” and “Intensity” until you meet your requirements. You are all done now! Click “OK” and save your newly edited image.
-
-![fix the image colors](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-6.jpg)
-
-## Part 2: How to Blur Photo Background?
-
-A blurred background helps bring your image into focus. If you want a photo editor to blur background of your image, you can try Photoshop. Here are the steps for that:
-
-Step 1: Isolate Subject
-
-Isolate your subject on a separate layer by accessing the “Quick Selection” tool and clicking on the “Select Subject” button. You can use the "Lasso" tool to refine your selection. Click on "Select and Mask" and select the “Black and White View.” Now, choose the output to "New Layer with Layer Mask."
-
-![change the output](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-7.jpg)
-
-Step 2: Expand the Selection
-
-Hold the “CTRL” key and select your layer mask. Go to the "Select" tab, find and expand "Modify," and tap "Expand." Select a suitable number and tap “OK” Next, go to the “Edit” tab and select “Content-Aware Fill."
-
-![expand selection by pixels](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-8.jpg)
-
-Step 3: Apply Photo Blur
-
-Right-click on the background layer and choose "Convert to Smart Object." Head over to the "Filter" tab, expand "Blur Gallery," and choose "Tilt-Shift." You can change the field lines to adjust the depth of field for your image and create a smooth transition. You can also control the intensity of the blur from the slider present on the right. Click “OK” and save your image.
-
-![confirm blur settings](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-9.jpg)
-
-## Part 3: How to Remove Photo Background?
-
-Want to remove the background from your image? Photoshop offers a photo-cut background solution for that. You can try that by following the steps below:
-
-Step 1: Remove Background
-
-To start with, insert your image and go to the Properties window. Under "Quick Options," click on the "Remove Background" option. Photoshop will automatically detect your subject and remove the background.
-
-![tap on remove background](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-10.jpg)
-
-Step 2: Refine Outline
-
-To fix any mistake in your selection, go to the "Select" tab and click "Select and Mask." From the toolbar, choose the "Quick Selection" tool. You can use the minus sign to get rid of the extra background or the plus sign to bring back the background. Click on “OK” and save your image.
-
-![remove remaining backgroud](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-11.jpg)
-
-## Part 4: 3 Best Websites to Download Stunning Photo Editing Background Images
-
-Looking for a suitable background for your image? You can now download images and swap them for your original backgrounds easily. The following sites offer free background pictures for your every need.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880940/19272" target="_top" id="1880940">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880940" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880940/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-### 1\. [Unsplash](https://unsplash.com/s/photos/background)
-
-Want the best photo editing background library for your images? Unsplash might be the site you are looking for.
-
-Unsplash is one of the biggest online storage sites for royalty-free images. You can find free images that you can use as image backgrounds in high resolution. You can search for any theme you want and find countless related images. Everything from nature to architectural and colorful backgrounds can be found on Unsplash.
-
-![unsplash background website](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-12.jpg)
-
-### 2\. [Pexels](https://www.pexels.com/search/background/)
-
-Pexels is another web-based tool that contains numerous stock photos and videos for your various needs. You can find thousands of suitable images as your background photo. The app is used by designers, creators, bloggers, and everyday users alike.
-
-You can search for the image background of your choice and download it for free on Pexels. Users can search for a specific theme, texture, color, and more. Pexels is powered by creators worldwide that contribute to its ever-growing library.
-
-![pexels background images](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-13.jpg)
-
-### 3\. [Pixabay](https://pixabay.com/images/search/background/)
-
-If you are looking for a website to find backgrounds in HD quality, you can try Pixabay. This remarkable site offers you a wide spectrum of options to choose from. Pixabay contains one of the widest collections of high-quality stock images.
-
-Pixabay allows users to like, comment, or save the images of their choice. You can also refine your searches by orientation, size, color, and more. You can find background images that inspire and excite easily on Pixabay.
-
-![pixabay background photos](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-14.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938745/19272" target="_top" id="1938745">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938745" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938745/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Wrapping Up
 
@@ -599,24 +599,18 @@ With a wide range of editing tools available today, you can change any aspect of
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-visualeditormaster-reviews-complete-analysis/"><u>[New] 2024 Approved VisualEditorMaster Reviews – Complete Analysis</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-in-2024-honesty-in-high-definition-reviewing-recordcasts-efficacy/"><u>[New] In 2024, Honesty in High-Definition Reviewing RecordCast's Efficacy</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-secure-and-convenient-content-with-funimate-tools/"><u>[New] Secure and Convenient Content with Funimate Tools</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-tweak-quick-twitter-video-preview/"><u>[New] Tweak Quick Twitter Video Preview</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-unleashing-potential-a-thorough-look-at-sj-cam-s6/"><u>[New] Unleashing Potential A Thorough Look at SJ-CAM S6</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-unveiling-the-secrets-to-effective-macbook-air-screen-capture/"><u>[New] Unveiling the Secrets to Effective MacBook Air Screen Capture</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-2024-approved-the-complete-guide-to-livestreaming-on-mobile-devices/"><u>[Updated] 2024 Approved The Complete Guide to Livestreaming on Mobile Devices</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-acclaimed-creators-superior-insta-hlv-page-builders-for-2024/"><u>[Updated] Acclaimed Creators Superior Insta HLV Page Builders for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-amplify-your-audio-presence-learn-to-modify-voices-for-free/"><u>[Updated] In 2024, Amplify Your Audio Presence Learn to Modify Voices for FREE</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-superior-selection-best-windows-videophone-apps-guide/"><u>[Updated] In 2024, Superior Selection Best Windows Videophone Apps Guide</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-virtual-jogging-meets-reality-treadmill-evaluations/"><u>2024 Approved Virtual Jogging Meets Reality Treadmill Evaluations</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/boosting-your-game-mastering-kinemaster-and-its-top-alternative-games-for-2024/"><u>Boosting Your Game Mastering KineMaster and Its Top Alternative Games for 2024</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-apps-from-vivo-x-fold-2-to-another-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Apps from Vivo X Fold 2 to Another | Dr.fone</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-immersive-gaming-unlocked-by-htcs-revolutionary-vr-headset/"><u>In 2024, Immersive Gaming Unlocked by HTC's Revolutionary VR Headset</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-speedy-tips-for-unearthing-lost-reddit-memes/"><u>In 2024, Speedy Tips for Unearthing Lost Reddit Memes</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/leveraging-machine-learning-for-personalized-content/"><u>Leveraging Machine Learning for Personalized Content</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/mastering-quick-periscope-streaming-techniques-for-2024/"><u>Mastering Quick Periscope Streaming Techniques for 2024</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/resolving-the-coredll-file-not-found-comprehensive-guide/"><u>Resolving the 'Core.DLL' File Not Found - Comprehensive Guide</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/resolving-the-error-cannot-load-m3u8-streams-in-google-chrome-for-windows-users/"><u>Resolving the Error: 'Cannot Load M3U8 Streams' In Google Chrome for Windows Users</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-engaging-audiences-6-must-see-video-genres/"><u>[New] Engaging Audiences 6 Must-See Video Genres</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-frozen-olympics-spectacular-2022-highlights-for-2024/"><u>[New] Frozen Olympics Spectacular 2022 Highlights for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-transition-trails-your-pathway-to-macos-11-big-sur/"><u>[New] In 2024, Transition Trails Your Pathway to macOS 11 Big Sur</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-the-latest-in-video-capturing-apeaksoft-2023-edition-analysis/"><u>[New] The Latest in Video Capturing Apeaksoft 2023 Edition Analysis</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-budget-friendly-asmr-tech-premium-mics-for-exceptional-audio-for-2024/"><u>[Updated] Budget-Friendly ASMR Tech Premium Mics for Exceptional Audio for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-channel-elevation-reach-youtube-affiliate-level-with-10k-views/"><u>[Updated] Channel Elevation Reach YouTube Affiliate Level with 10K Views</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-tips-for-unlocking-youtube-video-comments/"><u>2024 Approved Tips for Unlocking YouTube Video Comments</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/4-easy-ways-for-your-poco-m6-5g-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>4 Easy Ways for Your Poco M6 5G Hard Reset | Dr.fone</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/easyrecorder-straightforward-windows-10-tool/"><u>EasyRecorder - Straightforward Windows 10 Tool</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/elite-skill-enhancement-workshops-available-on-linkedin-this-year/"><u>Elite Skill Enhancement Workshops Available on LinkedIn This Year</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-things-you-should-know-when-unlocking-total-wireless-of-iphone-xs-max-drfone-by-drfone-ios/"><u>In 2024, Things You Should Know When Unlocking Total Wireless Of iPhone XS Max | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/navigating-video-streams-across-networks-using-vlc/"><u>Navigating Video Streams Across Networks Using VLC</u></a></li>
+<li><a href="https://fake-location.techidaily.com/spoofing-life360-how-to-do-it-on-honor-90-drfone-by-drfone-virtual-android/"><u>Spoofing Life360 How to Do it on Honor 90? | Dr.fone</u></a></li>
 </ul></div>
 

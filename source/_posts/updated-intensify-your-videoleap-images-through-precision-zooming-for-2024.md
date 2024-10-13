@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Intensify Your Videoleap Images Through Precision Zooming for 2024"
-date: 2024-09-19T19:33:49.555Z
-updated: 2024-09-20T17:18:12.209Z
+date: 2024-10-08T17:51:46.905Z
+updated: 2024-10-13T04:55:29.508Z
 tags: 
   - screen-recording
   - ai video
@@ -60,13 +60,40 @@ Sometimes the video contents need a dramatic zoom effect that should take place 
 
 ![preview timeline videoleap](https://images.wondershare.com/filmora/article-images/2022/07/preview-timeline-videoleap.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1982596">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Then select the "keyframes" tool from the toolbar at the bottom of your screen.
 * Add the keyframes to the desired portion of the video and then navigate the timecode to the place on the timeline where you want to stop it. After that add another keyframe at that point and pinch in to zoom the video.
 
 ![add keyframes videoleap](https://images.wondershare.com/filmora/article-images/2022/07/add-keyframes-videoleap.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087234/19272" target="_top" id="2087234">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087234" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087234/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Now head to the second time code where you want to focus the subject and then click on it. Then click on the "Preview" icon and see whether it needs further changes.
 * When you are satisfied, simply export the project and your animated zoom video will be saved successfully.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105876/7443" target="_top" id="2105876">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105876" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105876/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Alternative way to Zoom Video on Computer
 
@@ -88,10 +115,10 @@ If for some reason you are not able to install and use Videoleap on your system 
 * When you are done with your editing process, save the video and the file will be exported to your PC.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484950/16446" target="_top" id="1484950">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484950" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2047411/19272" target="_top" id="2047411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047411" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484950/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047411/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -107,13 +134,6 @@ Videoleap is one of the leading video editing platforms available out there. The
 * Open the Filmora application on your PC and then select the video file that you want to edit. Then select the "Pan and Zoom" option available from the toolbar.
 
 ![open the filmora application on pc](https://images.wondershare.com/filmora/guide/pan-zoom-feature-filmora.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 * This will open 4 different types of tools regarding zoom functions. The first tool will help you to go from larger frames to smaller frames by zooming in. Thus, you can use this feature to bring details to a subject in your video. The second option helps you with zooming out from a smaller frame to a larger frame.
 * The third and fourth tools will help you achieve the Pan function from left to right and right to left respectively. This panning will be on a horizontal axis. You can also pan your video screen by using your mouse too.
@@ -150,5 +170,20 @@ Videoleap is one of the leading video editing platforms available out there. The
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-creating-captivating-podcast-summaries/"><u>[New] In 2024, Creating Captivating Podcast Summaries</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-standing-out-in-a-crowd-the-finest-thumbnail-font-options/"><u>[Updated] 2024 Approved Standing Out in a Crowd The Finest Thumbnail Font Options</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-perfecting-iphone-hdr-imaging-step-by-step/"><u>[Updated] In 2024, Perfecting iPhone HDR Imaging Step by Step</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-shockingly-fast-crafting-a-google-image-collaboration/"><u>[Updated] In 2024, Shockingly Fast Crafting a Google Image Collaboration</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-unveiling-the-secrets-to-buying-todays-best-360-cameras/"><u>[Updated] In 2024, Unveiling the Secrets to Buying Today's Best 360 Cameras</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-longevity-in-the-clouds-top-10-drone-selections-for-2024/"><u>[Updated] Longevity in the Clouds Top 10 Drone Selections for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-test-drive-the-poweradd-pilot-pro2-ultimate-multi-device-charging-station/"><u>Comprehensive Test Drive: The POWERADD Pilot Pro2 - Ultimate Multi-Device Charging Station</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/dynamic-dialogue-design-dossiers/"><u>Dynamic Dialogue Design Dossiers</u></a></li>
+<li><a href="https://discover-awesome.techidaily.com/easy-methods-to-move-snapchat-pictures-on-iphone-to-windowsmac-computer/"><u>Easy Methods to Move Snapchat Pictures on iPhone to Windows/Mac Computer</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/enhance-your-photos-with-top-insta-editors-for-2024/"><u>Enhance Your Photos with Top Insta Editors for 2024</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-apple-iphone-15-to-other-iphone-without-icloud-drfone-by-drfone-transfer-from-ios/"><u>In 2024, How to Transfer Photos from Apple iPhone 15 to other iPhone without iCloud | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-vivo-t2-pro-5g-to-laptop-without-usb-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos from Vivo T2 Pro 5G to Laptop Without USB | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/arns-more-in-the-video-market-dailymovement-vs-youtube/"><u>Who Earns More in the Video Market? DailyMovement Vs YouTube</u></a></li>
+</ul></div>
 

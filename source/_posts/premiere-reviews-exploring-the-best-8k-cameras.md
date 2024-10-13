@@ -1,7 +1,7 @@
 ---
 title: "\"Premiere Reviews  Exploring the Best 8K Cameras\""
-date: 2024-09-09T16:40:38.631Z
-updated: 2024-09-15T16:09:07.557Z
+date: 2024-10-07T22:25:50.793Z
+updated: 2024-10-12T19:08:21.697Z
 tags: 
   - screen-recording
   - ai video
@@ -69,6 +69,13 @@ The rumors that Canon is working on its first 8K camera surfaced in early 2019, 
 
 ![Canon EOS 5DS R DSLR Camera ](https://images.wondershare.com/filmora/article-images/canon-eos-5ds-r-dslr.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144288/7443" target="_top" id="2144288">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144288" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144288/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Image resource: Cannon
 
 This camera should be capable of recording **8K footage at 60 fps**, as well as 4K footage at 120 fps, but whether or not this will turn out to be true still remains to be seen. However, a number of Canon’s models are already equipped with **50MP** sensors that can capture still images in resolutions that go as high as **8712 x 5813** or record videos in 4K resolution at 60fps.
@@ -76,10 +83,10 @@ This camera should be capable of recording **8K footage at 60 fps**, as well as 
 Models like [EOS 5DS](https://www.usa.canon.com/internet/portal/us/home/products/details/cameras/eos-dslr-and-mirrorless-cameras/dslr/eos-5ds) or [EOS R](https://www.amazon.com/Canon-Mirrorless-Digital-Camera-Body/dp/B07H484HLT), are powerful enough to enable you to take still images at resolutions that resemble those provided by 8K cameras. However, the exact date when Canon is going to unveil their first 8K camera is still not known, but if any of the rumors are true it could easily happen that we are going to see the Canon’s first 8K camera in 2020.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2134501/19576" target="_top" id="2134501">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134501" border="0" alt="https://techidaily.com" width="640" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134501/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2\. Nikon
@@ -90,18 +97,18 @@ At the moment the [Nikon D850](https://www.nikonusa.com/en/nikon-products/produc
 
 ![Nikon D850 8K Timelapse Camera ](https://images.wondershare.com/filmora/article-images/nikon-d850-8k-time-lapse-camera.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2128843/7443" target="_top" id="2128843">
-  <img src="//a.impactradius-go.com/display-ad/7443-2128843" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128843/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Image resource: Nikon
 
 This Nikon’s camera has also 7fps continuous shooting mode as well as the capability to record 4K UHD videos at 30, 25 and 24 fps. Nikon D850 has an FX CMOS sensor that can capture images that have 8256 x 5504 pixels and the ISO sensitivity that ranges from ISO 64 to ISO 25,600.
 
 The camera is compatible with G, E, and D AF Nikkor lenses as well as DX and AI-P lenses, which provides you with enough versatility to shoot virtually any scene you want. Whether or not Nikon is going to add 8K cameras to their assortment of products is not yet clear, and it may be a while until one of the largest camera manufacturers in the industry releases its first 8K camera.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. Sharp
 
@@ -119,13 +126,6 @@ Professional cinematographers don’t need an introduction to Sony’s cameras, 
 
 ![Sony F65 CineAlta 8K Camera ](https://images.wondershare.com/filmora/article-images/sony-f65-cineAlta-8k-camera.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126493/26400" target="_top" id="2126493">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126493" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126493/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Image resource: Sony
 
 The **1-chip 20MP Super 35mm type** **24.7mm X 13.1mm** **CMOS sensor** enables you to capture videos in 8K, 4K or 2K resolutions. The camera’s **PL lens mount** is standard for all film cameras, which means that you won’t have too much trouble finding the lens you can use with F65 CineAlta.
@@ -137,6 +137,13 @@ The camera has **14 stops of exposure latitude**, so if you are shooting RAW vid
 Ikegami is a well-known manufacturer of professional broadcast cameras, so it comes as no surprise that the first handheld 8K UHD Television Camera System was produced by this Japanese television equipment manufacturer. Their [SHK-810 8K Super Hi-Vision Camera System](https://www.ikegami.com/archives/menu1/shk-810) features a **Super 35mm 33 million-pixel CMOS Sensor** as well as **4,000 TV lines** which enables the camera to capture highly-detailed images.
 
 ![ikegami 8K Super Hi-Vision Camera System ](https://images.wondershare.com/filmora/article-images/ikegami-8k-super-hi-vision-camera-system.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Image resource: ikegami
 
@@ -158,13 +165,6 @@ The body of an 8K Red camera can cost between **$24,000 and $50,000** which make
 
 Still don't know to choose which? Whatch this!
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### What Gear Do Creators Actually Use | Vidcon 2023 | Sony vs Canon
 
 **Conclusion**
@@ -176,10 +176,10 @@ In addition, Canon and Nikon only offer 50 MP cameras that can capture still ima
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Max Wales
@@ -205,5 +205,22 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/framelock-the-future-of-screen-capturing-in-2024/"><u>'Framelock' – The Future of Screen Capturing, In 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-daylight-deployment-for-increased-indoor-comfort/"><u>[New] Daylight Deployment for Increased Indoor Comfort</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-deciding-on-showcasing-your-off-facebook-journey/"><u>[Updated] 2024 Approved Deciding on Showcasing Your Off-Facebook Journey</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-music-for-imovie/"><u>[Updated] 2024 Approved Music for iMovie</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-simplified-steps-for-snapchat-lens-design/"><u>[Updated] 2024 Approved Simplified Steps for Snapchat Lens Design</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-metaverse-vs-multimetaverse-distinguishing-characteristics-comprehensive-insights/"><u>[Updated] In 2024, Metaverse Vs. Multimetaverse Distinguishing Characteristics (Comprehensive Insights)</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-snapchat-integration-for-the-tech-savvy-mac-user/"><u>[Updated] Snapchat Integration for the Tech-Savvy Mac User</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-strategies-for-effective-whiteboard-interaction-during-online-engagement-across-multiple-systems-for-2024/"><u>[Updated] Strategies for Effective Whiteboard Interaction During Online Engagement Across Multiple Systems for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/1715859840490-2024-approved-discovering-androids-premier-mobas-ranked/"><u>2024 Approved Discovering Android's Premier MOBAs Ranked!</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/conquering-challenges-expert-gopro-tips/"><u>Conquering Challenges Expert GoPro Tips</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-location-on-facebook-dating-for-your-tecno-spark-20-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location On Facebook Dating for your Tecno Spark 20 Pro | Dr.fone</u></a></li>
+<li><a href="https://fox-access.techidaily.com/meme-crafting-undead-androids/"><u>Meme Crafting Undead Androids</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/prime-5-cameras-for-precision-slow-mo-for-2024/"><u>Prime 5 Cameras for Precision Slow-Mo for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/transforming-images-the-art-of-applying-luts-in-pro/"><u>Transforming Images The Art of Applying LUTs in Pro</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/unlock-the-secrets-of-high-performance-computers-with-insights-from-tomhardware/"><u>Unlock the Secrets of High-Performance Computers with Insights From TomHardware</u></a></li>
+</ul></div>
 

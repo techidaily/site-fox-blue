@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Sky-High Adventures  The GoPro Karma Experience\""
-date: 2024-10-04T20:06:07.376Z
-updated: 2024-10-07T07:02:24.920Z
+date: 2024-10-11T23:07:37.833Z
+updated: 2024-10-13T03:22:49.950Z
 tags: 
   - screen-recording
   - ai video
@@ -57,10 +57,16 @@ thumbnail: https://thmb.techidaily.com/31a47d0813e0a73316845fc7d36338a492235a7e4
  The overall verdict is that this is a fantastic drone for capturing stunning images but it doesn't have the easy flying mode or the battery life to compete with some of the best drones available at the same price point. Although you might have to sacrifice a bit in image quality when compared to a GoPro camera with some competitors, it's often worth it for value knowing that you can capture the shot and maintain control over your drone.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087248/19272" target="_top" id="2087248">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087248" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087248/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1484963">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Detailed review for GoPro Karma
@@ -100,10 +106,10 @@ thumbnail: https://thmb.techidaily.com/31a47d0813e0a73316845fc7d36338a492235a7e4
 ![gopro karma controller](https://images.wondershare.com/filmora/article-images/gopro-karma-controller.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2141676/17091" target="_top" id="2141676">
-  <img src="//a.impactradius-go.com/display-ad/17091-2141676" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141676/17091" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  One thing that the GoPro Karma did especially well was creating a beautiful controller. The RC controller is relatively small but it feels exactly like playing a videogame with plenty of functions and no need to have a compatible device to use the drone. The other extremely strong point is the camera. Nobody can build a great outdoor camera that is it as resilient as a GoPro with the Hero 5 Black version of this drone capable of shooting in 4K with an astounding video quality, you can catch some amazing video as well as incredible still images on this drone.
@@ -115,10 +121,16 @@ Overall, the GoPro Karma is a fairly strong showing for a drone. Although it can
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151856/7443" target="_top" id="2151856">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151856" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151856/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="2135472">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Max Wales
@@ -146,22 +158,19 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-innovative-guide-transforming-social-media-sounds-into-mobile-alerts/"><u>[New] 2024 Approved Innovative Guide Transforming Social Media Sounds Into Mobile Alerts</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-unobstructed-movie-magic-erasing-youtube-borders/"><u>[New] 2024 Approved Unobstructed Movie Magic Erasing YouTube Borders</u></a></li>
-<li><a href="https://article-files.techidaily.com/new-how-to-choose-vr-headset-in-2024-mobile-vr-or-tethered-vr/"><u>[New] How to Choose VR Headset, In 2024 Mobile VR or Tethered VR?</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-elevating-your-linkedin-presence/"><u>[New] In 2024, Elevating Your LinkedIn Presence</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-the-audio-engineers-guide-switching-from-srt-to-ttml/"><u>[New] In 2024, The Audio Engineer’s Guide Switching From SRT to TTML</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-mastering-the-art-of-srt-files-an-all-inclusive-guide-to-subtitles-for-2024/"><u>[New] Mastering the Art of SRT Files An All-Inclusive Guide to Subtitles for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-the-ultimate-guide-to-collaborative-chats-in-skype-windows-mac-for-2024/"><u>[New] The Ultimate Guide to Collaborative Chats in Skype (Windows, Mac) for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-decoding-instagram-selfies-the-validation-handbook/"><u>[Updated] 2024 Approved Decoding Instagram Selfies The Validation Handbook</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-creative-collage-companions-the-top-8-smartphone-apps/"><u>[Updated] In 2024, Creative Collage Companions The Top 8 Smartphone Apps</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-skys-champions-of-staying-power-top-10-drones/"><u>[Updated] Sky's Champions of Staying Power (Top 10 Drones)</u></a></li>
-<li><a href="https://howto.techidaily.com/6-fixes-to-unfortunately-whatsapp-has-stopped-error-popups-on-oneplus-12-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>6 Fixes to Unfortunately WhatsApp has stopped Error Popups On OnePlus 12 | Dr.fone</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/ai-transformation-and-governance-openais-executive-viewpoint/"><u>AI Transformation and Governance - OpenAI's Executive Viewpoint</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/benq-bl2711u-reviewed-the-apex-of-27-high-definition-monitoring-technology/"><u>BenQ BL2711U Reviewed - The Apex of 27” High-Definition Monitoring Technology</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/extending-your-video-length-on-instagram-tips-from-16-secs-up-to-2-hrs/"><u>Extending Your Video Length on Instagram: Tips From 16 Secs. Up to 2 Hrs.</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-mastering-lock-screen-settings-how-to-enable-and-disable-on-poco-c50-by-drfone-android/"><u>In 2024, Mastering Lock Screen Settings How to Enable and Disable on Poco C50</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-top-11-free-apps-to-check-imei-on-tecno-spark-10c-phones-by-drfone-android/"><u>In 2024, Top 11 Free Apps to Check IMEI on Tecno Spark 10C Phones</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/understanding-key-aspects-of-gif-animation-for-2024/"><u>Understanding Key Aspects of GIF Animation for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-enhancing-media-speed-on-messenger-and-fb/"><u>[New] Enhancing Media Speed on Messenger & FB</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-how-to-revive-a-stuck-obs-fullscreen/"><u>[New] How to Revive a Stuck OBS Fullscreen</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-pinnacle-ai-editmaster-for-stunning-images-for-2024/"><u>[New] Pinnacle AI EditMaster for Stunning Images for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-discover-comprehensive-mac-art-app-selection/"><u>[Updated] 2024 Approved Discover Comprehensive Mac Art App Selection</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-unlocking-creativity-an-in-depth-review-and-tutorial-for-powerdirector-2024/"><u>[Updated] Unlocking Creativity An In-Depth Review & Tutorial for PowerDirector 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-visionary-equipment-best-4k-cameras-for-professionals/"><u>2024 Approved Visionary Equipment Best 4K Cameras for Professionals</u></a></li>
+<li><a href="https://howto.techidaily.com/4-ways-to-fix-android-blue-screen-of-death-on-samsung-galaxy-m14-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Ways to Fix Android Blue Screen of Death On Samsung Galaxy M14 5G | Dr.fone</u></a></li>
+<li><a href="https://techtrends.techidaily.com/easy-tricks-to-capture-moments-while-playing-xbox-one-games/"><u>Easy Tricks to Capture Moments While Playing Xbox One Games</u></a></li>
+<li><a href="https://common-error.techidaily.com/effective-strategies-to-correct-the-update-failure-error-0x800f0922-on-windows-10-devices/"><u>Effective Strategies to Correct the Update Failure (Error 0X800F0922) on Windows 10 Devices</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/excellent-typography-trick-sets/"><u>Excellent Typography Trick Sets</u></a></li>
+<li><a href="https://win-able.techidaily.com/how-to-overcome-fortnites-persistent-startup-hurdle/"><u>How to Overcome Fortnite's Persistent Startup Hurdle</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-where-is-the-best-place-to-catch-dratini-on-motorola-razr-40-drfone-by-drfone-virtual-android/"><u>In 2024, Where Is the Best Place to Catch Dratini On Motorola Razr 40 | Dr.fone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/magicard-rio-pro-driver-fresh-download-now-available-for-windows-users-windows-10-81-7/"><u>Magicard Rio Pro Driver: Fresh Download Now Available for Windows Users (Windows 10 / 8.1 / 7)</u></a></li>
+<li><a href="https://fake-location.techidaily.com/thinking-about-changing-your-netflix-region-without-a-vpn-on-honor-90-gt-drfone-by-drfone-virtual-android/"><u>Thinking About Changing Your Netflix Region Without a VPN On Honor 90 GT? | Dr.fone</u></a></li>
 </ul></div>
 

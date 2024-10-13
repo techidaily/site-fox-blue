@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Curbing Inertia in High Altitude Cinematography\""
-date: 2024-09-14T16:43:57.948Z
-updated: 2024-09-20T19:55:08.330Z
+date: 2024-10-05T19:21:03.057Z
+updated: 2024-10-12T19:09:36.857Z
 tags: 
   - screen-recording
   - ai video
@@ -37,6 +37,13 @@ When we talk about flight FPV quadcopters then Jello Effect appears like biggest
 
 First of all we need to discus about the major terms like rolling shutter effect etc. You might be aware of the fact that sensors can be designed with rolling shutter as well as with a global shutter. This rolling shutter is able to capture footage with better scanning on every part of image due to installed CMOS sensor. Generally, the global shutters are capable enough to manage entire frame at the same time but rolling shutters start scanning from top to bottom and hence they leave various visual artefacts in between. In simple words, it is not able to capture top and bottom portion of shot at same moment hence images appear skewed.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## What is Jello Effect
 
 As DSLRs usually come with rolling shutters as these shutters are able to follow quick movements that cannot be noticed by users. But the biggest trouble is observed when camera is used to perform quick pans or it has to work with extremely moving subjects same as airplane propellers. These quick pans cause jello effect in clips and images naturally become skewed with loss of details.
@@ -44,6 +51,13 @@ As DSLRs usually come with rolling shutters as these shutters are able to follow
 Now, you might be thinking hard that when global shutters are able to serve with better quality for this case then why manufacturers are using rolling shutters. There are numbers of reasons behind this: Systme actually follows a trade-off between performance of global shutters and rolling shutters. You will be glad to know that although a rolling shutter creates trouble with distortion and skew but it has ability to provide best results with dynamic range and low light performance.
 
 Further, global shutters are not able to achieve the DR value same as rolling shutters hence they cannot be applied for handheld recording needs, visual effects or for action scenes.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to Remove Jello Effect from Drone Videos?
 
@@ -79,6 +93,13 @@ Check this video tutorial to see how to remove jello effect with Adobe Premiere
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144281/7443" target="_top" id="2144281">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144281" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144281/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Max Wales
 
 Max Wales is a writer and a lover of all things video.
@@ -102,12 +123,18 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148774/18498" target="_top" id="2148774">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148774" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148774/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-ideal-platforms-for-procuring-youtube-ringtone-files/"><u>[New] 2024 Approved Ideal Platforms for Procuring YouTube Ringtone Files</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-perfecting-photography-with-phantoms-retrograde-technique/"><u>[New] 2024 Approved Perfecting Photography with Phantom's Retrograde Technique</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-behind-the-scenes-understanding-m1-technology/"><u>[New] Behind The Scenes Understanding M1 Technology</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-from-static-to-spinning-mastering-photo-effects-in-illustrator/"><u>[New] From Static to Spinning Mastering Photo Effects in Illustrator</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-master-guide-to-choosing-your-mp4-player-for-2024/"><u>[New] Master Guide to Choosing Your MP4 Player for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-how-to-choose-vr-headset-for-2024-mobile-vr-or-tethered-vr/"><u>[Updated] How to Choose VR Headset for 2024 Mobile VR or Tethered VR?</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/all-about-razers-hd-webcam-full-analysis-for-2024/"><u>All About Razer's HD Webcam Full Analysis for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/best-10-mock-location-apps-worth-trying-on-apple-iphone-15-drfone-by-drfone-virtual-ios/"><u>Best 10 Mock Location Apps Worth Trying On Apple iPhone 15 | Dr.fone</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/fixing-your-apex-legends-connectivity-problems-solutions-inside/"><u>Fixing Your Apex Legends Connectivity Problems - Solutions Inside</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-secrets-attracting-youtube-affiliates-with-minimal-channel-size/"><u>In 2024, Secrets Attracting YouTube Affiliates with Minimal Channel Size</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/why-is-ipogo-not-working-on-apple-iphone-6s-fixed-drfone-by-drfone-virtual-ios/"><u>Why is iPogo not working On Apple iPhone 6s? Fixed | Dr.fone</u></a></li>
+</ul></div>
 

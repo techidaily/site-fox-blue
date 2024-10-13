@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Unveiling Theta S  A Full Camera Review\""
-date: 2024-09-29T18:10:27.769Z
-updated: 2024-10-06T16:14:55.759Z
+date: 2024-10-08T04:07:01.967Z
+updated: 2024-10-12T22:08:24.768Z
 tags: 
   - screen-recording
   - ai video
@@ -76,10 +76,10 @@ The picture quality is simply outstanding and is rated to be much better than al
 As this device provides easy connectivity to other iOS, Android devices as well as to PCs so it becomes much easier to transfer captured images and videos for further editing. Theta App allows users to create wonders out of spherical imaging where panning and zooming features are commonly used. The desktop version of Theta app limits users to just view and share their data without any editing feature whereas the third app known as Theta+ Video is capable enough to work for editing on iOS devices.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925549/19272" target="_top" id="1925549">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925549" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948881/19272" target="_top" id="1948881">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948881" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925549/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948881/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2 Pros and Cons at a glance
@@ -96,10 +96,10 @@ As this device provides easy connectivity to other iOS, Android devices as well 
 | Remote control (via App)                                                               |                                                                       |
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105870/7443" target="_top" id="2105870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948932/19272" target="_top" id="1948932">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948932" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948932/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3 Basic specs of Ricoh Theta S
@@ -119,10 +119,10 @@ As this device provides easy connectivity to other iOS, Android devices as well 
 | **Image format**         | JPEG (EXIF 2.3)- The most commonly used format.           | **Video File Format** | Live streaming via HDMI supported (L:1920x1080/30fps M: 1280x720/30fps S: 720x480/30fps); Live streaming (USB): MP4 (video: MPEG-4 AVC); Motion JPEG (1280x720/15fps) |
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136548/16384" target="_top" id="2136548">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136548" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136548/16384" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 4 Should I buy Ricoh Theta S
@@ -134,10 +134,16 @@ Theta S is one of the most useful products for photography lovers whether they a
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1160850">
+					<video width="576" height="324" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -165,17 +171,20 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-filmora-guide-efficiently-convert-avi-files-to-gifs-on-both-operating-systems/"><u>[New] 2024 Approved Filmora Guide Efficiently Convert AVI Files to GIFs on Both Operating Systems</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-unlock-your-pcs-potential-with-these-5-windows-11-recording-methods/"><u>[Updated] 2024 Approved Unlock Your PC's Potential with These 5 Windows 11 Recording Methods</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-anonymous-access-to-instagrams-hidden-narratives-device-guide/"><u>[Updated] Anonymous Access to Instagram's Hidden Narratives Device Guide</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-the-finest-visual-experience-top-10-monitors-for-mac-owners/"><u>[Updated] In 2024, The Finest Visual Experience - Top 10 Monitors for Mac Owners</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-optimal-zoom-settings-for-microsoft-teams-communication-for-2024/"><u>[Updated] Optimal Zoom Settings for Microsoft Teams Communication for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-visualize-success-free-templates-to-elevate-your-youtube-presence-for-2024/"><u>[Updated] Visualize Success Free Templates to Elevate Your YouTube Presence for 2024</u></a></li>
-<li><a href="https://video-capture.techidaily.com/androidh265hevc/"><u>Androidデバイス向けのH265コーデックでHEVC動画のスムーズな視聴方法</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-undelete-lost-call-logs-from-honor-v-purse-by-fonelab-android-recover-call-logs/"><u>Best Android Data Recovery - undelete lost call logs from Honor V Purse</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/boost-productivity-streamline-documentation-using-hix-ai-and-gpt-4-technology/"><u>Boost Productivity: Streamline Documentation Using HIX AI & GPT-4 Technology</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/fishing-footage-frontier-top-action-cameras-for-the-sea-for-2024/"><u>Fishing Footage Frontier Top Action Cameras for the Sea for 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/is-it-time-for-an-upgrade-lenovo-yoga-c710-vs-yoga-a940-comprehensive-review-and-showdown/"><u>Is It Time for an Upgrade? Lenovo Yoga C710 vs Yoga A940: Comprehensive Review and Showdown</u></a></li>
-<li><a href="https://network-issues.techidaily.com/mystery-behind-rtx-crashes-in-high-end-gaming-pcs/"><u>Mystery Behind RTX Crashes in High-End Gaming PCs</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-maximize-fb-reach-schedule-your-post-using-free-resources-for-2024/"><u>[New] Maximize FB Reach Schedule Your Post Using Free Resources for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-picsart-edge-bringing-facial-movement-into-the-digital-realm-for-2024/"><u>[New] Picsart Edge Bringing Facial Movement Into the Digital Realm for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-professional-slideshow-creation-made-easy-and-free/"><u>[New] Professional Slideshow Creation Made Easy & Free</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-top-frameer-tools-perfect-pictures-with-ease-online/"><u>[New] Top Frameer Tools Perfect Pictures with Ease Online</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-seamless-integration-mac-recording-techniques-for-snapchat/"><u>[Updated] 2024 Approved Seamless Integration Mac Recording Techniques for Snapchat</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-unlocking-success-with-effective-video-praise-techniques/"><u>[Updated] Unlocking Success with Effective Video Praise Techniques</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/garmin-vivoactive-3-the-fusion-of-fitness-and-soundtrack-for-active-lifestyles/"><u>Garmin Vivoactive 3 - The Fusion of Fitness and Soundtrack for Active Lifestyles</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/harmonize-video-quality-with-instagrams-visual-theme/"><u>Harmonize Video Quality with Instagram's Visual Theme</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-realme-12-5g-pattern-lock-if-forgotten-6-ways-by-drfone-android/"><u>How to Unlock Realme 12 5G Pattern Lock if Forgotten? 6 Ways</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-discovering-the-best-of-360-cams-pros-choice-roundup-2023/"><u>In 2024, Discovering the Best of 360° Cams Pros Choice Roundup, 2023</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-mastering-unboxing-expert-tips-and-tricks/"><u>In 2024, Mastering Unboxing Expert Tips and Tricks</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-the-dichotomy-of-digital-immersion-in-vr/"><u>In 2024, The Dichotomy of Digital Immersion in VR</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/step-by-step-guide-to-applying-luts-for-vivid-imagery-in-obs-videos/"><u>Step-by-Step Guide to Applying LUTs for Vivid Imagery in OBS Videos</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/stop-nvidia-rtx-crashes-in-games/"><u>Stop NVIDIA RTX Crashes in Games</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/the-ultimate-assessment-apple-watch-series-4-soars-higher/"><u>The Ultimate Assessment: Apple Watch Series 4 Soars Higher</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, The Evolution Continues  IPhone X's Photographic Advancements\""
-date: 2024-10-04T11:58:28.498Z
-updated: 2024-10-07T07:43:19.115Z
+date: 2024-10-09T06:13:37.548Z
+updated: 2024-10-13T06:45:12.287Z
 tags: 
   - screen-recording
   - ai video
@@ -48,6 +48,19 @@ thumbnail: https://thmb.techidaily.com/84ba87eddab3e368851899b58852311f605514d50
 
 ![depth camera](https://images.wondershare.com/filmora/article-images/depth-iphone.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1977028">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 3: How to use portrait mode
 
  Portrait mode uses your iPhone X’s telephoto lens kit to create images with “bokeh”-esque backgrounds and foregrounds. Portrait Lighting also comes as part of the Portrait Mode with the iPhone X, utilising both machine learning and the depth map of Portrait mode to add exceptional lighting effects to your photos in real time. When you shoot in Portrait mode, the wide-angle measures the difference between what it and the telephoto can see to offer a multi-point depth map. The depth map itself creates artificial depth of field.
@@ -67,17 +80,17 @@ thumbnail: https://thmb.techidaily.com/84ba87eddab3e368851899b58852311f605514d50
 ![portrait lighting](https://images.wondershare.com/filmora/article-images/PortraitLighting.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139114/17108" target="_top" id="2139114">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139114" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139114/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1657400/16446" target="_top" id="1657400">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657400" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657400/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 4: Video improvement
@@ -86,14 +99,14 @@ thumbnail: https://thmb.techidaily.com/84ba87eddab3e368851899b58852311f605514d50
 
 ![video improvement](https://images.wondershare.com/filmora/article-images/video-improvement.JPG)
 
-**You may also like:** [Best iPhone Stabilizers for Video Shooting >>](https://tools.techidaily.com/wondershare/filmora/download/)
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997630/19272" target="_top" id="1997630">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997630" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997630/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+**You may also like:** [Best iPhone Stabilizers for Video Shooting >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ## Conclusion
 
@@ -102,13 +115,6 @@ thumbnail: https://thmb.techidaily.com/84ba87eddab3e368851899b58852311f605514d50
  The phone has also been praised for its wide range between light and dark colours. The Face ID function has proved to be incredibly secure, unlike earlier facial recognition systems which could easily be tricked by with the use of photographs or videos. It’s now possible to be more creative than ever with your iPhone’s camera whilst benefiting from a wealth of robust security features.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -135,24 +141,15 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-capture-breathtaking-scenes-on-iphone-with-ease/"><u>[New] 2024 Approved Capture Breathtaking Scenes on iPhone with Ease</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-virtual-efficiency-boosted-setting-up-zoom-right/"><u>[New] 2024 Approved Virtual Efficiency Boosted Setting Up Zoom Right</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ultivating-confidence-for-captivating-your-youtube-audience/"><u>[New] Cultivating Confidence for Captivating Your YouTube Audience</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-visual-victory-a-guide-to-speed-up-picture-perfection-in-windows/"><u>[New] In 2024, Visual Victory A Guide to Speed Up Picture Perfection in Windows</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-the-filmmakers-guide-to-professional-gopro-cinematography-for-2024/"><u>[New] The Filmmaker’s Guide to Professional Gopro Cinematography for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-10-best-inspirational-movies-that-will-bring-you-hope-and-power/"><u>[Updated] 2024 Approved 10 Best Inspirational Movies That Will Bring You Hope and Power</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-cultivation-of-a-connected-crowd-the-subscriber-surge-strategy/"><u>[Updated] In 2024, Cultivation of a Connected Crowd The Subscriber Surge Strategy</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-iphone-tips-for-perfecting-motion-shot-photography-for-2024/"><u>[Updated] IPhone Tips for Perfecting Motion Shot Photography for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-sharpviewzoomx7-professional-photo-size-controls-for-2024/"><u>[Updated] SharpViewZoomX7 Professional Photo Size Controls for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-gentle-pace-reducing-music-intensity/"><u>2024 Approved Gentle Pace Reducing Music Intensity</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-review-of-the-all-terrain-top-race-rc-rock-crawler-a-thrilling-off-road-experience/"><u>Comprehensive Review of the All-Terrain Top Race RC Rock Crawler – A Thrilling Off-Road Experience</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/enhancing-your-aerial-journey-top-10-drone-extras-and-parts-for-2024/"><u>Enhancing Your Aerial Journey Top 10 Drone Extras and Parts for 2024</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-navigating-periscope-detailed-instruction-manual/"><u>In 2024, Navigating Periscope Detailed Instruction Manual</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-superior-4k-screens-our-1-picks/"><u>In 2024, Superior 4K Screens Our #1 Picks</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/inexpensive-high-quality-cameras-for-2024/"><u>Inexpensive High-Quality Cameras for 2024</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/navigating-through-notes-our-selection-of-the-top-10-apps-of-202n4/"><u>Navigating Through Notes: Our Selection of the Top 10 Apps of 202N4</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/reliable-iphone-data-retrieval-tool-safeguard-your-memories-and-information/"><u>Reliable iPhone Data Retrieval Tool: Safeguard Your Memories and Information</u></a></li>
-<li><a href="https://techidaily.com/what-you-need-to-know-to-improve-your-infinix-hot-30i-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>What You Need To Know To Improve Your Infinix Hot 30i Hard Reset | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/where-is-the-best-place-to-catch-dratini-on-xiaomi-redmi-note-12-4g-drfone-by-drfone-virtual-android/"><u>Where Is the Best Place to Catch Dratini On Xiaomi Redmi Note 12 4G | Dr.fone</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-in-2024-must-have-10-fcp-plug-ins-for-professionals/"><u>[New] In 2024, Must-Have 10 FCP Plug-Ins for Professionals</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-navigating-music-production-with-magix-boom-3d-for-2024/"><u>[New] Navigating Music Production with Magix Boom 3D for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-elite-windows-melody-makers/"><u>[Updated] 2024 Approved Elite Windows Melody Makers</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-saving-your-whatsapp-chat-history-with-confidence/"><u>[Updated] In 2024, Saving Your WhatsApp Chat History with Confidence</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-the-art-of-attracting-product-brands-on-youtube/"><u>[Updated] The Art of Attracting Product Brands on Youtube</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-reset-a-locked-honor-magic-v2-phone-by-drfone-android/"><u>How to Reset a Locked Honor Magic V2 Phone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-pokemon-go-joystick-on-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>How to use Pokemon Go Joystick on Realme 11X 5G? | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/innovative-image-transformation-hacks/"><u>Innovative Image Transformation Hacks</u></a></li>
+<li><a href="https://common-error.techidaily.com/solving-the-mystery-of-undetected-devices-a-comprehensive-guide-to-mend-your-bluetooth-on-windows-11/"><u>Solving the Mystery of Undetected Devices - A Comprehensive Guide to Mend Your Bluetooth on Windows 11</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/zenithaiphotonix-reimagining-image-artistry-for-2024/"><u>ZenithAiPhotonix Reimagining Image Artistry for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Comparing Syma X8C to Previous Models for 2024"
-date: 2024-09-13T20:34:48.118Z
-updated: 2024-09-20T17:36:07.805Z
+date: 2024-10-09T17:11:40.321Z
+updated: 2024-10-13T06:33:15.409Z
 tags: 
   - screen-recording
   - ai video
@@ -94,19 +94,47 @@ thumbnail: https://thmb.techidaily.com/184d7cf1dfbfc8948b40afe261697d83b7fb70b65
 
 ![syma x8c controller](https://images.wondershare.com/filmora/article-images/syma-x8c-controller.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886003/19272" target="_top" id="1886003">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886003" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886003/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Controller or the transmitter of X8C device is small enough that fits perfectly in user’s hands. Construction is completed with ABS plastic material that leads to light weight structure and this controller makes use of 2.4GHz frequency band to send control signals towards drone in air. The best thing to know about Syma X8C is that it can cover the 100 meter range impressively.
 
 #### 6\.  Camera
 
 ![syma x8c camera](https://images.wondershare.com/filmora/article-images/syma-x8c-camera.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657400/16446" target="_top" id="1657400">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657400" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657400/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  A drone cannot be complete without a camera mounted on its top; hence Syma has taken care of users need and they developed Syma X8C with a camera that can record everything in air. Although, it is not able to collect video information with HD quality but you will be glad to know that it is detachable and one can also make additional adjustments over its angles to adjust focus. All the recorded videos are stored inside a 4GB MicroSD card. Further, the attached gimbal assists in much stable footage.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
  By considering all above factors, we must say that Syma X8C is a well designed drone unit that can serve with much better results as an entry level aerial shoot recorder. As the price tag keeps it below $100 range so beginners find it most affordable for their learning needs and the gimbal protection leads to highly stable footage that can be shared on social media sites to impress friends. The control mechanisms is rated as highly responsive so will all these satisfactory features it becomes a must buy product for your air flight adventures.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Max Wales
 
@@ -131,18 +159,22 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<span id="701707">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-transforming-media-landscape-an-exclusive-look-at-magix-vpx/"><u>[New] 2024 Approved Transforming Media Landscape An Exclusive Look at Magix VPX</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-expert-tips-for-selecting-video-control-software/"><u>[New] Expert Tips for Selecting Video Control Software</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-mastering-iphone-video-clarity-in-premiere-pro-amidst-highlights-and-shadows/"><u>[Updated] 2024 Approved Mastering iPhone Video Clarity in Premiere Pro Amidst Highlights and Shadows</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-basic-strategy-revamping-fishy-windowspeak-for-2024/"><u>[Updated] Basic Strategy Revamping Fishy Windowspeak for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-pinnacle-performance-discover-the-top-8-webcams-today/"><u>[Updated] In 2024, Pinnacle Performance Discover the Top 8 Webcams Today</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-unseen-smiles-hidden-glances-in-photos/"><u>[Updated] Unseen Smiles, Hidden Glances in Photos</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/a-comparative-journey-through-the-top-10-tv-streamers-for-2024/"><u>A Comparative Journey Through the Top 10 TV Streamers for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/adobes-path-to-perfection-the-premier-lut-list-for-2024/"><u>Adobe’s Path to Perfection The Premier LUT List for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/diagnosing-and-repairing-the-msstfmtdll-absence-on-your-pc-tips-and-tricks/"><u>Diagnosing and Repairing the msstfmt.dll Absence on Your PC: Tips & Tricks</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-ballad-bliss-songs-that-score-big-on-will-you-questions/"><u>In 2024, Ballad Bliss Songs that Score Big on 'Will You?' Questions</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-6-best-sim-unlock-services-that-actually-work-on-your-honor-x9a-device-by-drfone-android/"><u>In 2024, The 6 Best SIM Unlock Services That Actually Work On Your Honor X9a Device</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/rtl8188cu-driver-download-compatible-with-windows-10-and-7/"><u>RTL8188CU Driver Download: Compatible with Windows 10 and 7</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/the-game-changing-feature-of-satellite-sos-for-android-devices-starts-with-the-newly-launched-google-pixel/"><u>The Game-Changing Feature of Satellite SOS for Android Devices Starts with the Newly Launched Google Pixel</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/the-roadmap-for-success-key-improvements-required-by-apple-vision-pro-for-commercial-viability/"><u>The Roadmap for Success: Key Improvements Required by Apple Vision Pro for Commercial Viability</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshoot-and-enhance-your-keyboards-reaction-time-quickly/"><u>Troubleshoot and Enhance Your Keyboard's Reaction Time Quickly</u></a></li>
+</ul></div>
 

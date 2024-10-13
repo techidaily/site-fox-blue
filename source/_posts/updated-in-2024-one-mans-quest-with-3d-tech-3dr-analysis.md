@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, One Man's Quest with 3D Tech  '3DR' Analysis\""
-date: 2024-10-03T09:19:26.435Z
-updated: 2024-10-06T21:18:27.599Z
+date: 2024-10-07T18:44:31.287Z
+updated: 2024-10-13T02:29:59.303Z
 tags: 
   - screen-recording
   - ai video
@@ -54,10 +54,10 @@ thumbnail: https://thmb.techidaily.com/94f7e6bb0d500f60edc6e34b363527bd47bbfffa4
  The 3DR solo drone is designed to serve with amazing aerial photography functions that is why it is one of the most preferred drones by cinematographers. One can easily connect it with GoPro cameras to get stunning shots on height. But the downside is its short battery life and weak GPS.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918714/19272" target="_top" id="1918714">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918714" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918714/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Complete Review
@@ -80,10 +80,16 @@ thumbnail: https://thmb.techidaily.com/94f7e6bb0d500f60edc6e34b363527bd47bbfffa4
 ![3dr solo design](https://images.wondershare.com/filmora/article-images/3dr-solo-design.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484945/16446" target="_top" id="1484945">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484945" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484945/16446" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983584">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983584.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983584">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983584.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983584%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983584/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [Check at Amazon](https://www.amazon.com/gp/product/B00ZPM7BOG/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00ZPM7BOG&linkId=5a8069fda1f7be3bf48e831452f3ee9d)
@@ -103,10 +109,10 @@ thumbnail: https://thmb.techidaily.com/94f7e6bb0d500f60edc6e34b363527bd47bbfffa4
 ![3dr solo controller](https://images.wondershare.com/filmora/article-images/3dr-solo-controller.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136545/16384" target="_top" id="2136545">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136545" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137393/7443" target="_top" id="2137393">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137393" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136545/16384" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137393/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  The 3DR solo controller appears trendy with just two joysticks that offer direct control to acceleration, yaw, pitch and roll. The fly button can be accessed for initiated automated landing and takeoff. A tiny screen is provided to display continuous information about battery condition and telemetry data. One additional knob is available for adjustments of camera angle controls. Other then this you will find one customizable button to activate autonomous flight mode. It also provides one pause button that helps users to make their drone stable in air. All other controls can be managed from application.
@@ -124,10 +130,10 @@ thumbnail: https://thmb.techidaily.com/94f7e6bb0d500f60edc6e34b363527bd47bbfffa4
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886069/19272" target="_top" id="1886069">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886069" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144272/7443" target="_top" id="2144272">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144272" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886069/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144272/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Max Wales
@@ -155,18 +161,16 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-hdr-horizon-highlights-selective-online-skies-compilation/"><u>[New] HDR Horizon Highlights Selective Online Skies Compilation</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-unveiling-image-quality-a-newbies-comprehensible-guide/"><u>[New] In 2024, Unveiling Image Quality A Newbie's Comprehensible Guide</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-the-runners-digital-dream-top-virtual-reality-walkers-for-2024/"><u>[New] The Runner's Digital Dream Top Virtual Reality Walkers for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-dji-drone-family-fundamentals-advanced-models-cinematic-edition/"><u>[Updated] 2024 Approved DJI Drone Family Fundamentals, Advanced Models, Cinematic Edition</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-mastering-image-merging-techniques/"><u>[Updated] 2024 Approved Mastering Image Merging Techniques</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-prime-free-improvement-suite-pc-and-phone-edition/"><u>[Updated] 2024 Approved Prime FREE Improvement Suite PC & Phone Edition</u></a></li>
-<li><a href="https://extra-information.techidaily.com/updated-bring-life-into-your-photos-with-these-top-11-tutorials/"><u>[Updated] Bring Life Into Your Photos with These Top 11 Tutorials</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-mobile-screening-guide-gogooglemeetrecorder-tips/"><u>[Updated] Mobile Screening Guide GoGoogleMeetRecorder Tips</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-quick-guide-to-video-cross-upload-twitter-and-tumblr-for-2024/"><u>[Updated] Quick Guide to Video Cross-Upload Twitter & Tumblr for 2024</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/engage-anytime-anywhere-chatgpt-on-android/"><u>Engage Anytime, Anywhere: ChatGPT on Android</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-from-your-xiaomi-redmi-note-13-pro-5g-by-drfone-android/"><u>In 2024, A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock from your Xiaomi Redmi Note 13 Pro 5G</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/revolutionize-your-business-with-these-8-key-uses-of-chatgpt/"><u>Revolutionize Your Business with These 8 Key Uses of ChatGPT</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/ultimate-guide-to-grove-plugs-with-stemma-qt-add-ons-for-raspberry-pi-and-arduino-2024-edition/"><u>Ultimate Guide to Grove Plugs with Stemma QT Add-Ons for Raspberry PI & Arduino - 2024 Edition</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-in-depth-look-at-vsco-photo-craftsmanship/"><u>[New] 2024 Approved In-Depth Look at VSCO Photo Craftsmanship</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-illusory-journeys-through-time-and-dimensions-for-2024/"><u>[New] Illusory Journeys Through Time and Dimensions for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-examining-the-new-evolution-of-sonys-s6500-player/"><u>[New] In 2024, Examining the New Evolution of Sony's S6500 Player</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-bygone-brilliance-art-beyond-intellectual-property-for-2024/"><u>[Updated] Bygone Brilliance Art Beyond Intellectual Property for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-smoothly-record-your-desktop-on-win11-for-2024/"><u>[Updated] Smoothly Record Your Desktop on Win11 for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-the-ultimate-roadmap-to-mastering-your-youtube-video-editing-skills/"><u>2024 Approved The Ultimate Roadmap to Mastering Your YouTube Video Editing Skills</u></a></li>
+<li><a href="https://fake-location.techidaily.com/can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-honor-x7b-drfone-by-drfone-virtual-android/"><u>Can Life360 Track Or See Text Messages? What Can You Do with Life360 On Honor X7b? | Dr.fone</u></a></li>
+<li><a href="https://driver-error.techidaily.com/graphics-hardware-blockade-in-windows-environment/"><u>Graphics Hardware Blockade in Windows Environment</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/harnessing-hixs-ai-capabilities-leverage-gpt-4-for-effortless-writing-automation/"><u>Harnessing Hix's AI Capabilities: Leverage GPT-4 for Effortless Writing Automation</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/the-ultimate-troubleshooting-guide-for-error-code-0xc1900208-in-windows-10-updates/"><u>The Ultimate Troubleshooting Guide for Error Code 0xC1900208 in Windows 10 Updates</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/unique-images-unique-voice-podcast-graphic-principles/"><u>Unique Images, Unique Voice Podcast Graphic Principles</u></a></li>
 </ul></div>
 

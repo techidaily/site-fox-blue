@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] First Impressions  A Deep Dive Into 3D Printing Alone\""
-date: 2024-09-13T20:30:06.494Z
-updated: 2024-09-20T17:04:20.278Z
+date: 2024-10-09T02:00:55.222Z
+updated: 2024-10-12T17:45:00.897Z
 tags: 
   - screen-recording
   - ai video
@@ -53,6 +53,13 @@ thumbnail: https://thmb.techidaily.com/8b3d2d47a5002bc66759eafaa4c246c7aaef6efd4
 
  The 3DR solo drone is designed to serve with amazing aerial photography functions that is why it is one of the most preferred drones by cinematographers. One can easily connect it with GoPro cameras to get stunning shots on height. But the downside is its short battery life and weak GPS.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Complete Review
 
 #### 1\. Basic Specs Info
@@ -72,6 +79,13 @@ thumbnail: https://thmb.techidaily.com/8b3d2d47a5002bc66759eafaa4c246c7aaef6efd4
 
 ![3dr solo design](https://images.wondershare.com/filmora/article-images/3dr-solo-design.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087409/7443" target="_top" id="2087409">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087409" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087409/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [Check at Amazon](https://www.amazon.com/gp/product/B00ZPM7BOG/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00ZPM7BOG&linkId=5a8069fda1f7be3bf48e831452f3ee9d)
 
  People call 3DR Solo one of the most impressive drone with minimal complexities in design. It is the best product for cinematographic needs and you could easily imagine it hovering on the top to capture scenes for Hollywood movies. You will find a 5200mAh battery on top portion of this drone, located near power button. It appears little heavier with the gimbal, camera and battery installation, the overall weight goes up to 3.35 pounds. Note that, you need to get your drone registered with FAA to organise its flights because the weight goes above 0.5 pounds limit. You will find indicating LEDs on this device that keep on indicating full status during its flights and they can be observed in day light too. Users need to connect this device with a smartphone or iOS device to avail full control as well as to get live preview of shoots.
@@ -88,6 +102,13 @@ thumbnail: https://thmb.techidaily.com/8b3d2d47a5002bc66759eafaa4c246c7aaef6efd4
 
 ![3dr solo controller](https://images.wondershare.com/filmora/article-images/3dr-solo-controller.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959778/19272" target="_top" id="1959778">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959778" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959778/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  The 3DR solo controller appears trendy with just two joysticks that offer direct control to acceleration, yaw, pitch and roll. The fly button can be accessed for initiated automated landing and takeoff. A tiny screen is provided to display continuous information about battery condition and telemetry data. One additional knob is available for adjustments of camera angle controls. Other then this you will find one customizable button to activate autonomous flight mode. It also provides one pause button that helps users to make their drone stable in air. All other controls can be managed from application.
 
 #### 6\. Camera
@@ -101,6 +122,19 @@ thumbnail: https://thmb.techidaily.com/8b3d2d47a5002bc66759eafaa4c246c7aaef6efd4
 **You may also like:** [10 Must Have drone accessories and parts](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1492813">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Max Wales
 
@@ -125,12 +159,24 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880972/19272" target="_top" id="1880972">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880972" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880972/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-digital-rehearsal-mastery-in-recording-streaming-audio/"><u>[New] In 2024, Digital Rehearsal Mastery in Recording Streaming Audio</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-inside-and-out-a-full-guide-to-theta-s-features-for-2024/"><u>[New] Inside & Out A Full Guide to Theta S Features for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-skyrocket-your-twitter-presence-through-livestreaming-for-2024/"><u>[New] Skyrocket Your Twitter Presence Through Livestreaming for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-lunapic-basics-for-budding-photographers/"><u>[Updated] 2024 Approved LunaPic Basics for Budding Photographers</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-beyond-reality-comparing-vr-augmented-and-mixed-tech/"><u>[Updated] Beyond Reality Comparing VR, Augmented & Mixed Tech</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-crafting-content-that-encourages-constructive-youtube-commentary-for-2024/"><u>[Updated] Crafting Content that Encourages Constructive YouTube Commentary for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-exclusive-list-of-asmr-apps-for-phones/"><u>[Updated] Exclusive List of ASMR Apps for Phones</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-precision-in-dissipating-soundtracks-a-guide-for-pros/"><u>[Updated] In 2024, Precision in Dissipating Soundtracks A Guide for Pros</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-the-blueprint-to-hitting-it-big-with-instagram-videos/"><u>[Updated] In 2024, The Blueprint to Hitting It Big with Instagram Videos</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-the-essential-guide-to-vitas-complete-video-editing-software/"><u>[Updated] In 2024, The Essential Guide to Vita's Complete Video Editing Software</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-top-2024s-android-in-the-cloud-innovators/"><u>[Updated] Top 2024'S Android in the Cloud Innovators</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/dji-drone-artistry-unlocked-first-20-free-lutts-available/"><u>DJI Drone Artistry Unlocked – First 20 Free LUTTs Available</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-card-on-realme-c53-online-without-jailbreak-by-drfone-android/"><u>How to Unlock SIM Card on Realme C53 online without jailbreak</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-standout-80s-aesthetics-for-video-editing-pros/"><u>In 2024, Standout '80S Aesthetics for Video Editing Pros</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-unlock-online-visibility-with-essential-vids-tools/"><u>In 2024, Unlock Online Visibility with Essential Vids' Tools</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/meme-making-made-simple-without-cost/"><u>Meme-Making Made Simple, Without Cost</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/the-ultimate-checklist-for-selecting-prime-streaming-services-of-cricket-for-2024/"><u>The Ultimate Checklist for Selecting Prime Streaming Services of Cricket for 2024</u></a></li>
+</ul></div>
 
