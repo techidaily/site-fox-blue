@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Expand Your Viewing Realm on YouTube Platforms\""
-date: 2024-09-11T16:01:12.762Z
-updated: 2024-09-15T16:49:52.663Z
+date: 2024-10-15T04:07:03.785Z
+updated: 2024-10-18T20:53:39.765Z
 tags: 
   - screen-recording
   - ai video
@@ -69,6 +69,13 @@ Step4From Crop window, go to Pan & Zoom section. Place the rectangular box on th
 
 If you want, you can export the edited video in any desired file format directly from [Filmora](https://tools.techidaily.com/wondershare/filmora/download/).
 
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/1943647/22993" target="_top" id="1943647">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943647" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Way 3\. Use YouTube Built-in Editor
 
 With new YouTube creators coming on-board regularly, YouTube has introduced a built-in editor for the amateurs to edit their videos and publish them on the platform. YouTube built-in editor is a basic video editor through which you can add transitions and background music as well as trim and zoom. Here are the steps on how to zoom to YouTube videos through built-in editor.
@@ -79,6 +86,13 @@ Step2From the top, click on Create button and select Upload Videos. Add the down
 
 ![youtube built in editor zoom](https://images.wondershare.com/filmora/article-images/2022/07/zoom-in-youtube-2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087395/7443" target="_top" id="2087395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3After uploading, click on the Video and select Editor option from the left menu.
 
 Step4You will find Zoom in and Zoom out icon below the video preview. Here, zoom in means the timeline gets zoomed so that you can check out the video frame by frame to find out all the details in any portion of the video.
@@ -86,10 +100,10 @@ Step4You will find Zoom in and Zoom out icon below the video preview. Here, zoom
 ![zoom in out youtube video](https://images.wondershare.com/filmora/article-images/2022/07/zoom-in-youtube-3.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135360/19272" target="_top" id="2135360">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135360" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://ursime.pxf.io/c/5597632/2136536/16384" target="_top" id="2136536">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136536" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135360/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136536/16384" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The Bottom Line
@@ -104,6 +118,13 @@ Step2Drag and drop the target YouTube video on Filmora into Project Media folder
 
 ![drag video into project media folder ](https://images.wondershare.com/filmora/guide/get-started-with-filmora-02.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047406/19272" target="_top" id="2047406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047406" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3Thereafter, drag and drop the YouTube video file from Project Media folder into Timeline. Click on Crop icon located at the top of the timeline.
 
 ![drag video file into timeline](https://images.wondershare.com/filmora/guide/filmora-split-button.jpg)
@@ -111,6 +132,13 @@ Step3Thereafter, drag and drop the YouTube video file from Project Media folder 
 Step4From Crop window, go to Pan & Zoom section. Place the rectangular box on that portion of the video which you want to zoom in. Mark the start and end of the video for pan and zoom effect. Play the video to watch how the effect unfolds. Finally, click on OK button.
 
 ![go to pan zoom section](https://images.wondershare.com/filmora/guide/crop-video-filmora.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925484/19272" target="_top" id="1925484">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925484" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925484/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 If you want, you can export the edited video in any desired file format directly from [Filmora](https://tools.techidaily.com/wondershare/filmora/download/).
 
@@ -129,32 +157,6 @@ Step3After uploading, click on the Video and select Editor option from the left 
 Step4You will find Zoom in and Zoom out icon below the video preview. Here, zoom in means the timeline gets zoomed so that you can check out the video frame by frame to find out all the details in any portion of the video.
 
 ![zoom in out youtube video](https://images.wondershare.com/filmora/article-images/2022/07/zoom-in-youtube-3.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1484963">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<span id="1975555">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## The Bottom Line
 
@@ -182,5 +184,19 @@ There are several ways you can zoom into YouTube videos to check out the desired
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-capturing-the-joy-of-nintendo-switch-gaming/"><u>[New] 2024 Approved Capturing the Joy of Nintendo Switch Gaming</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-unleash-potential-discovering-free-onlineoffline-animations/"><u>[New] 2024 Approved Unleash Potential Discovering Free Online/Offline Animations</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-fixing-the-full-screen-freeze-in-obs/"><u>[Updated] 2024 Approved Fixing the Full-Screen Freeze in OBS</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-navigating-influencer-growth-on-instagram-top-5-steps-with-real-success/"><u>[Updated] In 2024, Navigating Influencer Growth on Instagram Top 5 Steps with Real Success</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-shutter-stillness-strategies-for-photos/"><u>[Updated] In 2024, Shutter Stillness Strategies for Photos</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-sow-seeds-of-smile-inducing-images/"><u>[Updated] In 2024, Sow Seeds of Smile-Inducing Images</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/3-methods-to-mirror-xiaomi-civi-3-disney-100th-anniversary-edition-to-roku-drfone-by-drfone-android/"><u>3 Methods to Mirror Xiaomi Civi 3 Disney 100th Anniversary Edition to Roku | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-choosing-the-right-display-tvs-vs-projectors-in-a-4k-era/"><u>In 2024, Choosing the Right Display TVs vs Projectors in a 4K Era</u></a></li>
+<li><a href="https://howto.techidaily.com/poco-x6-bootloop-problem-how-to-fix-it-without-data-loss-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Poco X6 Bootloop Problem, How to Fix it Without Data Loss | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/repair-damaged-unplayable-video-files-of-spark-20c-on-windows-by-stellar-video-repair-mobile-video-repair/"><u>Repair damaged, unplayable video files of Spark 20C on Windows</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/ultimate-guide-to-comparing-leading-4k-youtube-to-mp3-extractors/"><u>Ultimate Guide to Comparing Leading 4K YouTube to MP3 Extractors</u></a></li>
+<li><a href="https://os-tips.techidaily.com/ultimate-guide-resolving-iphones-persistent-headphones-trouble/"><u>Ultimate Guide: Resolving iPhone's Persistent Headphones Trouble</u></a></li>
+</ul></div>
 

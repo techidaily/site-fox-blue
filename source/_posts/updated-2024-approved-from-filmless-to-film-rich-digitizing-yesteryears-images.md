@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  From Filmless to Film-Rich  Digitizing Yesteryears' Images\""
-date: 2024-10-12T05:30:16.418Z
-updated: 2024-10-12T21:57:09.839Z
+date: 2024-10-13T23:01:18.441Z
+updated: 2024-10-18T23:27:37.431Z
 tags: 
   - screen-recording
   - ai video
@@ -91,13 +91,6 @@ To start with, you can just launch Filmora on your system and import your photos
 
 ![import Digitized Photos](https://images.wondershare.com/filmora/article-images/import-digitized-photos.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557742/17382" target="_top" id="1557742">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557742" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557742/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### 2\. Create a timeline for your photos
 
 Once you have imported your photos, you can include them in the timeline. To do this, you can click on the “+” button that is located on the top of the photo’s thumbnail. You can also just drag any photo and drop it on the preferred location in the timeline.
@@ -105,10 +98,10 @@ Once you have imported your photos, you can include them in the timeline. To do 
 ![create timeline for photos ](https://images.wondershare.com/filmora/article-images/create-timeline-for-photos.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2087262/19272" target="_top" id="2087262">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087262" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087262/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### 3\. Edit the video
@@ -125,6 +118,19 @@ As stated above, you can find a wide range of video editing options to explore i
 
 ![Add Effects to Digitized Photos ](https://images.wondershare.com/filmora/article-images/add-effects-to-old-photo-video.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983588">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 To add text to your videos, just go to the “Titles” option here. This will let you select a text effect, letting you add the content of your choice.
 
 ![Add Title to Digitized Photos ](https://images.wondershare.com/filmora/article-images/add-title-old-photo-video.jpg)
@@ -133,11 +139,25 @@ Besides that, you can also add a track to the video by visiting the “Audio” 
 
 ![Add Audio to Digitized Photos ](https://images.wondershare.com/filmora/article-images/add-audio-old-photo-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037345/7443" target="_top" id="2037345">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037345" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037345/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### 5\. Export your video
 
 That’s it! After making all the changes, you can preview your video on the right side. If you are satisfied with the results, then click on the “Export” button from the top. This will open a dedicated window, letting you select a preferred format to export your file. You can also select a resolution for your video to adjust its size as well.
 
 ![Export Book Trailer File](https://images.wondershare.com/filmora/article-images/book-trailer-export-file.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Find more fancy ways to make the best photo and video slideshow with Filmora!
 
@@ -169,23 +189,9 @@ Most importantly, pick a user-friendly and effective video editor like Filmora. 
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 There you go! I’m sure that after reading this guide, you would be able to digitize photos pretty easily. Not just that, you can also come up with memorable videos using your old photographs with a tool like Filmora. The resourceful application offers a wide range of video editing tools that will certainly come handy to you on numerous occasions.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037351/7443" target="_top" id="2037351">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037351" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037351/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -212,19 +218,22 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-crafting-a-celebrity-online-presence-nine-strategies-for-social-media-success-for-2024/"><u>[New] Crafting a Celebrity Online Presence Nine Strategies for Social Media Success for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-enhance-your-digital-gallery-mastering-online-crop-functions/"><u>[New] In 2024, Enhance Your Digital Gallery Mastering Online Crop Functions</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-innovative-methods-for-creating-luts/"><u>[New] Innovative Methods for Creating LUTs</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/update-surface-dock-driver-quickly-and-easily/"><u>[UPDATE] Surface Dock Driver | Quickly & Easily</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-dissecting-samsungs-photo-enhancing-software-features/"><u>[Updated] 2024 Approved Dissecting Samsung's Photo Enhancing Software Features</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-apples-m1-max-attachments-a-detailed-guide/"><u>[Updated] Apple’s M1 Max Attachments A Detailed Guide</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-retrospective-on-the-goofy-movie-a-comprehensive-review/"><u>[Updated] Retrospective on 'The Goofy Movie' A Comprehensive Review</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/2023s-best-replacements-for-samsung-gear-360/"><u>2023'S Best Replacements for Samsung Gear 360</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-teleport-your-gps-location-on-samsung-galaxy-f14-5g-drfone-by-drfone-virtual-android/"><u>How To Teleport Your GPS Location On Samsung Galaxy F14 5G? | Dr.fone</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-10-best-no-cost-live-streaming-tools-android-and-iphone-guide/"><u>In 2024, 10 Best No-Cost Live Streaming Tools Android & iPhone Guide</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-9-best-free-android-monitoring-apps-to-monitor-phone-remotely-for-your-infinix-smart-8-pro-drfone-by-drfone-virtual/"><u>In 2024, 9 Best Free Android Monitoring Apps to Monitor Phone Remotely For your Infinix Smart 8 Pro | Dr.fone</u></a></li>
-<li><a href="https://win-dash.techidaily.com/1722967256450-insignia-usb-to-monitor-vga-adapter-free-download-and-installation-help/"><u>Insignia USB to Monitor VGA Adapter - Free Download & Installation Help!</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/top-10-best-4k-tvs-for-2024/"><u>Top 10 Best 4K TVs for 2024</u></a></li>
-<li><a href="https://fox-that.techidaily.com/urgent-update-the-essential-reasons-to-upgrade-to-ios-153-immediately/"><u>Urgent Update: The Essential Reasons to Upgrade to iOS 15.3 Immediately</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-channel-saving-techniques-youtube-meets-igtv/"><u>[New] 2024 Approved Channel-Saving Techniques YouTube Meets IGTV</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-interactive-photography-sharing-immersive-360-photos-via-mobile-devices/"><u>[New] 2024 Approved Interactive Photography Sharing Immersive 360 Photos via Mobile Devices</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-breathing-life-into-your-ig-story-text-with-animation-for-2024/"><u>[New] Breathing Life Into Your IG Story Text with Animation for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-covert-snapcapture-stealthy-tactics-for-unseen-picture-recording-for-2024/"><u>[New] Covert SnapCapture Stealthy Tactics for Unseen Picture Recording for 2024</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-from-raw-to-refined-tailoring-youtube-videos-with-premiere-pro/"><u>[New] From Raw to Refined Tailoring YouTube Videos with Premiere Pro</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-from-basic-to-brilliant-top-10-pixlr-techniques/"><u>[New] In 2024, From Basic to Brilliant Top 10 Pixlr Techniques</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-iphones-easy-path-to-picture-softness-four-key-steps/"><u>[New] In 2024, IPhone's Easy Path to Picture Softness (Four Key Steps)</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-dark-sky-iphone-tips-and-tricks/"><u>[Updated] 2024 Approved Dark Sky iPhone Tips & Tricks</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/beyond-basics-advanced-imaging-and-video-with-hero5-black/"><u>Beyond Basics Advanced Imaging & Video with Hero5 Black</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/clipmaster-software/"><u>ClipMaster Software</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-peeling-back-layers-what-every-snapchat-emoji-hides/"><u>In 2024, Peeling Back Layers What Every Snapchat Emoji Hides</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-vr-innovations-unwrapped-top-peripherals-spotlight/"><u>In 2024, VR Innovations Unwrapped - Top Peripherals Spotlight</u></a></li>
+<li><a href="https://android-frp.techidaily.com/is-gsm-flasher-adb-legit-full-review-to-bypass-your-motorola-moto-e13frp-lock-by-drfone-android/"><u>Is GSM Flasher ADB Legit? Full Review To Bypass Your Motorola Moto E13FRP Lock</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/navigating-through-vrs-bright-side-and-dark-hole-for-2024/"><u>Navigating Through VR's Bright Side & Dark Hole for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/1721467467002-no-need-for-itunes-heres-how-you-can-bring-your-iphone-back-from-the-dead/"><u>No Need for iTunes? Here's How You Can Bring Your iPhone Back From the Dead</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/stepwise-approach-to-srt-file-creation-brilliance/"><u>Stepwise Approach to SRT File Creation Brilliance</u></a></li>
+<li><a href="https://discover-help.techidaily.com/troubleshooting-guide-successfully-merging-clips-with-vlc-no-more-issues/"><u>Troubleshooting Guide: Successfully Merging Clips with VLC - No More Issues!</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"Starting Point  Audition's Approach to Soft Volume Increase for 2024\""
-date: 2024-09-11T17:43:26.361Z
-updated: 2024-09-15T16:17:44.927Z
+date: 2024-10-14T02:45:07.656Z
+updated: 2024-10-18T20:08:21.609Z
 tags: 
   - screen-recording
   - ai video
@@ -83,50 +83,24 @@ You can also split audio, adjust audio, replace the original audio of a video, a
 
 ## Part 3\. Related FAQs
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148644/16836" target="_top" id="2148644">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148644" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148644/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. How do you fade in multitrack in Audition?
 
 If you want to fade in and fade out two clips at the same time, then controlling just one track or multiple tracks will allow you to do fades on multiple audios inside the multitrack in Adobe Audition.
-
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 2\. How do you do a master fade in Audition?
 
 Select the option of amplifying the effects i.e., amplitude and compression. Do the necessary adjustments there. Then, go to effects and click on Special, and from there, select Mastering.
 
-<!-- affiliate ads begin -->
-<span id="1743243">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 3\. Adobe Audition fade-out greyed out?
 
 Fade-in and fade-out options are available in the top-left and right corners of the waveform. Right-clicking in the project panel will produce no ability to work in the audition. That option is called grey out. Whatever you want to look for won't work in this view.
-
-<!-- affiliate ads begin -->
-<span id="1982456">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -138,6 +112,19 @@ Adobe Audition has always been a powerful platform for audio editing. But as eve
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
 
+<!-- affiliate ads begin -->
+<span id="1155462">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **Steps to use [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) to fade audio:**
 
 * First, do the installation of Filmora software from the home screen and set the default procedure for a successful installation, and then open it. Now, to your timeline, add your desired audio file, and then, opt for double-clicking on the same for opening the Audio editing menu.
@@ -145,22 +132,29 @@ Adobe Audition has always been a powerful platform for audio editing. But as eve
 
 ![set effects](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * There is an alternative to this. You may opt for the selection of fade icons that is on the left and/or right side of the waveform portion so you are able to fade in and/or fade out faster.
 * At the starting point of an audio clip, opt for dragging the fade-in maker that is to the right side. Then, opt for the application of the fade-in effect.
 * Now, opt for the clip's end, and then, opt for dragging the fade-out maker i.e. to the left side. This is for the addition of a fade-out effect. There is one thing to keep in mind if you drag it further, the fade effect lasts for a longer time.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118321/7443" target="_top" id="2118321">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118321" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118321/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3\. Related FAQs
 
 ### 1\. How do you fade in multitrack in Audition?
 
 If you want to fade in and fade out two clips at the same time, then controlling just one track or multiple tracks will allow you to do fades on multiple audios inside the multitrack in Adobe Audition.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139117/17108" target="_top" id="2139117">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139117" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139117/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. How do you do a master fade in Audition?
 
@@ -169,6 +163,13 @@ Select the option of amplifying the effects i.e., amplitude and compression. Do 
 ### 3\. Adobe Audition fade-out greyed out?
 
 Fade-in and fade-out options are available in the top-left and right corners of the waveform. Right-clicking in the project panel will produce no ability to work in the audition. That option is called grey out. Whatever you want to look for won't work in this view.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -200,5 +201,23 @@ Adobe Audition has always been a powerful platform for audio editing. But as eve
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-clips.techidaily.com/new-1st-place-video-saver-download-anywhere-anytime/"><u>[New] 1St Place Video Saver - Download Anywhere, Anytime</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-compare-metaverse-vs-omniverse-an-ultimate-guide/"><u>[New] In 2024, Compare Metaverse Vs. Omniverse An Ultimate Guide</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-innovative-ideas-to-boost-package-prelude-joy-for-2024/"><u>[New] Innovative Ideas to Boost Package Prelude Joy for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-prismatic-vistahub-top-tier-unified-4k-screen-systems/"><u>[New] Prismatic VistaHub Top-Tier, Unified 4K Screen Systems</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/solution-missing-displays-in-windows-10/"><u>[SOLUTION]: Missing Displays in Windows 10</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-exploring-the-world-of-youtube-where-are-my-comments/"><u>[Updated] In 2024, Exploring the World of YouTube Where Are My Comments?</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/8-things-to-consider-before-buying-next-lens-for-4k-camera-for-2024/"><u>8 Things to Consider Before Buying Next Lens for 4K Camera for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/curated-questions-hooking-podcast-enthusiasts/"><u>Curated Questions Hooking Podcast Enthusiasts</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/effective-fixes-when-your-logitech-g430-microphone-stops-working/"><u>Effective Fixes When Your Logitech G430 Microphone Stops Working</u></a></li>
+<li><a href="https://howto.techidaily.com/gmail-not-working-on-realme-narzo-60x-5g-7-common-problems-and-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Gmail Not Working on Realme Narzo 60x 5G 7 Common Problems & Fixes | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/how-to-gently-lower-volume-without-distortion-for-2024/"><u>How to Gently Lower Volume Without Distortion for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-best-performers-top-10-innovative-4k-mirrorless-models/"><u>In 2024, Best Performers Top 10 Innovative 4K Mirrorless Models</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/leveraging-video-production-microsofts-movie-maker-for-windows-11-for-2024/"><u>Leveraging Video Production Microsoft's Movie Maker for Windows 11 for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/steer-clear-of-these-devastating-mistakes-in-using-apple-vision-pro-save-your-project-before-its-too-late-expert-advice-from-zdnet/"><u>Steer Clear of These Devastating Mistakes in Using Apple Vision Pro – Save Your Project Before It's Too Late | Expert Advice From ZDNet</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/1723065069921-sunbrites-55-weatherproof-smart-tv-a-high-resolution-4k-veranda-display-engineered-for-durability-and-brightness/"><u>SunBrite's 55 Weatherproof Smart TV: A High-Resolution 4K Veranda Display Engineered for Durability & Brightness!</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/unlocking-potential-with-chatgpt-a-guide-to-its-native-addons/"><u>Unlocking Potential with ChatGPT: A Guide to Its Native Addons</u></a></li>
+</ul></div>
 

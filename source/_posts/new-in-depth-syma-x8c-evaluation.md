@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In-Depth Syma X8C Evaluation\""
-date: 2024-09-09T17:21:59.637Z
-updated: 2024-09-15T17:34:18.079Z
+date: 2024-10-12T18:43:51.586Z
+updated: 2024-10-19T01:00:11.899Z
 tags: 
   - screen-recording
   - ai video
@@ -60,6 +60,13 @@ thumbnail: https://thmb.techidaily.com/2041635073b88dca4044a894fcdb4e9d1f4358f13
 
  There are loads of pros as well as cons related Syma H8C device but they appear different to various kinds of users. Professionals may be worried about its camera quality whereas beginners will find its controls little complex. But in case if you need something at low price with all acceptable features then Syma H8C is really a good choice for your needs.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144271/7443" target="_top" id="2144271">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144271" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144271/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Complete Review
 
 #### 1. Basic Specs Info
@@ -77,6 +84,13 @@ thumbnail: https://thmb.techidaily.com/2041635073b88dca4044a894fcdb4e9d1f4358f13
 #### 2\.  Design
 
 ![syma vs phantom design](https://images.wondershare.com/filmora/article-images/syma-vs-phantom-design.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2141688/17094" target="_top" id="2141688">
+  <img src="//a.impactradius-go.com/display-ad/17094-2141688" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141688/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  If we consider the appearance then it looks close to the Phantom drone but no doubt to say that few variations exists and they make it unique. The overall dimension of this drone unit is 20x20x6.5 whereas maximum weight goes up to 450 grams thus it cannot be called as a tiny drone. When weighted with camera and prop guards, then this unit has overall weight of 600 grams. This dimension and weight makes this drone much stable in air.
 
@@ -100,6 +114,13 @@ thumbnail: https://thmb.techidaily.com/2041635073b88dca4044a894fcdb4e9d1f4358f13
 
 ![syma x8c camera](https://images.wondershare.com/filmora/article-images/syma-x8c-camera.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2052062/7443" target="_top" id="2052062">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052062" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052062/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  A drone cannot be complete without a camera mounted on its top; hence Syma has taken care of users need and they developed Syma X8C with a camera that can record everything in air. Although, it is not able to collect video information with HD quality but you will be glad to know that it is detachable and one can also make additional adjustments over its angles to adjust focus. All the recorded videos are stored inside a 4GB MicroSD card. Further, the attached gimbal assists in much stable footage.
 
 ## Conclusion
@@ -107,6 +128,13 @@ thumbnail: https://thmb.techidaily.com/2041635073b88dca4044a894fcdb4e9d1f4358f13
  By considering all above factors, we must say that Syma X8C is a well designed drone unit that can serve with much better results as an entry level aerial shoot recorder. As the price tag keeps it below $100 range so beginners find it most affordable for their learning needs and the gimbal protection leads to highly stable footage that can be shared on social media sites to impress friends. The control mechanisms is rated as highly responsive so will all these satisfactory features it becomes a must buy product for your air flight adventures.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105860/7443" target="_top" id="2105860">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105860" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105860/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Max Wales
 
@@ -131,12 +159,20 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-chilly-competition-unveiling-highlights-of-2022s-snowboard-cross-showdown/"><u>[New] 2024 Approved Chilly Competition Unveiling Highlights of 2022'S Snowboard Cross Showdown</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-ouroboros-creator-suite/"><u>[New] 2024 Approved Ouroboros Creator Suite</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-the-blueprint-to-dominate-with-your-spotify-ad-campaign/"><u>[New] The Blueprint to Dominate With Your Spotify Ad Campaign</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-design-guide-youtube-banners-and-thumbnail-creation/"><u>[Updated] 2024 Approved Design Guide YouTube Banners & Thumbnail Creation</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-apex-4k-video-recorders-our-top-18-selection-for-2024/"><u>[Updated] Apex 4K Video Recorders Our Top 18 Selection for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-simplified-hdr-an-in-depth-examination/"><u>[Updated] In 2024, Simplified HDR An In-Depth Examination</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-the-essential-guide-to-motion-blur-in-adobe-photoshop/"><u>2024 Approved The Essential Guide to Motion Blur in Adobe Photoshop</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-timeless-classics-most-iconic-anime-openers/"><u>2024 Approved Timeless Classics Most Iconic Anime Openers</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/ensuring-earning-potential-on-youtubers/"><u>Ensuring Earning Potential on YouTubers</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/raphic-mind-numbing-youtube-factsfigures-and-statistics-for-2024/"><u>Infographic - Mind Numbing YouTube Facts,Figures and Statistics for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/questioning-the-reliability-of-zerogpt-and-similar-tech-tools/"><u>Questioning the Reliability of ZeroGPT & Similar Tech Tools</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/speedy-movie-making-hacks-tips-to-learn-and-apply-at-home/"><u>Speedy Movie Making Hacks Tips to Learn and Apply at Home</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-in-2024-how-to-make-animation-talk-explained-with-easy-steps/"><u>Updated In 2024, How To Make Animation Talk? Explained with Easy Steps</u></a></li>
+</ul></div>
 

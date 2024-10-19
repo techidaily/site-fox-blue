@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Singing Alerts  Crafting and Configuring Customizable Sounds & Ringtones on Android\""
-date: 2024-09-13T16:27:35.518Z
-updated: 2024-09-15T16:39:26.798Z
+date: 2024-10-15T01:55:08.145Z
+updated: 2024-10-18T18:09:26.178Z
 tags: 
   - screen-recording
   - ai video
@@ -62,13 +62,34 @@ Step2 Click on the **"Import"** option to add an MP3 file.
 
 ![adding an mp3 file in filmora](https://images.wondershare.com/filmora/article-images/2023/03/adding-an-mp3-file-in-filmora.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868571/19272" target="_top" id="1868571">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868571" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868571/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3 Drag the MP3 file and drop it into the **"Timeline Panel"** present at the bottom.
 
 ![adding an mp3 file to the timeline](https://images.wondershare.com/filmora/article-images/2023/03/adding-an-mp3-file-to-the-timeline.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938677/19272" target="_top" id="1938677">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938677" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938677/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step4 Click the MP3 file, and a double arrow will appear. Drag the double arrow on the MP3 file to select a part that you want to trim. Now, click the **"Split"** option to delete the selected part.
 
 ![select and trim the mp3 file](https://images.wondershare.com/filmora/article-images/2023/03/select-and-trim-the-mp3-file.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step5 Click the **"Export"** option and export the newly created MP3 file in MP3 format.
 
@@ -98,6 +119,13 @@ Step5 Select the customized ringtone from **"Sound Picker"** and tap **"Done,"**
 
 ![select customized mp3 file from sound pickerr](https://images.wondershare.com/filmora/article-images/2023/03/select-customized-mp3-file-from-sound-pickerr.PNG)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105864/7443" target="_top" id="2105864">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105864/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Set an MP3 File as a Notification Sound?
 
 Apart from setting ringtone, you are also supported to set customized notification sound. If you want to use an MP3 file as a notification sound on Android, follow the below-mentioned steps:
@@ -114,9 +142,23 @@ Step3 A list of default notification sounds will open up. To select the trimmed 
 
 ![tap + button to add trimmed mp3 filee](https://images.wondershare.com/filmora/article-images/2023/03/tap-button-to-add-trimmed-mp3-filee.PNG)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2148127/17093" target="_top" id="2148127">
+  <img src="//a.impactradius-go.com/display-ad/17093-2148127" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148127/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step4 Select the customized sound and tap **"Save."** Now you have successfully set a customized MP3 file as a notification sound.
 
 ![select customized sound and tap save](https://images.wondershare.com/filmora/article-images/2023/03/select-customized-sound-and-tap-save.PNG)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2044585/7443" target="_top" id="2044585">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044585" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044585/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to Set MP3 Ringtones for Specific Contacts?
 
@@ -138,25 +180,11 @@ Step4 A list of default ringtones will appear. If you want to add a customized r
 
 ![tap + button to add trimmed mp3 file](https://images.wondershare.com/filmora/article-images/2023/03/tap-button-to-add-trimmed-mp3-fille.PNG)
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step5 Select the customized MP3 file from **"Sound Picker,"** and you are done.
 
 Repeat the above steps to set MP3 ringtones for other contacts on your Android phone.
 
 ![select customized mp3 file from sound picker](https://images.wondershare.com/filmora/article-images/2023/03/select-customized-mp3-file-from-sound-picker.PNG)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -203,13 +231,6 @@ Step5 Click the **"Export"** option and export the newly created MP3 file in MP3
 
 ![export the mp3 file in mp3 format](https://images.wondershare.com/filmora/article-images/2023/03/export-the-mp3-file-in-mp3-format.png)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134249/18498" target="_top" id="2134249">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134249" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134249/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Set an MP3 File as a Ringtone on Android?
 
 After learning about how to make keen ringtones by yourself, it’s time to set the MP3 file as your Android ringtone. You can set a trimmed MP3 file as a ringtone on your Android phone by doing these steps:
@@ -230,23 +251,9 @@ Step4 Now, all the default ringtones of the phone will appear here. To use a cus
 
 ![tap + button to add trimmed mp3 fille](https://images.wondershare.com/filmora/article-images/2023/03/tap-button-to-add-trimmed-mp3-fille.PNG)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step5 Select the customized ringtone from **"Sound Picker"** and tap **"Done,"** and that's it. You've now successfully set a customized ringtone on your Android phone.
 
 ![select customized mp3 file from sound pickerr](https://images.wondershare.com/filmora/article-images/2023/03/select-customized-mp3-file-from-sound-pickerr.PNG)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to Set an MP3 File as a Notification Sound?
 
@@ -263,6 +270,19 @@ Step2 Now scroll below and tap the **"Notification Sound"** option.
 Step3 A list of default notification sounds will open up. To select the trimmed MP3 file, tap the **"+"** button available at the bottom.
 
 ![tap + button to add trimmed mp3 filee](https://images.wondershare.com/filmora/article-images/2023/03/tap-button-to-add-trimmed-mp3-filee.PNG)
+
+<!-- affiliate ads begin -->
+<span id="1793213">
+					<video width="864" height="1296" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step4 Select the customized sound and tap **"Save."** Now you have successfully set a customized MP3 file as a notification sound.
 
@@ -294,6 +314,13 @@ Repeat the above steps to set MP3 ringtones for other contacts on your Android p
 
 ![select customized mp3 file from sound picker](https://images.wondershare.com/filmora/article-images/2023/03/select-customized-mp3-file-from-sound-picker.PNG)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934138/19272" target="_top" id="1934138">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934138" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934138/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 In this comprehensive article, we dug deep into finding an easy way to add custom ringtones and sounds to your Android phone. We also shared a simple method to trim large MP3 files using Wondershare Filmora to sort the storage issues without affecting the audio quality.
@@ -324,5 +351,21 @@ Hopefully, you will find our article helpful, and you can now add customized rin
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-accessing-and-saving-fb-stories-made-simple-5-top-tactics-mobiledesktop/"><u>[New] 2024 Approved Accessing & Saving FB Stories Made Simple 5 Top Tactics (Mobile/Desktop)</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-step-by-step-manual-kickstart-your-bite-sized-gadget-reviews-channel/"><u>2024 Approved Step-by-Step Manual Kickstart Your Bite-Sized Gadget Reviews Channel</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-steps-for-gradual-audio-dimming-with-lumafusion/"><u>2024 Approved Steps for Gradual Audio Dimming with Lumafusion</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-the-archivists-arsenal-pivotal-80s-vhs-tricks-for-editors/"><u>2024 Approved The Archivist’s Arsenal Pivotal 80S VHS Tricks for Editors</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-the-ultimate-guide-to-polarr-photo-editor-proficiency/"><u>2024 Approved The Ultimate Guide to Polarr Photo Editor Proficiency</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-tips-for-seamless-integration-of-supplementary-footage/"><u>2024 Approved Tips for Seamless Integration of Supplementary Footage</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-unlocking-fullscreen-potential-in-adobe-premiere/"><u>2024 Approved Unlocking Fullscreen Potential in Adobe Premiere</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/7-tipps-fur-den-transfer-von-iphone-filmen-zu-einem-pc-unter-windows-10-oder-11-schritt-fur-schritt-anleitung/"><u>7 Tipps Für Den Transfer Von IPhone-Filmen Zu Einem PC Unter Windows 10 Oder 11: Schritt-Für-Schritt-Anleitung</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/from-capture-to-creation-discover-the-best-montage-apps-for-smartphones/"><u>From Capture to Creation Discover the Best Montage Apps for Smartphones</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-can-i-catch-the-regional-pokemon-without-traveling-on-apple-iphone-12-drfone-by-drfone-virtual-ios/"><u>How Can I Catch the Regional Pokémon without Traveling On Apple iPhone 12 | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-watch-hulu-outside-us-on-zte-nubia-z60-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, How to Watch Hulu Outside US On ZTE Nubia Z60 Ultra | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-unleash-creativity-with-ease-mastering-the-art-of-photo-text-editing/"><u>In 2024, Unleash Creativity with Ease Mastering the Art of Photo Text Editing</u></a></li>
+<li><a href="https://win-dash.techidaily.com/1726027162990-iphoneandroid/"><u>IPhoneやAndroidでダウンロード曲をメッセージ通知音として設定するコツ</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-discover-the-best-free-3d-animation-apps-for-android-and-ios-devices-for-2024/"><u>Updated Discover the Best Free 3D Animation Apps for Android and iOS Devices for 2024</u></a></li>
+</ul></div>
 

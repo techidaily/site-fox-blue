@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Echoes of Excellence  Learning the Art of Fading in Audition\""
-date: 2024-09-14T16:34:12.655Z
-updated: 2024-09-15T16:33:01.126Z
+date: 2024-10-15T02:44:10.861Z
+updated: 2024-10-18T19:39:27.730Z
 tags: 
   - screen-recording
   - ai video
@@ -77,18 +77,31 @@ You can also split audio, adjust audio, replace the original audio of a video, a
 
 ![set effects](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087248/19272" target="_top" id="2087248">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087248" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087248/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * There is an alternative to this. You may opt for the selection of fade icons that is on the left and/or right side of the waveform portion so you are able to fade in and/or fade out faster.
 * At the starting point of an audio clip, opt for dragging the fade-in maker that is to the right side. Then, opt for the application of the fade-in effect.
 * Now, opt for the clip's end, and then, opt for dragging the fade-out maker i.e. to the left side. This is for the addition of a fade-out effect. There is one thing to keep in mind if you drag it further, the fade effect lasts for a longer time.
 
-## Part 3\. Related FAQs
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1424527">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+## Part 3\. Related FAQs
 
 ### 1\. How do you fade in multitrack in Audition?
 
@@ -124,19 +137,19 @@ Adobe Audition has always been a powerful platform for audio editing. But as eve
 * Now, opt for the clip's end, and then, opt for dragging the fade-out maker i.e. to the left side. This is for the addition of a fade-out effect. There is one thing to keep in mind if you drag it further, the fade effect lasts for a longer time.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130870/7443" target="_top" id="2130870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043594/7443" target="_top" id="2043594">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043594" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043594/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3\. Related FAQs
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1\. How do you fade in multitrack in Audition?
@@ -144,10 +157,10 @@ Adobe Audition has always been a powerful platform for audio editing. But as eve
 If you want to fade in and fade out two clips at the same time, then controlling just one track or multiple tracks will allow you to do fades on multiple audios inside the multitrack in Adobe Audition.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2\. How do you do a master fade in Audition?
@@ -188,5 +201,21 @@ Adobe Audition has always been a powerful platform for audio editing. But as eve
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-how-to-get-blessed-gospel-music-as-your-ringtone/"><u>[New] 2024 Approved How to Get Blessed Gospel Music as Your Ringtone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-aurora-high-dynamic-range-review-pros-and-cons/"><u>[New] In 2024, Aurora High-Dynamic Range Review – Pros & Cons</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-nature-of-the-cosmos-select-sky-photography-websites/"><u>[New] In 2024, Nature of the Cosmos Select Sky Photography Websites</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-the-path-to-professional-looking-colors-in-gopro-editing-for-2024/"><u>[New] The Path to Professional-Looking Colors in GoPro Editing for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-kicking-off-with-keyframe-quality-controls/"><u>[Updated] 2024 Approved Kicking Off with Keyframe Quality Controls</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-explore-the-spectrum-of-light-with-windows-hdr-video-capabilities-for-2024/"><u>[Updated] Explore the Spectrum of Light with Windows' HDR Video Capabilities for 2024</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/a-detailed-pokemon-go-pvp-tier-list-to-make-you-a-pro-trainer-for-apple-iphone-14-pro-max-drfone-by-drfone-virtual-ios/"><u>A Detailed Pokemon Go PvP Tier List to Make you a Pro Trainer For Apple iPhone 14 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://win-forum.techidaily.com/how-to-delete-memory-dump-files-windows-10/"><u>How to Delete Memory Dump Files Windows 10</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-expert-advice-on-acquiring-royalty-free-high-quality-graphics/"><u>In 2024, Expert Advice on Acquiring Royalty-Free, High-Quality Graphics</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-card-on-infinix-online-without-jailbreak-by-drfone-android/"><u>In 2024, How to Unlock SIM Card on Infinix online without jailbreak</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-steer-clear-of-virtual-reality-sickness/"><u>In 2024, Steer Clear of Virtual Reality Sickness</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/influencer-insights-the-top-5-instagram-moves-for-viral-content-for-2024/"><u>Influencer Insights The Top 5 Instagram Moves for Viral Content for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/influencers-and-the-wave-of-covid-misguidance/"><u>Influencers and the Wave of Covid Misguidance</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/twitters-hot-takes-the-10-craziest-tweets-for-2024/"><u>Twitter's Hot Takes The 10 Craziest Tweets for 2024</u></a></li>
+</ul></div>
 

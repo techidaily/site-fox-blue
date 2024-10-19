@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Viral Photo Trends  Capturing Memes' True Essence\""
-date: 2024-10-07T00:46:10.530Z
-updated: 2024-10-12T16:29:59.816Z
+date: 2024-10-14T01:20:26.887Z
+updated: 2024-10-18T18:49:18.738Z
 tags: 
   - screen-recording
   - ai video
@@ -58,13 +58,6 @@ The original photo is the work of Antonio Guillem, who uploaded it on iStock in 
 
 ![original photo](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-5.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049378/7443" target="_top" id="2049378">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049378" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049378/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 According to Meme Documentation, the first version of the Distracted boyfriend theme dates back to January 2017\. Prog Snob, a Turkish progressive rock group on Facebook, posted the meme on their page to reference Phil Collin's distraction from progressive rock by pop music. However, it was the August 2017 Twitter version referencing the youth's feelings towards capitalism and socialism that went viral.
 
 Since then, the meme continues to enjoy mass popularity, including:
@@ -81,10 +74,10 @@ The latest version of Distracted boyfriend is a compilation of photos featuring 
 In addition, Antonio Guillem also has a stock image meme where the roles are reversed. The meme was later posted on Reddit underneath the original and received over 25,600 points in 24 hours.
 
 <!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557743/17382" target="_top" id="1557743">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557743" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087390/7443" target="_top" id="2087390">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087390" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557743/17382" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087390/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part3: I Bet He's Thinking About Other Women
@@ -114,10 +107,10 @@ According to sources, the stock photo meme was first featured on Twitter in Dece
 Twitter user @chocos posts the image with Spanish captions, with the woman sure the man is thinking of another. However, the man wonders why there are sounds in Star Wars when the sound does not travel in space. Since then, the tweet has received over 1,700 retweets and 2,200 likes.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036472/19272" target="_top" id="2036472">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036472" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
+  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036472/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part4: Bonjour Bear
@@ -133,10 +126,10 @@ Since then, internet users have continued to use the Bonjour Bear meme to refere
 ![using hand sanitizer](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-12.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918666/19272" target="_top" id="1918666">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918666" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151858/7443" target="_top" id="2151858">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151858" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918666/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151858/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 In addition, the post received over 91,700 points, with 95% of upvotes, within a day on Reddit.
@@ -146,7 +139,21 @@ In addition, the post received over 91,700 points, with 95% of upvotes, within a
 
 The photo is available on most stock photo websites, such as Adobe and Tumblr. Furthermore, you will find other hilarious versions of Bonjour Bear under the subreddits r/dankmemes and r/memes on Reddit.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938677/19272" target="_top" id="1938677">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938677" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938677/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part5: FAQs
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 1\. Can you use stock photos for memes?
 
@@ -154,22 +161,15 @@ Yes, you can use stock photos for memes. However, you need to obtain them from r
 
 This is because not all stock photo providers offer their images with a creative commons license. For example, the Unsplash license allows you to use their stock images for personal or commercial use after making adjustments to the original.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959773/19272" target="_top" id="1959773">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959773" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959773/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. Does copyright law protect memes?
 
 Yes, all memes are under copyright law, which means you have the authority to govern their use. Although identifying the meme owner can be challenging, posting or sharing a meme through your social media accounts without consent violates copyright law. Therefore, only use stock image memes from verified stock content providers like Shutterstock, where the license provisions are clear.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3\. Can you use watermarked stock photos to create memes?
@@ -208,24 +208,22 @@ Therefore, always perform stock image reverse searches to verify the image permi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-2024-approved-headline-hypnotizer-simulator/"><u>[New] 2024 Approved Headline Hypnotizer Simulator</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-iconic-images-uncovered-histories/"><u>[New] 2024 Approved Iconic Images Uncovered Histories</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-phantom-3-rivalry-veil-4-strikes-back/"><u>[New] 2024 Approved Phantom 3 Rivalry Veil 4 Strikes Back</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-creating-comedy-gold-top-8-techniques-that-shape-meme-artistry/"><u>[New] In 2024, Creating Comedy Gold Top 8 Techniques That Shape Meme Artistry</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-instagram-stylistics-swapping-videos-rightside-up/"><u>[New] Instagram Stylistics Swapping Videos Rightside Up</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-a-step-further-in-animation-innovative-techniques-using-movie-maker/"><u>[Updated] 2024 Approved A Step Further in Animation Innovative Techniques Using Movie Maker</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-unveiling-the-true-income-potential-in-podcasting/"><u>[Updated] 2024 Approved Unveiling the True Income Potential in Podcasting</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-capturing-stability-mastering-shaky-images/"><u>[Updated] Capturing Stability Mastering Shaky Images</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-innovative-youtube-channel-titles-the-key-to-successful-blogging-and-filmmaking-no-more-than-156-characters/"><u>[Updated] In 2024, Innovative YouTube Channel Titles The Key to Successful Blogging & Filmmaking (No More than 156 Characters)</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-the-ultimate-checklist-for-compelling-audio-intros/"><u>[Updated] The Ultimate Checklist for Compelling Audio Intros</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-mastering-windows-movie-maker-for-animated-clips-creation/"><u>2024 Approved Mastering Windows Movie Maker for Animated Clips Creation</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/cookiebot-enabled-enhance-your-sites-user-experience-with-personalized-marketing/"><u>Cookiebot-Enabled: Enhance Your Site's User Experience with Personalized Marketing</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/crafting-connectivity-with-metaverse-strategies-for-2024/"><u>Crafting Connectivity with Metaverse Strategies for 2024</u></a></li>
-<li><a href="https://solve-news.techidaily.com/decouvrez-les-techniques-pour-visualiser-des-dvds-sur-apple-devices-incluant-macbook-et-imac/"><u>Découvrez Les Techniques Pour Visualiser Des DVDs Sur Apple Devices Incluant MacBook Et iMac</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-activate-and-use-life360-ghost-mode-on-poco-c51-drfone-by-drfone-virtual-android/"><u>How To Activate and Use Life360 Ghost Mode On Poco C51 | Dr.fone</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-top-budget-friendly-gaming-capture-software-revealed/"><u>In 2024, Top Budget-Friendly Gaming Capture Software Revealed</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-will-the-ipogo-get-you-banned-and-how-to-solve-it-on-zte-blade-a73-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Will the iPogo Get You Banned and How to Solve It On ZTE Blade A73 5G | Dr.fone</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/leveraging-live-streaming-for-maximum-impact-on-youtube-with-limited-subscribers/"><u>Leveraging Live Streaming for Maximum Impact on YouTube with Limited Subscribers</u></a></li>
-<li><a href="https://howto.techidaily.com/motorola-moto-g04-not-receiving-texts-10-hassle-free-solutions-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Motorola Moto G04 Not Receiving Texts? 10 Hassle-Free Solutions Here | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-transform-videos-for-free-leading-enhancement-pages/"><u>[New] Transform Videos for Free Leading Enhancement Pages</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-unleashing-potential-with-the-q500-drone/"><u>[New] Unleashing Potential with the Q500 Drone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-celebrity-inspired-glamour-videos/"><u>[Updated] 2024 Approved Celebrity-Inspired Glamour Videos</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-best-practices-for-secondary-footage-selection-and-use-for-2024/"><u>[Updated] Best Practices for Secondary Footage Selection and Use for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-discovering-the-enhanced-vision-in-samsung-galaxy-s8-for-2024/"><u>[Updated] Discovering the Enhanced Vision in Samsung Galaxy S8 for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-free-10-high-quality-passport-photos-available-here-for-2024/"><u>[Updated] Free 10 High-Quality Passport Photos Available Here for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-boosting-revenue-with-the-perfect-youtube-trailer-strategy/"><u>[Updated] In 2024, Boosting Revenue with the Perfect YouTube Trailer Strategy</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-choosing-between-podcast-and-youtube-for-content-consumption/"><u>[Updated] In 2024, Choosing Between Podcast and YouTube for Content Consumption</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-navigating-your-srt-files-with-mac-expertise/"><u>[Updated] Navigating Your SRT Files with Mac Expertise</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-unbox-t5-and-explore-its-action-filming-capabilities-for-2024/"><u>[Updated] Unbox T5 and Explore Its Action Filming Capabilities for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-unlocking-the-potential-of-sound-in-your-powerpoint-sessions-for-2024/"><u>[Updated] Unlocking the Potential of Sound in Your PowerPoint Sessions for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/digital-pathway-learn-lithuanian-effectively/"><u>Digital Pathway: Learn Lithuanian Effectively</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-step-by-step-guide-to-writing-captivating-docu-scripts/"><u>In 2024, Step-By-Step Guide to Writing Captivating Docu-Scripts</u></a></li>
+<li><a href="https://win-comparisons.techidaily.com/mise-a-jour-complete-configurer-avec-elegance-installation-de-windows-hemes-en-3-simples-etape/"><u>Mise À Jour Complète : Configurer Avec Élégance, Installation De Windows Hemes en 3 Simples Etape !</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/prime-facebook-extra-tools-secure-file-grabber-optimized-for-ff/"><u>Prime Facebook Extra Tools Secure File Grabber, Optimized For FF</u></a></li>
+<li><a href="https://some-tips.techidaily.com/the-writers-guide-to-dialogic-depth-in-screenplays-for-2024/"><u>The Writers' Guide to Dialogic Depth in Screenplays for 2024</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/videoforge-for-mac/"><u>VideoForge for Mac</u></a></li>
 </ul></div>
 

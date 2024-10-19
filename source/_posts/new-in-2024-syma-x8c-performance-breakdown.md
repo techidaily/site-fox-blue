@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Syma X8C Performance Breakdown"
-date: 2024-09-08T16:08:46.646Z
-updated: 2024-09-15T16:25:06.149Z
+date: 2024-10-12T03:32:44.270Z
+updated: 2024-10-19T03:10:20.260Z
 tags: 
   - screen-recording
   - ai video
@@ -60,6 +60,13 @@ thumbnail: https://thmb.techidaily.com/a0ea0929e49147a7aa2982696f1085c4ea3dc3044
 
  There are loads of pros as well as cons related Syma H8C device but they appear different to various kinds of users. Professionals may be worried about its camera quality whereas beginners will find its controls little complex. But in case if you need something at low price with all acceptable features then Syma H8C is really a good choice for your needs.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094418/7443" target="_top" id="2094418">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094418" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094418/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Complete Review
 
 #### 1. Basic Specs Info
@@ -94,13 +101,40 @@ thumbnail: https://thmb.techidaily.com/a0ea0929e49147a7aa2982696f1085c4ea3dc3044
 
 ![syma x8c controller](https://images.wondershare.com/filmora/article-images/syma-x8c-controller.jpg)
 
+<!-- affiliate ads begin -->
+<span id="2135472">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Controller or the transmitter of X8C device is small enough that fits perfectly in user’s hands. Construction is completed with ABS plastic material that leads to light weight structure and this controller makes use of 2.4GHz frequency band to send control signals towards drone in air. The best thing to know about Syma X8C is that it can cover the 100 meter range impressively.
 
 #### 6\.  Camera
 
 ![syma x8c camera](https://images.wondershare.com/filmora/article-images/syma-x8c-camera.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037318/7443" target="_top" id="2037318">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037318" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037318/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  A drone cannot be complete without a camera mounted on its top; hence Syma has taken care of users need and they developed Syma X8C with a camera that can record everything in air. Although, it is not able to collect video information with HD quality but you will be glad to know that it is detachable and one can also make additional adjustments over its angles to adjust focus. All the recorded videos are stored inside a 4GB MicroSD card. Further, the attached gimbal assists in much stable footage.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915805/19272" target="_top" id="1915805">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915805" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915805/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -131,12 +165,16 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130533/26400" target="_top" id="2130533">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130533" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130533/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-the-path-to-pure-audio-pazera-free-tool-review/"><u>[New] In 2024, The Path to Pure Audio Pazera Free Tool Review</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-unlocking-the-power-of-android-time-lapses/"><u>[New] In 2024, Unlocking the Power of Android Time-Lapses</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-curated-collection-saving-snapchat-ringtone-audio/"><u>[Updated] Curated Collection Saving Snapchat Ringtone Audio</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-cloud-storage-for-your-clippings-free-tiers-and-paid-plans-explored/"><u>[Updated] In 2024, Cloud Storage for Your Clippings Free Tiers & Paid Plans Explored</u></a></li>
+<li><a href="https://solve-news.techidaily.com/webmm4vmovavi/"><u>网上免费的WEBM到M4V转换：使用Movavi视频编解码器</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-move-contacts-from-samsung-galaxy-a14-5g-to-iphone-131415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways to Move Contacts From Samsung Galaxy A14 5G to iPhone (13/14/15) | Dr.fone</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-creative-cinema-for-kids-bring-your-imagination-to-life/"><u>In 2024, Creative Cinema for Kids Bring Your Imagination to Life</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-is-gsm-flasher-adb-legit-full-review-to-bypass-your-vivo-s18e-phone-frp-lock-by-drfone-android/"><u>In 2024, Is GSM Flasher ADB Legit? Full Review To Bypass Your Vivo S18e Phone FRP Lock</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/innovative-one-shot-3d-print-technology-unveils-robotic-hand-a-milestone-in-diy-prosthetics-and-amputation-solutions/"><u>Innovative One-Shot 3D Print Technology Unveils Robotic Hand: A Milestone in DIY Prosthetics and Amputation Solutions</u></a></li>
+</ul></div>
 

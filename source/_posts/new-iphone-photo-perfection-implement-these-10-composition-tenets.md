@@ -1,7 +1,7 @@
 ---
 title: "\"[New] IPhone Photo Perfection  Implement These 10 Composition Tenets\""
-date: 2024-10-05T22:39:38.257Z
-updated: 2024-10-13T03:25:08.246Z
+date: 2024-10-17T17:54:11.315Z
+updated: 2024-10-18T17:34:23.055Z
 tags: 
   - screen-recording
   - ai video
@@ -39,19 +39,6 @@ thumbnail: https://thmb.techidaily.com/272ead7cf67b3a822b77b0890cd7f03854b0d3a76
 
 ![rule of third](https://images.wondershare.com/filmora/article-images/rule-of-third.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="864" height="1296" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Leading Lines
 
  Leading lines add depth and scale to an image by leading the eyes into an image. When you want to capture a road running between two rows of trees, a suspended wooden bridge vanishing at a distant point, leading lines make sure that the picture is taken in such a way that the viewer’s eyes would follow your direction (here, the way you guide them along the rows of trees or the bridge vanishing in the horizon). Leading lines create a great impact on the photographs that you click with your iPhone and don’t let the observer wander away from your subject. The leading lines can be diagonal, straight, zigzag, curvy, or radial.
@@ -59,10 +46,16 @@ thumbnail: https://thmb.techidaily.com/272ead7cf67b3a822b77b0890cd7f03854b0d3a76
 ![leading lines](https://images.wondershare.com/filmora/article-images/leading-lines.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135404/19272" target="_top" id="2135404">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135404" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135404/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1899850">
+					<video width="486" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Symmetry
@@ -72,10 +65,10 @@ thumbnail: https://thmb.techidaily.com/272ead7cf67b3a822b77b0890cd7f03854b0d3a76
 ![symmetrical](https://images.wondershare.com/filmora/article-images/Symmetrical.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Framing
@@ -91,16 +84,10 @@ thumbnail: https://thmb.techidaily.com/272ead7cf67b3a822b77b0890cd7f03854b0d3a76
 ![diagonal](https://images.wondershare.com/filmora/article-images/diagonal.jpg)
 
 <!-- affiliate ads begin -->
-<span id="2135471">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2002018/7443" target="_top" id="2002018">
+  <img src="//a.impactradius-go.com/display-ad/7443-2002018" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002018/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Shape
@@ -109,6 +96,13 @@ thumbnail: https://thmb.techidaily.com/272ead7cf67b3a822b77b0890cd7f03854b0d3a76
 
 ![shape](https://images.wondershare.com/filmora/article-images/shape.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Leave Empty Space
 
  You may wonder if I leave too much empty space in my photo contradicts the concept of ‘filling the frame’. But, it brings out the best for your iPhone photography when you have a strong subject in your scene. A clutter free and less distractive environment leads the viewers’ focus towards the main subject. You can think of clicking a giant statue against a clear blue sky, where the sky would act as a perfect background for the statue and render a clean look to the empty space.
@@ -116,16 +110,10 @@ thumbnail: https://thmb.techidaily.com/272ead7cf67b3a822b77b0890cd7f03854b0d3a76
 ![space](https://images.wondershare.com/filmora/article-images/Space.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1982499">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982499.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982499">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982499.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982499%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982499/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://laganoo.pxf.io/c/5597632/1528703/16446" target="_top" id="1528703">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528703" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528703/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The Direction of Subject
@@ -134,24 +122,31 @@ thumbnail: https://thmb.techidaily.com/272ead7cf67b3a822b77b0890cd7f03854b0d3a76
 
 ![direction](https://images.wondershare.com/filmora/article-images/direction.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151858/7443" target="_top" id="2151858">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151858" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151858/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Fill Your Frame
 
  Making your subject stand out against the entire frame in a photograph creates more impact. You can easily obtain this goal with your iPhone by covering the entire frame with your subject. According to this amazing photography composition technique, all you have to do is move your iPhone closer to the subject and nullify the appearance of the surroundings to take a close shot. Like this, you are able to capture the intricate detailing of a leaf with its vivid colors and texture, the detailing and motif on a wall art and much more.
 
 ![fill the screen](https://images.wondershare.com/filmora/article-images/fill-the-screen.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918684/19272" target="_top" id="1918684">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918684" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918684/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Break the Rules
 
  Lastly, we would say that forget and break all the rules. Make use of the above mentioned rules in photography, but don’t let your heart stick to it. Explore, experiment and let your imaginations fly high to capture whatever you want and however you can that fills your soul. Photography is a passion and you must enjoy it.
 
 ![breal the rules](https://images.wondershare.com/filmora/article-images/break.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087234/19272" target="_top" id="2087234">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087234" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087234/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclsion
 
@@ -160,13 +155,6 @@ thumbnail: https://thmb.techidaily.com/272ead7cf67b3a822b77b0890cd7f03854b0d3a76
  Images come from the Internet
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043662/7443" target="_top" id="2043662">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043662" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043662/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -193,15 +181,18 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-unlock-your-channels-potential-with-audios/"><u>[Updated] 2024 Approved Unlock Your Channel's Potential with Audios</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-fast-video-capture-and-guided-narration-tool-for-2024/"><u>[Updated] Fast Video Capture & Guided Narration Tool for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-enhance-your-windows-experience-with-simple-video-trimming-tips/"><u>[Updated] In 2024, Enhance Your Windows Experience with Simple Video Trimming Tips</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-effortless-creativity-premier-pro-free-2023-guide/"><u>2024 Approved Effortless Creativity - Premier Pro FREE 2023 Guide</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-mastering-the-visuals-a-podcast-logo-blueprint/"><u>2024 Approved Mastering the Visuals A Podcast Logo Blueprint</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-mastery-in-script-to-speech-turning-xmlttml-files-to-srt-wonders/"><u>2024 Approved Mastery in Script-to-Speech Turning XML/TTML Files to SRT Wonders</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-premium-webcast-systems-and-applications/"><u>2024 Approved Premium Webcast Systems & Applications</u></a></li>
-<li><a href="https://article-helps.techidaily.com/decoding-the-maximum-number-of-videos-for-64128gb-drives/"><u>Decoding the Maximum Number of Videos for 64/128GB Drives</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/enhanced-audio-experience-in-forza-horizon-4-fixes-for-previous-sound-problems/"><u>Enhanced Audio Experience in Forza Horizon 4 - Fixes for Previous Sound Problems</u></a></li>
-<li><a href="https://extra-support.techidaily.com/leveraging-instagrams-capabilities-for-podcast-promotion-for-2024/"><u>Leveraging Instagram's Capabilities for Podcast Promotion for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-parrot-bebop-2-review/"><u>[New] 2024 Approved Parrot Bebop 2 Review</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-activating-built-in-screen-recorders-mate-1020-and-p-series-devices-p20-p10-for-2024/"><u>[New] Activating Built-In Screen Recorders Mate 10/20 & P-Series Devices (P20, P10) for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-harness-the-power-of-picture-in-picture-on-chrome-platforms/"><u>[New] Harness the Power of Picture In Picture on Chrome Platforms</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-the-path-to-your-first-tweet-signing-up-for-twitter-for-2024/"><u>[New] The Path to Your First Tweet Signing Up for Twitter for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-best-practices-boosting-your-game-videos-with-tags-for-2024/"><u>[Updated] Best Practices Boosting Your Game Videos with Tags for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-giggle-generators-online/"><u>[Updated] Giggle Generators Online</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-capture-clarity-high-quality-screen-recordings-for-youtubers-pcmac/"><u>2024 Approved Capture Clarity High-Quality Screen Recordings for YouTubers (PC/Mac)</u></a></li>
+<li><a href="https://games-able.techidaily.com/balancing-engagement-the-skillful-application-of-block-and-unblock-on-twitch/"><u>Balancing Engagement: The Skillful Application of Block & Unblock on Twitch</u></a></li>
+<li><a href="https://facebook.techidaily.com/hidden-triggers-behind-your-fb-ban/"><u>Hidden Triggers Behind Your Fb Ban</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-harmonious-photographic-overlays-guide/"><u>In 2024, Harmonious Photographic Overlays Guide</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/most-compelling-5-ios-podcast-solutions-for-2024/"><u>Most Compelling 5 iOS Podcast Solutions for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/unleash-photo-dynamics-mastering-adobe-illustrator-blurs/"><u>Unleash Photo Dynamics Mastering Adobe Illustrator Blurs</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/unlock-potential-embrace-note-taking-on-mematic-for-2024/"><u>Unlock Potential Embrace Note-Taking on Mematic for 2024</u></a></li>
 </ul></div>
 

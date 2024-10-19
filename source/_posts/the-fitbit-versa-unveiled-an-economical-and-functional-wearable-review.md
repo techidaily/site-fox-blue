@@ -1,7 +1,7 @@
 ---
 title: "The Fitbit Versa Unveiled: An Economical and Functional Wearable Review"
-date: 2024-09-14T16:02:08.417Z
-updated: 2024-09-15T17:40:50.386Z
+date: 2024-10-16T23:49:53.136Z
+updated: 2024-10-18T20:58:54.380Z
 categories:
   - BestProducts
 description: "This Article Describes The Fitbit Versa Unveiled: An Economical and Functional Wearable Review"
@@ -70,6 +70,13 @@ _We purchased the Amazfit GTS_   _so our reviewer could put it to the test. Keep
 
  I used this device for a little over a week while sleeping, hiking, and running to see how this stylish tracker delivered. Though tracking data was never an issue, the software and companion app fell short of delivering a truly intuitive, user-friendly experience.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Design: Lightweight and a little too familiar
 
  The Amazfit GTS is a super-light device at approximately 24.8 grams but isn’t flimsy. The body is made with aircraft-grade aluminum alloy, and the Corning 3 Gorilla glass covering the display is conveniently smudge-resistant. The back of the display is decidedly more plastic-looking, though the plate is covered in a matte finish with a pleasantly sturdy feel. The square watch face is slightly longer than it is wide, akin to the[Apple Watch](https://www.lifewire.com/apple-watch-se-review-5088223) . In fact, if you don’t look too closely, this device is almost an exact copy of this outsize name in the wearable game.
@@ -82,22 +89,16 @@ _We purchased the Amazfit GTS_   _so our reviewer could put it to the test. Keep
 
 ![Amazfit GTS](https://www.lifewire.com/thmb/hMe1Ur0Wtt9LDIiSfC3zvE_5G7E=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazfit_GTS_Product_02-0b1e98c2de40486b9fea116eb28ccd3c.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Yoona Wagener
 
  I was unable to test this device’s 50-meter water resistance for swimming or other aquatic workouts, but I did wear it in the shower without experiencing any issue. The manufacturer does note, however, that this wearable isn’t safe for hot showers or other water sports such as scuba diving, diving, and high-speed water sports, generally.
-
-<!-- affiliate ads begin -->
-<span id="1983575">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Comfort: Easy to wear but not as user-friendly
 
@@ -149,18 +150,18 @@ Lifewire / Yoona Wagener
 
 ![Amazfit GTS](https://www.lifewire.com/thmb/hqD81eq-Q8n6BPE_n48M4SpkIRA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazfit_GTS_Product_03-97749edaabac498bb95b0f8a9f569f0a.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Yoona Wagener
 
  Certain data points such as PAI, like other areas of the Zepp app, are backed by scientific citations and explanations of importance, but there’s just too much text to make any of it digestible or glanceable.
 
  While I gathered that a PAI of 100 seemed to be ideal for cardiovascular health, the app further complicated things by suggesting, for example, a 120-minute indoor workout to gain 15 PAI. It was difficult to grasp why that would be worth it or realistic, and like many areas of the software, it felt more flashy and underdeveloped than insightful.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934138/19272" target="_top" id="1934138">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934138" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934138/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Battery: Solid but considerably shy of the 14-day claim
 
@@ -169,10 +170,10 @@ Lifewire / Yoona Wagener
  That’s pretty much the way I used this device, though with maybe an extra workout or two and with the display in always-on mode, and the battery drained by day seven. On the bright side, it recharged quickly in less than the manufacturer’s 2-hour estimate. Amazfit also claims that the battery can last up to 46 days in basic mode without Bluetooth or heart-rate monitoring turned on.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Price: Slightly pricey for what it is
@@ -200,10 +201,10 @@ Lifewire / Yoona Wagener
 * [Garmin Vivomove HR](https://www.lifewire.com/garmin-vivomove-hr-review-4843913)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148637/16836" target="_top" id="2148637">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148637" border="0" alt="https://techidaily.com" width="125" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148637/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -235,5 +236,16 @@ Lifewire / Yoona Wagener
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-guidance.techidaily.com/updated-launch-strategies-for-fb-generosity-campaigns/"><u>[Updated] Launch Strategies for FB Generosity Campaigns</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-superior-screen-quality-10-in-4ks/"><u>2024 Approved Superior Screen Quality – #10 in 4Ks</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-unleash-the-power-of-digital-beats-with-our-free-tools/"><u>2024 Approved Unleash the Power of Digital Beats with Our Free Tools</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-unlocking-the-secrets-of-effective-job-interview-techniques/"><u>2024 Approved Unlocking the Secrets of Effective Job Interview Techniques</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-unveil-clear-photos-from-iphone-with-our-free-red-eye-corrector-guide/"><u>2024 Approved Unveil Clear Photos From iPhone with Our FREE Red-Eye Corrector Guide</u></a></li>
+<li><a href="https://win-wonderful.techidaily.com/best-no-cost-techniques-for-personalizing-iphone-se-ringtone-settings-with-three-simple-steps/"><u>Best No-Cost Techniques for Personalizing iPhone SE Ringtone Settings with Three Simple Steps</u></a></li>
+<li><a href="https://common-error.techidaily.com/diy-solution-correcting-the-monitor-not-receiving-signal-problem-a-step-by-step-tutorial/"><u>DIY Solution: Correcting the 'Monitor Not Receiving Signal' Problem - A Step by Step Tutorial</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/get-first-access-8bitdos-retro-18-mechanical-keypad-preorders-launched-exclusive-nes-famicom-and-c64-versions-shipping-in-july/"><u>Get First Access: 8Bitdo's Retro 18 Mechanical Keypad Preorders Launched – Exclusive NES, Famicom & C64 Versions Shipping in July</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/tutorial-to-change-samsung-galaxy-a24-imei-without-root-a-comprehensive-guide-by-drfone-android/"><u>Tutorial to Change Samsung Galaxy A24 IMEI without Root A Comprehensive Guide</u></a></li>
+</ul></div>
 

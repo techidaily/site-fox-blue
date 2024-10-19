@@ -1,7 +1,7 @@
 ---
 title: "[New] Dynamic Titles for Adobe After Effects for 2024"
-date: 2024-10-06T22:50:00.525Z
-updated: 2024-10-12T20:12:43.052Z
+date: 2024-10-11T18:45:04.384Z
+updated: 2024-10-19T02:04:35.793Z
 tags: 
   - screen-recording
   - ai video
@@ -71,10 +71,10 @@ When it comes to text formatting in animation, fill color and stroke color play 
 Similarly, the stroke color can be changed and you can create an animation with changing outline color. At the same time, you can adjust the stroke width to make the text look thick or thin as per your animation requirements.
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 6\. Skew
@@ -103,25 +103,11 @@ Step2 Go to Effects and Presets panel, search for the desired text effect preset
 
 ![preview effects and presets ae](https://images.wondershare.com/filmora/article-images/2022/09/preview-effects-and-presets-ae.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step3 Go to Timeline and click on the text layer to expand it. Click on Animate option and select any property that you want to adjust and create animation based on the parameters. Go to Keyframe section and add keyframes and change parameters for different keyframes for the text to animate.
 
 ![add keyframes in after effects](https://images.wondershare.com/filmora/article-images/2022/09/add-keyframes-in-after-effects.jpg)
 
 Apart from the animate option and its parameters, there are several parameters such as transform that you can adjust to edit the text effect as per your preference.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3\. AE Alternative to Edit Text Effects in Video
 
@@ -135,38 +121,31 @@ Step1 Install Wondershare Filmora on your computer and launch the application. C
 
 ![install wondershare filmora](https://images.wondershare.com/filmora/guide/get-started-with-filmora-01.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step2 Drag and drop the video clip onto timeline. Go to Titles option and you will see different categories of text effects on the left panel. Select any one of text effect templates and drop onto the timeline above the background video.
 
 ![select background for text filmora](https://images.wondershare.com/filmora/article-images/2022/09/select-background-for-text-filmora.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151854/7443" target="_top" id="2151854">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151854" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1657396/16446" target="_top" id="1657396">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657396" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151854/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657396/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step3 Double-click on the text layer on the timeline to edit the text preset. You can select any available text style as well as adjust parameters from font and settings sections.
 
 ![text preset settings filmora](https://images.wondershare.com/filmora/article-images/2022/09/text-preset-settings-filmora.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006941/19272" target="_top" id="2006941">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006941" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006941/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step4 Go to Animation section and click on Advanced button. Change different parameters under Customize section such as Blue, Opacity, Shadow, and much more. You can create keyframes on the timeline like AE and edit parameters as per your preference.
 
 ![add animation text in filmora](https://images.wondershare.com/filmora/article-images/2022/09/add-animation-text-in-filmora.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 4\. Related FAQs of Title Effects in After Effects
 
@@ -212,6 +191,13 @@ When it comes to text formatting in animation, fill color and stroke color play 
 
 Similarly, the stroke color can be changed and you can create an animation with changing outline color. At the same time, you can adjust the stroke width to make the text look thick or thin as per your animation requirements.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 6\. Skew
 
 If you want your text to be distorted and unusual, the skew parameter is there for you in After Effects. Skew means the character will not stay parallel and at right angles. You can adjust the skew value make texts distorted and this is useful in several text animations where distorted texts become normal texts. You can also skew texts in respect to different axis for creative animation.
@@ -219,19 +205,6 @@ If you want your text to be distorted and unusual, the skew parameter is there f
 ### 7\. Tracking
 
 Tracking refers to the spacing between the characters in a word for a text. You must have seen so many different types of text animations where the spacing between the characters is changing. You can create amazing funny and eye-catching text effects in After Effects by combining tracking and keyframe properly. Along with tracking, there is line anchor that determines the alignment of tracking. Similarly, there is line spacing parameter that controls the spacing between the lines.
-
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 8\. Keyframe
 
@@ -247,15 +220,36 @@ Step1 Go to Tool panel, click on Type tool. Click on Composition panel and type 
 
 ![text style parameters after effects](https://images.wondershare.com/filmora/article-images/2022/09/text-style-parameters-after-effects.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2129041/19576" target="_top" id="2129041">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129041" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129041/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step2 Go to Effects and Presets panel, search for the desired text effect preset that you want to apply on your text. Drag and drop the selected preset on the text layer and you will see your text getting transformed instantly.
 
 ![preview effects and presets ae](https://images.wondershare.com/filmora/article-images/2022/09/preview-effects-and-presets-ae.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step3 Go to Timeline and click on the text layer to expand it. Click on Animate option and select any property that you want to adjust and create animation based on the parameters. Go to Keyframe section and add keyframes and change parameters for different keyframes for the text to animate.
 
 ![add keyframes in after effects](https://images.wondershare.com/filmora/article-images/2022/09/add-keyframes-in-after-effects.jpg)
 
 Apart from the animate option and its parameters, there are several parameters such as transform that you can adjust to edit the text effect as per your preference.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087485/7443" target="_top" id="2087485">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087485" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087485/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3\. AE Alternative to Edit Text Effects in Video
 
@@ -273,13 +267,6 @@ Step2 Drag and drop the video clip onto timeline. Go to Titles option and you wi
 
 ![select background for text filmora](https://images.wondershare.com/filmora/article-images/2022/09/select-background-for-text-filmora.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151892/7443" target="_top" id="2151892">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151892" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151892/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step3 Double-click on the text layer on the timeline to edit the text preset. You can select any available text style as well as adjust parameters from font and settings sections.
 
 ![text preset settings filmora](https://images.wondershare.com/filmora/article-images/2022/09/text-preset-settings-filmora.jpg)
@@ -287,6 +274,13 @@ Step3 Double-click on the text layer on the timeline to edit the text preset. Yo
 Step4 Go to Animation section and click on Advanced button. Change different parameters under Customize section such as Blue, Opacity, Shadow, and much more. You can create keyframes on the timeline like AE and edit parameters as per your preference.
 
 ![add animation text in filmora](https://images.wondershare.com/filmora/article-images/2022/09/add-animation-text-in-filmora.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 4\. Related FAQs of Title Effects in After Effects
 
@@ -326,20 +320,24 @@ Motion title is a dynamic text effect template available in After Effects throug
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-a-beginners-pathway-building-a-simple-youtube-signup-for-2024/"><u>[New] A Beginner’s Pathway Building a Simple YouTube Signup for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-account-liberation-freeing-your-fb-identity/"><u>[New] In 2024, Account Liberation Freeing Your FB Identity</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-first-row-fun-beyond-the-game-top-alternatives/"><u>[New] In 2024, First Row Fun Beyond the Game Top Alternatives</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-navigating-the-path-to-popularity-secrets-of-successful-tiktok-unboxers/"><u>[New] In 2024, Navigating the Path to Popularity Secrets of Successful TikTok Unboxers</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-macs-best-choices-for-mkv-file-viewing-for-2024/"><u>[New] Mac's Best Choices for MKV File Viewing for 2024</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-reimagining-mobile-photoshopping-iphone-x-insights/"><u>[New] Reimagining Mobile Photoshopping IPhone X Insights</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-in-2024-discovering-intova-edges-dynamic-capabilities/"><u>[Updated] In 2024, Discovering Intova Edge's Dynamic Capabilities</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-what-phone-is-compatible-with-gear-vr/"><u>[Updated] What Phone Is Compatible With Gear VR?</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/dive-into-vlogging-your-first-set-of-tools-for-2024/"><u>Dive Into Vlogging Your First Set of Tools for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/dreamy-documentaries-bedtime-stories-reviewed-for-2024/"><u>Dreamy Documentaries Bedtime Stories Reviewed for 2024</u></a></li>
-<li><a href="https://fox-that.techidaily.com/imessage-block-confirmation-how-to-tell-if-youre-unblockable/"><u>IMessage Block Confirmation: How to Tell If You're Unblockable</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-ultimate-guide-to-get-the-meltan-box-pokemon-go-for-vivo-v27-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate guide to get the meltan box pokemon go For Vivo V27 Pro | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-lava-blaze-2-5g-drfone-by-drfone-virtual-android/"><u>Pokemon Go Error 12 Failed to Detect Location On Lava Blaze 2 5G? | Dr.fone</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/top-5-complimentary-ripper-applications-to-convert-dvds-on-macos-monterey-64-bit-and-32-bit-latest-picks-for-2n3/"><u>Top 5 Complimentary RIPper Applications to Convert DVDs on macOS Monterey (64-Bit & 32-Bit) - Latest Picks for 2N3!</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/unveiling-the-full-potential-complete-review-of-powerdirector-pro-suite/"><u>Unveiling the Full Potential Complete Review of PowerDirector Pro Suite</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-enhancing-video-creativity-with-effective-filmora-strategies/"><u>[New] Enhancing Video Creativity with Effective Filmora Strategies</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-integrating-your-podcast-into-apple-music-for-2024/"><u>[New] Integrating Your Podcast Into Apple Music for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-leading-techniques-for-youtube-mpeg-migration/"><u>[New] Leading Techniques for YouTube MPEG Migration</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-top-10-picks-best-facebook-video-players-for-2024/"><u>[New] Top 10 Picks Best Facebook Video Players for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-transform-subtitles-quickly-best-8-converters-from-sub-to-streamlined-srtr-for-2024/"><u>[New] Transform Subtitles Quickly! Best 8 Converters From SUB to Streamlined SRTR for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-elevate-visual-experience-with-apple-music-inclusion/"><u>[Updated] 2024 Approved Elevate Visual Experience with Apple Music Inclusion</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-streamline-broadcasts-the-ultimate-guide-for-obspluszoom/"><u>[Updated] 2024 Approved Streamline Broadcasts The Ultimate Guide for OBS+Zoom</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-best-global-music-stream-service-for-2024/"><u>[Updated] Best Global Music Stream Service for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-the-artistry-of-image-editing-understanding-luts-role-for-2024/"><u>[Updated] The Artistry of Image Editing Understanding LUTs' Role for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-unleashing-the-power-of-time-lapse-photography-using-gopro/"><u>2024 Approved Unleashing the Power of Time-Lapse Photography Using GoPro</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/dive-into-action-footage-selecting-top-notch-cams-addons/"><u>Dive Into Action Footage Selecting Top-Notch Cams Addons</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/enhancing-content-and-creativity-with-chatgpt-a-compreh/"><u>Enhancing Content & Creativity with ChatGPT: A Compreh</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/how-to-secure-and-swift-transfer-of-photos-from-iphoneandroid-to-snapchat-for-2024/"><u>How-To Secure and Swift Transfer of Photos From iPhone/Android to Snapchat for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-location-on-facebook-dating-for-your-samsung-galaxy-a05s-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location On Facebook Dating for your Samsung Galaxy A05s | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-changeadd-location-filters-on-snapchat-for-your-oppo-reno-10-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change/Add Location Filters on Snapchat For your Oppo Reno 10 5G | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-imei-unlokers-for-your-tecno-spark-20c-phone-by-drfone-android/"><u>In 2024, Top IMEI Unlokers for Your Tecno Spark 20C Phone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/leading-edge-the-ultimate-15-camera-guide/"><u>Leading Edge The Ultimate 15 Camera Guide</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-in-2024-how-to-convert-mp4-to-mp3-a-comprehensive-guide/"><u>New In 2024, How to Convert MP4 to MP3 A Comprehensive Guide</u></a></li>
+<li><a href="https://driver-download.techidaily.com/update-to-the-newest-epson-wf-2630-drivers-compatible-with-win-78110/"><u>Update to the Newest Epson WF-2630 Drivers Compatible with Win 7/8.1/10</u></a></li>
 </ul></div>
 

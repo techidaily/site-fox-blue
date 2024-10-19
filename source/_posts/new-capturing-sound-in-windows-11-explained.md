@@ -1,7 +1,7 @@
 ---
 title: "[New] Capturing Sound in Windows 11 Explained"
-date: 2024-10-11T05:12:15.902Z
-updated: 2024-10-13T02:06:53.813Z
+date: 2024-10-16T19:55:10.875Z
+updated: 2024-10-19T06:00:28.424Z
 tags: 
   - screen-recording
   - ai video
@@ -59,15 +59,22 @@ Audacity is a completely free audio recording software for Windows 10\. Audacity
 
 ![red record button to start recording](https://images.wondershare.com/filmora/article-images/red-record-button-to-start-recording.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2044585/7443" target="_top" id="2044585">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044585" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044585/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ****Step 4:** To stop recording, click on Black Stop button. Go to File > Export As to save the file in desired file format.
 
 ![black stop button](https://images.wondershare.com/filmora/article-images/black-stop-button.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027195/19272" target="_top" id="2027195">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027195" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484939/16446" target="_top" id="1484939">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484939" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027195/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484939/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 3\. Quick Sound Recorder Free
@@ -83,10 +90,10 @@ Step 2: Open the app and click on Microphone icon to start recording instantly. 
 Step 3: To stop recording, click on Stop button and save the recording in MP3 file.
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 4\. Adobe Audition
@@ -101,16 +108,16 @@ Step 2: Click on R icon to arm all the tracks.
 
 ![click on r icon](https://images.wondershare.com/filmora/article-images/click-on-r-icon.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144280/7443" target="_top" id="2144280">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144280" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144280/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step 3: and then click on Recording button on the Record panel to start recording.
 
 Step 4: To stop recording, click on Stop button on the Record panel.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136624/26400" target="_top" id="2136624">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136624" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136624/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 5\. [Filmora Recorder](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -135,10 +142,10 @@ Step 3: From the pop-up box, select the external microphone. Click on Record but
 Step 4: When you are done, click on Stop button and export the recorded audio in MP3 format.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -178,10 +185,10 @@ Step 3: From the pop-up box, select the external microphone. Click on Record but
 Step 4: When you are done, click on Stop button and export the recorded audio in MP3 format.
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130870/7443" target="_top" id="2130870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130870" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130870/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -201,13 +208,6 @@ Step 2: From Record menu, go to Record Voiceover option.
 Step 3: From the pop-up box, select the external microphone. Click on Record button to start recording.
 
 Step 4: When you are done, click on Stop button and export the recorded audio in MP3 format.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948954/19272" target="_top" id="1948954">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948954" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948954/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -237,16 +237,22 @@ We have how to record audio on Windows 10 using free as well as premium software
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/updated-gathered-group-glances-for-2024/"><u>[Updated] Gathered Group Glances for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-ar-merging-physical-and-fictional-worlds/"><u>2024 Approved AR Merging Physical and Fictional Worlds</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-ascending-audio-the-ultimate-budget-friendly-asmr-kit-selection/"><u>2024 Approved Ascending Audio - The Ultimate Budget-Friendly ASMR Kit Selection</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-dive-into-this-collection-of-14-text-animation-marvels/"><u>2024 Approved Dive Into This Collection of 14 Text Animation Marvels</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-exclusive-list-of-e-commerce-sites-for-one-of-a-kind-boxed-gifts/"><u>2024 Approved Exclusive List of E-Commerce Sites for One-of-a-Kind Boxed Gifts</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-innovate-with-imagery-installing-the-windows-11-movie-maker-app/"><u>2024 Approved Innovate with Imagery Installing the Windows 11 Movie Maker App</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/beyond-inshot-top-pc-editing-solutions/"><u>Beyond Inshot Top PC Editing Solutions</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/break-free-from-gmail-unveiling-8-exceptional-email-alternatives-for-202n4/"><u>Break Free From Gmail: Unveiling 8 Exceptional Email Alternatives for 202N4</u></a></li>
-<li><a href="https://win-dash.techidaily.com/easy-access-to-updated-ricoh-mp-c3003-drivers-install-now/"><u>Easy Access to Updated Ricoh MP C3003 Drivers - Install Now</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/top-apps-and-online-tools-to-track-vivo-y27-5g-phone-withwithout-imei-number-by-drfone-android/"><u>Top Apps and Online Tools To Track Vivo Y27 5G Phone With/Without IMEI Number</u></a></li>
-<li><a href="https://blog-min.techidaily.com/understanding-currently-unavailable-errors-on-hulu-and-solutions-to-rectify-them/"><u>Understanding 'Currently Unavailable' Errors on Hulu and Solutions to Rectify Them</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-the-ultimate-battle-ultrawide-vs-uhd-4k-display-options/"><u>[New] 2024 Approved The Ultimate Battle UltraWide vs UHD 4K Display Options</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-effortless-image-edit-eliminating-backdrops-in-canvas/"><u>[New] Effortless Image Edit Eliminating Backdrops in Canvas</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-expert-audio-techniques-in-audacity-for-professionals/"><u>[New] In 2024, Expert Audio Techniques in Audacity for Professionals</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-mastering-kinemaster-a-comprehensive-guide-and-top-online-platforms/"><u>[Updated] 2024 Approved Mastering KineMaster A Comprehensive Guide & Top Online Platforms</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-windows-movie-maker-6-a-download-primer/"><u>[Updated] 2024 Approved Windows Movie Maker 6 A Download Primer</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-optimizing-data-preservation-top-5-cloud-storage-providers-for-2024/"><u>[Updated] Optimizing Data Preservation Top 5 Cloud Storage Providers for 2024</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-transforming-youtube-content-advanced-strategies-to-perfect-videos-after-publishing/"><u>2024 Approved Transforming YouTube Content Advanced Strategies to Perfect Videos After Publishing</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/budgeted-skyvault-storing-mountains-of-data/"><u>Budgeted SkyVault Storing Mountains of Data</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/how-to-make-your-windows-10-faster-work-100/"><u>How to Make Your Windows 10 Faster [Work 100%]</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/hp-officejet-pro-9015-fresh-installer-version-available-now/"><u>HP OfficeJet Pro 9015 - Fresh Installer Version Available Now!</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-premium-patches-selecting-shots-for-social-media/"><u>In 2024, Premium Patches Selecting Shots for Social Media</u></a></li>
+<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-videos-from-honor-by-fonelab-android-recover-video/"><u>Possible solutions to restore deleted videos from Honor</u></a></li>
+<li><a href="https://win-answers.techidaily.com/step-by-step-instructions-overcoming-launch-problems-with-helldivers-2-on-steam/"><u>Step-by-Step Instructions: Overcoming Launch Problems with Helldivers 2 on Steam</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/streaming-showdown-summary-fb-live-yt-live-and-twitter-spaces-for-2024/"><u>Streaming Showdown Summary FB LIVE, YT Live & Twitter Spaces for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/the-future-in-your-hands-lgs-vr-gaming-masterpiece/"><u>The Future in Your Hands LG's VR Gaming Masterpiece</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-nokia-105-classic-drfone-by-drfone-virtual-android/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Nokia 105 Classic | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/thrifty-cloud-haven-budget-storage-bulk-files-handling-for-2024/"><u>Thrifty Cloud Haven Budget Storage, Bulk Files Handling for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Mastering Digital Conversion  Old Photos to Video\""
-date: 2024-09-11T17:28:57.534Z
-updated: 2024-09-15T17:15:05.110Z
+date: 2024-10-14T16:07:15.506Z
+updated: 2024-10-19T06:55:28.479Z
 tags: 
   - screen-recording
   - ai video
@@ -97,11 +97,31 @@ Once you have imported your photos, you can include them in the timeline. To do 
 
 ![create timeline for photos ](https://images.wondershare.com/filmora/article-images/create-timeline-for-photos.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983575">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### 3\. Edit the video
 
 Just above the timeline, you can find all kinds of tools to edit your video. For instance, you can crop your photos, split the video, delete pictures, correct their coloring, and so on. To explore more options, you can click on the edit icon here.
 
 ![Edit Digitized Photos ](https://images.wondershare.com/filmora/article-images/edit-digitized-photos.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151868/7443" target="_top" id="2151868">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151868" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151868/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 The edit option will present tons of additional features that you can implement on the video. Here, you can go to the “Motion” feature to get different transitions for your photos. This will let you select how any photo would appear in the video collage.
 
@@ -119,6 +139,13 @@ Besides that, you can also add a track to the video by visiting the “Audio” 
 
 ![Add Audio to Digitized Photos ](https://images.wondershare.com/filmora/article-images/add-audio-old-photo-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1883998/19272" target="_top" id="1883998">
+  <img src="//a.impactradius-go.com/display-ad/19272-1883998" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1883998/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### 5\. Export your video
 
 That’s it! After making all the changes, you can preview your video on the right side. If you are satisfied with the results, then click on the “Export” button from the top. This will open a dedicated window, letting you select a preferred format to export your file. You can also select a resolution for your video to adjust its size as well.
@@ -126,6 +153,13 @@ That’s it! After making all the changes, you can preview your video on the rig
 ![Export Book Trailer File](https://images.wondershare.com/filmora/article-images/book-trailer-export-file.jpg)
 
 Find more fancy ways to make the best photo and video slideshow with Filmora!
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## More Editing Tips for Creating Memorable Videos
 
@@ -182,12 +216,21 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123738/7443" target="_top" id="2123738">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123738" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123738/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-how-to-craft-viral-unboxing-content-on-social-media-for-2024/"><u>[New] How to Craft Viral Unboxing Content on Social Media for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-illuminate-your-graphics-instinct-for-adobe-motion-blur-for-2024/"><u>[New] Illuminate Your Graphics Instinct for Adobe Motion Blur for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-put-a-halt-on-surprise-youtube-videos/"><u>[New] In 2024, Put a Halt on Surprise YouTube Videos</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-audio-amplification-adding-tracks-to-premiere-projects-with-ease/"><u>[Updated] 2024 Approved Audio Amplification Adding Tracks to Premiere Projects with Ease</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-budget-friendly-gopro-purchases-guide/"><u>[Updated] 2024 Approved Budget-Friendly GoPro Purchases Guide</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-seamless-video-conferencing-zoom-and-xbox-playground/"><u>[Updated] 2024 Approved Seamless Video Conferencing Zoom & Xbox Playground</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-the-art-of-video-grading-a-practical-handbook/"><u>[Updated] In 2024, The Art of Video Grading A Practical Handbook</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-voice-over-fundamentals-from-syncing-dialogue-to-final-cut-for-2024/"><u>[Updated] Voice Over Fundamentals From Syncing Dialogue to Final Cut for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/beginners-vlogging-toolkit-gear-and-software-for-2024/"><u>Beginner's Vlogging Toolkit Gear and Software for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/free-recording-tool-for-every-android-enthusiast-for-2024/"><u>Free Recording Tool for Every Android Enthusiast for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/1715701209403-leveraging-huaweis-inbuilt-screen-capture-tech-on-its-phones/"><u>Leveraging Huawei's Inbuilt Screen Capture Tech on Its Phones.</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/mount-and-blade-ii-bannerlord-fixed-no-more-freezing-issues/"><u>Mount & Blade II: Bannerlord Fixed – No More Freezing Issues!</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/new-in-2024-top-9-free-tv-streaming-services-or-sites-to-use/"><u>New In 2024, Top 9 Free TV Streaming Services or Sites To Use</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/voicemod-troubles-heres-how-you-can-get-your-recording-software-up-and-running-smoothly/"><u>Voicemod Troubles? Here's How You Can Get Your Recording Software Up and Running Smoothly</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Syma X5C Exposed  Perfect Pick for Novice Aerial Enthusiasts\""
-date: 2024-09-11T16:06:42.369Z
-updated: 2024-09-15T16:20:43.330Z
+date: 2024-10-14T04:26:06.579Z
+updated: 2024-10-19T01:39:11.044Z
 tags: 
   - screen-recording
   - ai video
@@ -65,6 +65,13 @@ thumbnail: https://thmb.techidaily.com/b88c99aa3c51aa4517857e5b79893f53f6ca04daa
 
  There are so many incredible features inside Syma X5C that make it suitable device for [aerial photography](https://tools.techidaily.com/wondershare/filmora/download/). The intuitive controls are much easier to explore even for beginners. The remote control is user friendly and all other latest features make it a must buy product for drone lovers.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/798165/11305" target="_top" id="798165">
+  <img src="//a.impactradius-go.com/display-ad/11305-798165" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798165/11305" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Complete Review for Syma X5C
 
 #### 1\.  Basic Specs Info
@@ -96,11 +103,25 @@ thumbnail: https://thmb.techidaily.com/b88c99aa3c51aa4517857e5b79893f53f6ca04daa
 
 ![syma x5c controller](https://images.wondershare.com/filmora/article-images/syma-x5c-controller.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886069/19272" target="_top" id="1886069">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886069" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886069/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  The remote unit or transmitter works with a 2.4GHz frequency setting with 4 channel type control. It helps pilots to enjoy wider flying range with spread spectrum technology. The maximum flying range falls between 30 to 50 meters and no lags have been reported yet in control selection and quadcopter reactions. Using flip switch, you can directly adjust the movements in air.
 
 #### 6\.  Camera
 
 ![syma x5c camera](https://images.wondershare.com/filmora/article-images/syma-x5c-camera.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Syma H5C camera is rated as moderately stable and it is capable enough to take impressive pictures from air. This device is equipped with a 2GB MicroSD card that offers personal storage space to all recorded videos and images. The sad part is here that controller unit of this device is able to send signals to drone only; it cannot control the camera actions. Thus your camera stays focused in only one direction all the time and have fixed focus during shoots. You cannot apply zoom, direction sensing inputs or focus adjustment controls when your device is in air. If you are searching for a highly controlled footage generator then it is good to go for other Phantom series and other competing models as per your budget. But Syma H5C is really a good choice to start with.
 
@@ -109,6 +130,13 @@ thumbnail: https://thmb.techidaily.com/b88c99aa3c51aa4517857e5b79893f53f6ca04daa
  Syma's X5C can be included in the list of must buy product for beginners due to its all incredible features. If you are a beginner and are just going to learn about flight basics then this advanced camera unit can serve you best with all impressive controls. Its sleek design along with feature rich platform offers lots of things to explore in air. You will definitely love to enjoy its regular and expert mode settings with unique flight experiences.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959764/19272" target="_top" id="1959764">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959764" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959764/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Max Wales
 
@@ -133,18 +161,22 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<span id="1983473">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/new-explore-and-compare-apps-via-az-recorder-for-2024/"><u>[New] Explore & Compare Apps via AZ Recorder for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-canvas-hidden-gems-for-crafting-visual-magic/"><u>[New] In 2024, Canva's Hidden Gems for Crafting Visual Magic</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-prevent-unwanted-recordings-quit-time-tricks/"><u>[New] Prevent Unwanted Recordings Quit Time Tricks</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-the-filmmakers-guide-to-masterful-panoramic-videos-9-must-know-tips/"><u>2024 Approved The Filmmaker's Guide to Masterful Panoramic Videos (9 Must-Know Tips)</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-the-ultimate-checklist-for-your-xbox-one-zooming-journey/"><u>2024 Approved The Ultimate Checklist for Your Xbox One Zooming Journey</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-the-ultimate-guide-to-green-screen-expertise-with-kinemaster/"><u>2024 Approved The Ultimate Guide to Green Screen Expertise with Kinemaster</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-the-ultimate-screen-time-treasure-summers-top-10-gems/"><u>2024 Approved The Ultimate Screen Time Treasure Summer’s Top 10 Gems</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-unbeatable-youtube-video-titling-assistant/"><u>2024 Approved Unbeatable YouTube Video Titling Assistant</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-understanding-invisible-social-signals-in-online-media/"><u>2024 Approved Understanding Invisible Social Signals in Online Media</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-unleash-creativity-the-ultimate-selection-of-online-jpg-to-gif-tools/"><u>2024 Approved Unleash Creativity The Ultimate Selection of Online JPG to GIF Tools</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/5-quick-methods-to-bypass-xiaomi-13t-frp-by-drfone-android/"><u>5 Quick Methods to Bypass Xiaomi 13T FRP</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/fixing-black-screen-for-playing-apple-movies/"><u>Fixing Black Screen for Playing Apple Movies</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-iphone-11-pro-max-without-swiping-up-6-ways-drfone-by-drfone-ios/"><u>In 2024, How To Unlock iPhone 11 Pro Max Without Swiping Up? 6 Ways | Dr.fone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/navigating-the-digital-world-through-toms-hardware-lens/"><u>Navigating the Digital World Through Tom's Hardware Lens</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unlocking-value-for-money-the-fellowes-microban-wired-keyboard-reviewed/"><u>Unlocking Value for Money: The Fellowes Microban Wired Keyboard Reviewed</u></a></li>
+</ul></div>
 
