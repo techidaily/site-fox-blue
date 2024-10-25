@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, No More Queasiness in VR Worlds"
-date: 2024-09-09T16:38:26.515Z
-updated: 2024-09-15T17:21:09.349Z
+date: 2024-10-18T17:19:41.626Z
+updated: 2024-10-24T22:28:03.878Z
 tags: 
   - screen-recording
   - ai video
@@ -50,6 +50,13 @@ thumbnail: https://thmb.techidaily.com/718d1853d85918e9d3b7531d3e7e5d446b8b2d7ec
 
 **10\. Try not to move your head a lot.** Since motion sickness directly corresponds to movement, reducing your head movement left and right and up and down in one place can help you lower the chances of sickness.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896532/19272" target="_top" id="1896532">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896532/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## What Oculus have done to reduce motion sickness
 
  With the new, innovative VR devices and the head gear technology has taken a huge leap. Oculus Rift has become widely popular among its enthusiastic users. When Oculus released its first Development kit (DevKit 1) the users experienced the symptoms such as nausea, dizziness, sweating and vomiting. Even Oculus CEO Brendan Iribe experienced “motion sickness” with his own product, while using last year’s “DevKit 1” prototype. These sickness issues were so common while using DevKit 1 that its users called it the “Rift Sickness”.
@@ -57,6 +64,13 @@ thumbnail: https://thmb.techidaily.com/718d1853d85918e9d3b7531d3e7e5d446b8b2d7ec
  Since Oculus Rift DK1 came to the market, people were really unhappy with the sickness it gave to them. Oculus saw that issue as a big threat, and started to develop DK2 with a much better display. In the original DK1, Oculus Rift used the liquid crystal display (LCD) to display visual in its devices. LCD screen had been of very much advantage because of its brightness, geometric distortion, and less electricity consumption. But it still had been promoting to the sickness issue because of its sluggish motion time response. In replacement of LCD screens, Oculus Rift has introduced OLED (organic light emitting diode) screens which have proved to be a much better idea. Experiments of Oculus Rift with OLED screens have been successful so far in reducing motion sickness to its minimal. OLED has a much faster rate and thus much enhanced positional tracking.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Benjamin Arango
 
@@ -81,12 +95,20 @@ Follow @Benjamin Arango
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135409/19272" target="_top" id="2135409">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135409" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135409/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-capture.techidaily.com/new-2024-approved-enhanced-collaboration-through-top-tier-backgrounds/"><u>[New] 2024 Approved Enhanced Collaboration Through Top-Tier Backgrounds</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-iphoneandroid-photo-perfection-top-10-tools-for-2024/"><u>[New] IPhone/Android Photo Perfection Top 10 Tools for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-stream-and-save-a-guide-to-xbox-broadcasting-for-2024/"><u>[New] Stream and Save A Guide to Xbox Broadcasting for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-unlocking-seamless-linktree-addition-in-your-tiktok-profile-for-2024/"><u>[New] Unlocking Seamless Linktree Addition in Your TikTok Profile for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-exploring-panoramic-versus-full-immersion-visual-media-tech/"><u>[Updated] 2024 Approved Exploring Panoramic Versus Full-Immersion Visual Media Tech</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-invisible-footprints-tech-review/"><u>[Updated] 2024 Approved Invisible Footprints Tech Review</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-5-ways-to-transfer-files-to-your-computer/"><u>[Updated] 5 Ways To Transfer Files To Your Computer</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-a-look-at-the-future-of-windows-10s-evolution-for-2024/"><u>[Updated] A Look at the Future of Windows 10'S Evolution for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-srt-innovations-the-future-explained-today-for-2024/"><u>[Updated] SRT Innovations The Future Explained Today for 2024</u></a></li>
+<li><a href="https://win-exceptional.techidaily.com/1-free-offer-exclusive-no-cost-items-and-services-now-available/"><u>1. Free Offer: Exclusive, No-Cost Items and Services - Now Available!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-reinvented-world-of-ratchet-and-clank-video-game-edition/"><u>Exploring the Reinvented World of Ratchet & Clank – Video Game Edition</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-the-essential-guide-free-and-trusted-vlc-downloads-for-mac-os-x/"><u>In 2024, The Essential Guide Free & Trusted VLC Downloads for Mac OS X</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/ultimate-guide-to-choosing-the-best-external-hard-drive/"><u>Ultimate Guide to Choosing the Best External Hard Drive</u></a></li>
+</ul></div>
 

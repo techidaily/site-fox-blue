@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Ricoh Theta S Uncovered  A Complete Audit\""
-date: 2024-10-13T04:34:14.535Z
-updated: 2024-10-18T19:08:56.577Z
+date: 2024-10-21T00:18:51.593Z
+updated: 2024-10-24T17:33:42.991Z
 tags: 
   - screen-recording
   - ai video
@@ -76,10 +76,10 @@ The picture quality is simply outstanding and is rated to be much better than al
 As this device provides easy connectivity to other iOS, Android devices as well as to PCs so it becomes much easier to transfer captured images and videos for further editing. Theta App allows users to create wonders out of spherical imaging where panning and zooming features are commonly used. The desktop version of Theta app limits users to just view and share their data without any editing feature whereas the third app known as Theta+ Video is capable enough to work for editing on iOS devices.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134234/18498" target="_top" id="2134234">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134234" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134234/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2 Pros and Cons at a glance
@@ -96,10 +96,10 @@ As this device provides easy connectivity to other iOS, Android devices as well 
 | Remote control (via App)                                                               |                                                                       |
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://dhgate.sjv.io/c/5597632/2106658/12108" target="_top" id="2106658">
+  <img src="//a.impactradius-go.com/display-ad/12108-2106658" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106658/12108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3 Basic specs of Ricoh Theta S
@@ -119,10 +119,10 @@ As this device provides easy connectivity to other iOS, Android devices as well 
 | **Image format**         | JPEG (EXIF 2.3)- The most commonly used format.           | **Video File Format** | Live streaming via HDMI supported (L:1920x1080/30fps M: 1280x720/30fps S: 720x480/30fps); Live streaming (USB): MP4 (video: MPEG-4 AVC); Motion JPEG (1280x720/15fps) |
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100526/7443" target="_top" id="2100526">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100526" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094476/7443" target="_top" id="2094476">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094476" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094476/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 4 Should I buy Ricoh Theta S
@@ -134,10 +134,10 @@ Theta S is one of the most useful products for photography lovers whether they a
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151893/7443" target="_top" id="2151893">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151893" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151893/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -165,24 +165,17 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-premier-no-8-digital-composers-kit/"><u>[New] 2024 Approved Premier No. 8 Digital Composer's Kit</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-step-by-step-guide-to-designing-impactful-imagery/"><u>[New] 2024 Approved Step-by-Step Guide to Designing Impactful Imagery</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-combining-camera-action-in-iphone-recording/"><u>[New] In 2024, Combining Camera Action in iPhone Recording</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-best-free-voice-changer-for-valorant-you-should-have-a-try/"><u>[Updated] 2024 Approved Best Free Voice Changer for Valorant You Should Have a Try</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-harness-the-power-of-wins11-new-gaming-titles-for-2024/"><u>[Updated] Harness the Power of Wins11 New Gaming Titles for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-first-steps-to-faster-film-playback-in-snapchat/"><u>[Updated] In 2024, First Steps to Faster Film Playback in Snapchat</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/trpmpg-movavi/"><u>線上將TRP格式自由轉換為MPG電影 - 運用 Movavi 解決方案</u></a></li>
-<li><a href="https://win-blog.techidaily.com/1723005129623-aromatic-hydrocarbons-primarily-undergo-electrophil-cuplation-reactions-to-maintain-their-stability/"><u>Aromatic Hydrocarbons Primarily Undergo Electrophil Cuplation Reactions to Maintain Their Stability</u></a></li>
-<li><a href="https://extra-information.techidaily.com/boost-your-buzz-telegram-tactics-for-impactful-promotion/"><u>Boost Your Buzz Telegram Tactics for Impactful Promotion</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/cambia-de-formato-audio-digital-convertir-dts-en-aac-sin-coste-con-movavi/"><u>Cambia De Formato Audio Digital - Convertir DTS en AAC Sin Coste Con Movavi</u></a></li>
-<li><a href="https://tools.techidaily.com/dwgfastview/products/"><u>Dwgfastview's Products</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/freesync-freedom-meets-4k-excellence-in-samsung-ue590-for-2024/"><u>FreeSync Freedom Meets 4K Excellence in Samsung UE590 for 2024</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-with-location-spoofer-on-infinix-note-30-drfone-by-drfone-virtual-android/"><u>How To Simulate GPS Movement With Location Spoofer On Infinix Note 30? | Dr.fone</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-behind-the-scenes-how-to-create-youtube-trailers-in-filmora/"><u>In 2024, Behind the Scenes How-To Create YouTube Trailers in Filmora</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-elevating-content-strategy-with-effective-youtube-partnerships/"><u>In 2024, Elevating Content Strategy with Effective YouTube Partnerships</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/in-2024-seamlessly-post-vimeo-to-instagram/"><u>In 2024, Seamlessly Post Vimeo to Instagram</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/methods-for-subtle-volume-reduction-in-fl-studio/"><u>Methods for Subtle Volume Reduction in FL Studio</u></a></li>
-<li><a href="https://review-topics.techidaily.com/remove-frp-lock-on-honor-by-drfone-android-unlock-remove-google-frp/"><u>Remove FRP Lock on Honor</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/travel-video-setup-must-have-items-checklist-for-2024/"><u>Travel Video Setup Must-Have Items Checklist for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-mastering-the-art-of-comfortable-virtual-experiences/"><u>[New] Mastering the Art of Comfortable Virtual Experiences</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-in-search-of-perfection-the-top-10-live-streamers/"><u>[Updated] 2024 Approved In Search of Perfection The Top 10 Live Streamers</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-become-the-star-of-your-match-unique-tinder-profile-ideas-to-try/"><u>[Updated] Become the Star of Your Match - Unique Tinder Profile Ideas to Try</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-in-2024-top-5-book-trailers-that-will-captivate-you/"><u>[Updated] In 2024, Top 5 Book Trailers That Will Captivate You</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-streamlining-content-creation-using-siri-in-tiktok/"><u>[Updated] Streamlining Content Creation Using Siri in TikTok</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-virtual-frontiers-notable-vr-creators/"><u>[Updated] Virtual Frontiers Notable VR Creators</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-shotchrome-intrinsic-recorder-for-os-x/"><u>2024 Approved ShotChrome Intrinsic Recorder for OS X</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/deciphering-manual-signals-a-technical-overview/"><u>Deciphering Manual Signals A Technical Overview</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/designing-epilogues-made-simple-no-charges-included-for-2024/"><u>Designing Epilogues Made Simple - No Charges Included for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-card-on-vivo-v27-online-without-jailbreak-by-drfone-android/"><u>How to Unlock SIM Card on Vivo V27 online without jailbreak</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-instant-video-link-up-using-whatsapp-desktop-for-pc-calls/"><u>In 2024, Instant Video Link-Up Using WhatsApp Desktop for PC Calls</u></a></li>
+<li><a href="https://win-bytes.techidaily.com/se-debarrasser-automatiquement-des-sauvegardes-obsoletes-apres-x-jours-guide-complet/"><u>Se Débarrasser Automatiquement Des Sauvegardes Obsolètes Après X Jours – Guide Complet</u></a></li>
 </ul></div>
 

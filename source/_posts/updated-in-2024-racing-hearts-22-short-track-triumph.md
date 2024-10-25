@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Racing Hearts  '22 Short-Track Triumph\""
-date: 2024-10-17T07:24:06.632Z
-updated: 2024-10-18T18:57:23.054Z
+date: 2024-10-19T16:32:45.772Z
+updated: 2024-10-25T00:07:09.743Z
 tags: 
   - screen-recording
   - ai video
@@ -42,52 +42,45 @@ Canada’s Steven Dubois wins the silver medal.
 ![steven dubois wins the silver medal](https://images.wondershare.com/filmora/article-images/steven-dubois-wins-the-silver-medal.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1166360/14483" target="_top" id="1166360">
-  <img src="//a.impactradius-go.com/display-ad/14483-1166360" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1868499/19272" target="_top" id="1868499">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868499" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1166360/14483" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868499/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Russia’s Semen Elistratov wins the bronze medal.
 
 ![elistratovb wins the bronze medal](https://images.wondershare.com/filmora/article-images/elistratov-wins-the-bronze-medal.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Hwang Dae-heon beats Steven Dubois by the tightest margin of 0.035 seconds.
 
 ![hwang beats steven dubois](https://images.wondershare.com/filmora/article-images/hwang-beats-steven-dubois.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130870/7443" target="_top" id="2130870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Ren Ziwei shoved Hungarian Shaolin Sandor Liu during the event. The Hungarian naturally could not cope up with time.
 
 ![ren ziwei shoved hungarian](https://images.wondershare.com/filmora/article-images/ren-ziwei-shoved-hungarian.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087253/19272" target="_top" id="2087253">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087253" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087253/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Ren Ziwei was disqualified for arm blocking Liu. Ren Ziwei has won in 1000 meter short track speed skating previously.
 
 ![ren ziwei was disqualified](https://images.wondershare.com/filmora/article-images/ren-ziwei-was-disqualified.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 The last leg of competition among skaters before reaching the finishing line at men’s short track speed skating 1500m event.
 
 ![the last leg of competition](https://images.wondershare.com/filmora/article-images/the-last-leg-of-competition.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037335/7443" target="_top" id="2037335">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037335" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037335/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Gold medalist Hwang Dae-heon of South Korea poses for the cameras during the awarding ceremony in short track speed skating Olympics 2022.
 
@@ -107,6 +100,13 @@ To create such a highlight video on any sports event, there are certain videos e
 
 **Pan and Zoom** – Pan and Zoom is the most commonly used video effect that is applied to still footage. While the footage zooms out, texts and titles are shown or a voiceover is played so that the graphic on the screen does not stay static.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151890/7443" target="_top" id="2151890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151890/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### A Professional [Video Editor](https://tools.techidaily.com/wondershare/filmora/download/)
 
 To create a video based on any sport event such as short track speed skating highlights, you need a professional video editor where you can get all the video effects and elements in one place. We recommend Wondershare Filmora where you get a wide range of video effects and editing tools to make your video stand out easily.
@@ -125,13 +125,6 @@ Step 1: Download and install Filmora on your computer. Launch the application an
 
 ![filmora screen recorder](https://images.wondershare.com/filmora/article-images/filmora-record-screen.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135404/19272" target="_top" id="2135404">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135404" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135404/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step 2: Go to File > Project Settings and set the aspect ratio and resolution as well as frame rate as required.
 
 Step 3: Go to Import > Import Media Files and bring in all the still footages and short clips you have collected. You can also use the option Import with Instant Cutter Tool to trim the footages and clips for uniformity.
@@ -141,6 +134,13 @@ Step 4: Add all the still footages and clips on the Video Timeline while add aud
 Step 5: Select individual slides and apply Transition, Effects or add Titles and Elements from the top bar.
 
 Step 6: When all the editing work is done, click on Export to save the video on your hard drive and publish online.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -165,19 +165,22 @@ South Korean skater Hwang Dae-heon has won the gold medal in men’s short track
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-chiefs-best-sky-vault-for-firms-for-2024/"><u>[New] Chiefs’ Best Sky Vault for Firms for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-finest-free-and-paid-windows-drawing-software-ranked/"><u>[New] In 2024, Finest Free & Paid Windows Drawing Software Ranked</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-the-ultimate-bikers-camera-companion-top-hats-reviewed-and-ranked-2023/"><u>[New] The Ultimate Biker's Camera Companion – Top Hats Reviewed & Ranked 2023</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-ensure-clarity-leading-downloader-software-for-youtubers/"><u>[Updated] 2024 Approved Ensure Clarity Leading Downloader Software for YouTubers</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-m1-pro-vs-m1-max-examining-the-advancements-in-apples-cpu-technology/"><u>[Updated] 2024 Approved M1 Pro Vs. M1 Max Examining the Advancements in Apple's CPU Technology</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-visual-vibrancy-theory-turned-practice/"><u>[Updated] 2024 Approved Visual Vibrancy Theory-Turned-Practice</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-rhythm-reconstructor-bundle/"><u>2024 Approved Rhythm Reconstructor Bundle</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/free-avi-video-concatenators-top-10-tools-for-smooth-joining-for-2024/"><u>Free AVI Video Concatenators Top 10 Tools for Smooth Joining for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-intellects-ultimate-guide-to-premium-gk-quiz-sites/"><u>In 2024, Intellect's Ultimate Guide to Premium GK Quiz Sites</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-refining-zoom-visuals-proactive-measures/"><u>In 2024, Refining Zoom Visuals Proactive Measures</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-top-cinema-teasers-compilation/"><u>In 2024, Top Cinema Teasers Compilation</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/online-transformation-of-tiff-documents-no-cost-solution-using-movavi-software/"><u>Online Transformation of TIFF Documents: No Cost Solution Using Movavi Software</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/step-by-step-enhancing-clarity-in-google-meet-calls-for-2024/"><u>Step-by-Step Enhancing Clarity in Google Meet Calls for 2024</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/top-10-best-4k-dslr-shoulder-rigs/"><u>Top 10 Best 4K DSLR Shoulder Rigs</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-top-10-clear-sound-microphones-for-cams/"><u>[New] 2024 Approved Top 10 Clear Sound Microphones for Cams</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/harting-the-course-a-comprehensive-guide-to-youtube-teaser-vids-for-2024/"><u>[New] Charting the Course A Comprehensive Guide to YouTube Teaser Vids for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-enthusiastic-exchanges-chatting-with-your-subscribers/"><u>[New] Enthusiastic Exchanges Chatting With Your Subscribers</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-pro-photographers-picks-top-6-high-resolution-4k-dslrs-for-2024/"><u>[New] Pro Photographers' Picks Top 6 High-Resolution 4K DSLRs for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-aerial-artistry-in-motion-examining-gopro-karma-performance/"><u>[Updated] Aerial Artistry in Motion Examining GoPro Karma Performance</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-free-business-visual-aids-to-enhance-your-meetings-for-2024/"><u>[Updated] Free Business Visual Aids to Enhance Your Meetings for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-freeloaders-guide-discovering-beautiful-tiktok-screenshots/"><u>[Updated] Freeloaders' Guide Discovering Beautiful TikTok Screenshots</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-precision-photography-leading-tripods-for-smartphones/"><u>[Updated] In 2024, Precision Photography Leading Tripods for Smartphones</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-navigate-with-precision-the-complete-guide-to-idevice-podcast-downloads/"><u>[Updated] Navigate with Precision The Complete Guide to iDevice Podcast Downloads</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-mastering-facebook-page-visibility-key-techniques/"><u>2024 Approved Mastering Facebook Page Visibility Key Techniques</u></a></li>
+<li><a href="https://howto.techidaily.com/4-solutions-to-fix-unfortunately-your-app-has-stopped-error-on-nubia-red-magic-9-proplus-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Solutions to Fix Unfortunately Your App Has Stopped Error on Nubia Red Magic 9 Pro+ | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-4-most-known-ways-to-find-someone-on-tinder-for-apple-iphone-13-pro-max-by-name-drfone-by-drfone-virtual-ios/"><u>In 2024, 4 Most-Known Ways to Find Someone on Tinder For Apple iPhone 13 Pro Max by Name | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-xiaomi-civi-3-disney-100th-anniversary-edition-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Xiaomi Civi 3 Disney 100th Anniversary Edition | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/master-window-11s-icon-arrangement/"><u>Master Window 11'S Icon Arrangement</u></a></li>
+<li><a href="https://win-dash.techidaily.com/step-up-game-play-secure-the-new-nvidia-game-ready-driver-for-pc-windows-11-and-10/"><u>Step-Up Game Play: Secure the New Nvidia Game Ready Driver for PC (Windows 11 & 10)</u></a></li>
+<li><a href="https://extra-information.techidaily.com/syncopated-snapshots-instagram-videos-with-music/"><u>Syncopated Snapshots Instagram Videos with Music</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/tips-of-transferring-messages-from-motorola-g54-5g-to-iphone-1415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Tips of Transferring Messages from Motorola G54 5G to iPhone 14/15 | Dr.fone</u></a></li>
 </ul></div>
 

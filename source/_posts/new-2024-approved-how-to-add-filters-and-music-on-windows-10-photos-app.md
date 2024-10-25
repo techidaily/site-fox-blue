@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  How to Add Filters and Music on Windows 10 Photos App\""
-date: 2024-10-16T23:41:05.077Z
-updated: 2024-10-18T18:54:23.287Z
+date: 2024-10-17T17:03:30.407Z
+updated: 2024-10-24T20:54:23.442Z
 tags: 
   - screen-recording
   - ai video
@@ -59,10 +59,10 @@ If you have got Windows 10 Photos app and wish to add filters, though, it is by 
 **Step 5**: Just select one you like. Preview it and then click Done.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948895/19272" target="_top" id="1948895">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948895" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948895/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: How to add music on Windows 10 Photos App
@@ -78,10 +78,10 @@ Now that you have learnt how to **_add filters using Windows 10 Photos app._** D
 ![ add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/add-music-to-video-photos-app.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037355/7443" target="_top" id="2037355">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037355" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557742/17382" target="_top" id="1557742">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557742" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037355/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557742/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Step 4**: Pick ‘Your music’ so that you can set up a custom track. There are over 20 music you can choose. You can also sync music to video's beat. You can visit ‘Recommended’ section for adding default ones.
@@ -89,26 +89,26 @@ Now that you have learnt how to **_add filters using Windows 10 Photos app._** D
 ![add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/choose-music-to-video-photos-app.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484945/16446" target="_top" id="1484945">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484945" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100537/7443" target="_top" id="2100537">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100537" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484945/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100537/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Step 5**: Hit the ‘Done’ button.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868586/19272" target="_top" id="1868586">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868586" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868586/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
 From the above article, we conclude that Windows 10 Photos app is an amazing app when it comes to photo editing and screen capturing from a video. While there are numerous options out there, you can **_add filters using Windows 10 Photos app_** in the best way possible. Moreover, this application enables you enable to even add music to videos using Windows 10 Photos app. The advantages of Windows 10 are innumerable, and with the right tools, you can get the best out of it.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1884002/19272" target="_top" id="1884002">
-  <img src="//a.impactradius-go.com/display-ad/19272-1884002" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884002/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -135,16 +135,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-apply-photo-motion-blur-in-adobe-photoshop/"><u>[New] 2024 Approved Apply Photo Motion Blur in Adobe Photoshop</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-audioalert-essentials-downloading-and-editing-tamil-melodies/"><u>[New] AudioAlert Essentials Downloading & Editing Tamil Melodies</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-dynamic-image-narration-toolbox-for-2024/"><u>[New] Dynamic Image Narration Toolbox for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-the-insta-twist-techniques-manual-flipping-photos-and-videos-for-social-media-success/"><u>[New] In 2024, The Insta Twist Techniques Manual Flipping Photos and Videos for Social Media Success</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-the-learners-handbook-of-av1-technology-for-2024/"><u>[New] The Learner's Handbook of AV1 Technology for 2024</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/updated-commanding-attention-on-digital-platforms-via-custom-designs/"><u>[Updated] Commanding Attention on Digital Platforms via Custom Designs</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-echoes-of-excellence-learning-the-art-of-fading-in-audition/"><u>[Updated] Echoes of Excellence Learning the Art of Fading in Audition</u></a></li>
-<li><a href="https://win-able.techidaily.com/cardiotoxic-substances-can-cause-arrhythmias-by-altering-the-electrical-conduction-system-of-the-heart/"><u>Cardiotoxic Substances Can Cause Arrhythmias by Altering the Electrical Conduction System of the Heart</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-explore-mastery-in-photography-and-videography-on-apple-and-android-phones/"><u>In 2024, Explore Mastery in Photography & Videography on Apple & Android Phones</u></a></li>
-<li><a href="https://change-location.techidaily.com/pokemon-go-cooldown-chart-on-vivo-y100-drfone-by-drfone-virtual-android/"><u>Pokémon Go Cooldown Chart On Vivo Y100 | Dr.fone</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/unraveling-the-mystery-what-causes-your-car-audio-system-to-fail/"><u>Unraveling the Mystery: What Causes Your Car Audio System to Fail</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-in-2024-15-crucial-strategies-for-accessing-international-sport-events/"><u>[New] In 2024, 15 Crucial Strategies for Accessing International Sport Events</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-crafting-calm-conclusions-fading-out-audio-effects-in-adobe-premiere-pro/"><u>[New] In 2024, Crafting Calm Conclusions Fading Out Audio Effects in Adobe Premiere Pro</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-next-gen-gaming-horizon-upcoming-bests-in-playstation-vr-for-2024/"><u>[New] Next-Gen Gaming Horizon Upcoming Bests in PlayStation VR for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-understanding-the-essentials-of-firefox-split-screen-feature-for-2024/"><u>[New] Understanding the Essentials of Firefox Split Screen Feature for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-unlocking-whatsapp-wizardry-your-essential-guide/"><u>[New] Unlocking WhatsApp Wizardry Your Essential Guide</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-essential-vsco-editing-techniques-summary/"><u>[Updated] 2024 Approved Essential VSCO Editing Techniques Summary</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-perfect-pairing-of-tiktok-bio-and-linktree-connection/"><u>[Updated] In 2024, Perfect Pairing of TikTok Bio & Linktree Connection</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-detailed-synopsis-googles-podcast-platform-explored/"><u>2024 Approved Detailed Synopsis Google's Podcast Platform Explored</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-how-to-transcribe-a-youtube-video-free/"><u>2024 Approved How to Transcribe a YouTube Video [FREE]</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-the-gaming-hub-vs-content-creators-haven-twitch-and-youtube-compared/"><u>2024 Approved The Gaming Hub vs Content Creator's Haven Twitch & YouTube Compared</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-detect-and-remove-spyware-on-huawei-p60-drfone-by-drfone-virtual-android/"><u>How to Detect and Remove Spyware on Huawei P60? | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-mastering-multitasking-with-picture-in-picture-mode-on-microsoft-edge-browser/"><u>In 2024, Mastering Multitasking with Picture-in-Picture Mode on Microsoft Edge Browser</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/integrating-luts-for-dynamic-color-correction-in-premiere-pro/"><u>Integrating LUTs for Dynamic Color Correction in Premiere Pro</u></a></li>
+<li><a href="https://howto.techidaily.com/quick-fixes-for-why-is-my-lava-storm-5g-black-and-white-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Quick Fixes for Why Is My Lava Storm 5G Black and White | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/skyrocket-subscribers-mastering-youtube-traffic-boost-for-2024/"><u>Skyrocket Subscribers Mastering YouTube Traffic Boost for 2024</u></a></li>
 </ul></div>
 
