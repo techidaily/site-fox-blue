@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Viral Visuals  Photos and Their Lives for 2024\""
-date: 2024-10-18T00:27:30.388Z
-updated: 2024-10-24T21:19:28.745Z
+date: 2024-10-26T18:21:24.382Z
+updated: 2024-10-30T20:01:47.452Z
 tags: 
   - screen-recording
   - ai video
@@ -58,6 +58,13 @@ The original photo is the work of Antonio Guillem, who uploaded it on iStock in 
 
 ![original photo](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-5.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 According to Meme Documentation, the first version of the Distracted boyfriend theme dates back to January 2017\. Prog Snob, a Turkish progressive rock group on Facebook, posted the meme on their page to reference Phil Collin's distraction from progressive rock by pop music. However, it was the August 2017 Twitter version referencing the youth's feelings towards capitalism and socialism that went viral.
 
 Since then, the meme continues to enjoy mass popularity, including:
@@ -73,13 +80,6 @@ The latest version of Distracted boyfriend is a compilation of photos featuring 
 
 In addition, Antonio Guillem also has a stock image meme where the roles are reversed. The meme was later posted on Reddit underneath the original and received over 25,600 points in 24 hours.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part3: I Bet He's Thinking About Other Women
 
 ![meme features](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-7.jpg)
@@ -89,19 +89,6 @@ The meme features a couple in bed with the stock photo meme guy in contemplation
 However, subsequent memes feature satirical themes. Here are some of the most popular versions and their popularity.
 
 ![the most popular versions](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-8.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1702748">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 A July 2017 Instagram post by Cathrottle gained over 13,400 likes in a month. In this version, the man wonders why there are so many Fast and the Furious movies.
 
@@ -117,27 +104,7 @@ According to sources, the stock photo meme was first featured on Twitter in Dece
 
 ![stock photo meme](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-10.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1983474">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Twitter user @chocos posts the image with Spanish captions, with the woman sure the man is thinking of another. However, the man wonders why there are sounds in Star Wars when the sound does not travel in space. Since then, the tweet has received over 1,700 retweets and 2,200 likes.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part4: Bonjour Bear
 
@@ -151,6 +118,13 @@ Since then, internet users have continued to use the Bonjour Bear meme to refere
 
 ![using hand sanitizer](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-12.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 In addition, the post received over 91,700 points, with 95% of upvotes, within a day on Reddit.
 
 * Others use the meme as a reaction to when your relatives visit. The captions indicate your parent informing you that your uncle and aunt are visiting and they have brought presents.
@@ -159,25 +133,19 @@ In addition, the post received over 91,700 points, with 95% of upvotes, within a
 The photo is available on most stock photo websites, such as Adobe and Tumblr. Furthermore, you will find other hilarious versions of Bonjour Bear under the subreddits r/dankmemes and r/memes on Reddit.
 
 <!-- affiliate ads begin -->
-<span id="1993654">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://laganoo.pxf.io/c/5597632/1484944/16446" target="_top" id="1484944">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484944" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484944/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part5: FAQs
 
 <!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398455/3022" target="_top" id="398455">
-  <img src="//a.impactradius-go.com/display-ad/3022-398455" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i110150.net/c/5597632/798165/11305" target="_top" id="798165">
+  <img src="//a.impactradius-go.com/display-ad/11305-798165" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398455/3022" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798165/11305" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1\. Can you use stock photos for memes?
@@ -186,9 +154,23 @@ Yes, you can use stock photos for memes. However, you need to obtain them from r
 
 This is because not all stock photo providers offer their images with a creative commons license. For example, the Unsplash license allows you to use their stock images for personal or commercial use after making adjustments to the original.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. Does copyright law protect memes?
 
 Yes, all memes are under copyright law, which means you have the authority to govern their use. Although identifying the meme owner can be challenging, posting or sharing a meme through your social media accounts without consent violates copyright law. Therefore, only use stock image memes from verified stock content providers like Shutterstock, where the license provisions are clear.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006946/19272" target="_top" id="2006946">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006946" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. Can you use watermarked stock photos to create memes?
 
@@ -226,24 +208,24 @@ Therefore, always perform stock image reverse searches to verify the image permi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-2024-approved-increasing-your-youtube-traffic-with-100kplus-view-goals/"><u>[New] 2024 Approved Increasing Your YouTube Traffic with 100K+ View Goals</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-gamers-edition-obs-studio-streaming/"><u>[Updated] 2024 Approved Gamers' Edition OBS Studio Streaming</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-enhancing-on-screen-appeal-essential-tips-for-talking-head-shots-for-2024/"><u>[Updated] Enhancing On-Screen Appeal Essential Tips for Talking-Head Shots for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-no-fuss-guide-to-recording-virtual-classes-on-windowsmacos/"><u>[Updated] In 2024, No-Fuss Guide to Recording Virtual Classes on Windows/macOS</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-in-2024-professional-editors-showdown-filmora-vs-democracy-creator-features/"><u>[Updated] In 2024, Professional Editors Showdown Filmora Vs. Democracy Creator Features</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-streamline-your-viewing-turn-onoff-picture-in-picture-on-iphones/"><u>2024 Approved Streamline Your Viewing Turn On/Off Picture in Picture on iPhones</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-the-complete-guide-to-essential-uav-upgrades-and-parts/"><u>2024 Approved The Complete Guide to Essential UAV Upgrades & Parts</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-the-ultimate-guide-to-book-trailers-you-wont-miss/"><u>2024 Approved The Ultimate Guide to Book Trailers You Won't Miss</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-the-ultimate-platform-showdown-podcast-vs-youtube/"><u>2024 Approved The Ultimate Platform Showdown Podcast vs YouTube</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-top-photo-and-video-slideshow-makers-for-macos-sierra/"><u>2024 Approved Top Photo and Video Slideshow Makers for macOS Sierra</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-top-ranked-pixel-perfection-appweb-software/"><u>2024 Approved Top-Ranked Pixel Perfection App/Web Software</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-transform-your-videos-with-magix-video-pro-x/"><u>2024 Approved Transform Your Videos with Magix Video Pro X</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-unleash-your-creativity-in-full-rotation-best-practices-for-vr-video/"><u>2024 Approved Unleash Your Creativity in Full Rotation Best Practices for VR Video</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-unlocking-potential-the-ultimate-guide-to-whatsapp-hacks/"><u>2024 Approved Unlocking Potential The Ultimate Guide to WhatsApp Hacks</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/boosting-internet-coverage-in-every-corner-of-your-household-using-the-amplifi-hd-wireless-system-a-complete-review/"><u>Boosting Internet Coverage in Every Corner of Your Household Using the Amplifi HD Wireless System - A Complete Review</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/breaking-news-amds-third-innovative-processor-the-high-performance-ryzen-ai-9-hx-375-outshines-hx-370/"><u>Breaking News: AMD's Third Innovative Processor, the High-Performance Ryzen AI 9 HX 375 Outshines HX 370</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-photographys-new-frontier-illustration-and-motion-blurring-techniques/"><u>In 2024, Photography's New Frontier Illustration and Motion Blurring Techniques</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/mental-gymnastics-at-the-best-puzzle-halls/"><u>Mental Gymnastics at the Best Puzzle Halls</u></a></li>
-<li><a href="https://win-answers.techidaily.com/overcoming-the-challenge-of-unexpected-shutdowns-in-forza-horizon-5-for-windows-users/"><u>Overcoming the Challenge of Unexpected Shutdowns in Forza Horizon 5 for Windows Users</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-mobile-laughs-and-memes/"><u>[New] 2024 Approved Mobile Laughs & Memes</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-elevate-your-filmmaking-top-strategies-for-gopro-timelapses-for-2024/"><u>[New] Elevate Your Filmmaking Top Strategies for GoPro Timelapses for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-crafting-inspiring-interview-experiences/"><u>[New] In 2024, Crafting Inspiring Interview Experiences</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-maximize-android-screen-brightness/"><u>[New] In 2024, Maximize Android Screen Brightness</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-onlineoffline-animation-revolution-with-zero-price-tag-for-2024/"><u>[New] Online/Offline Animation Revolution with Zero Price Tag for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-top-picks-for-affordable-cloud-data-management-for-2024/"><u>[New] Top Picks for Affordable Cloud Data Management for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-the-best-ranked-cost-free-video-playing-software-for-pc-users-worldwide/"><u>[Updated] 2024 Approved The Best-Ranked, Cost-Free Video Playing Software for PC Users Worldwide</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-comprehensive-tutorial-for-zoom-and-gmail-users/"><u>[Updated] In 2024, Comprehensive Tutorial for Zoom and Gmail Users</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-cutting-edge-camera-capabilities-unleashing-potential-on-iphone/"><u>[Updated] In 2024, Cutting-Edge Camera Capabilities Unleashing Potential on iPhone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-the-ultimate-screen-experience-with-hp-envy-27-display-for-2024/"><u>[Updated] The Ultimate Screen Experience with HP Envy 27 Display for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-25-groundbreaking-metaverse-initiatives-for-comprehension/"><u>2024 Approved 25 Groundbreaking Metaverse Initiatives for Comprehension</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/aligning-spotify-selections-for-a-unified-youtube-music-experience/"><u>Aligning Spotify Selections for a Unified YouTube Music Experience</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/alternative-connection-methods-for-logitech-wireless-mouse-users/"><u>Alternative Connection Methods for Logitech Wireless Mouse Users</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/experts-choice-in-4k-capture-top-camera-list/"><u>Expert's Choice in 4K Capture Top Camera List</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-smartphone-compatible-vr-top-10-devices/"><u>In 2024, Smartphone-Compatible VR Top 10 Devices</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/pioneering-hardware-discoveries-curated-by-tom-and-his-team/"><u>Pioneering Hardware Discoveries Curated by Tom and His Team</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/squaring-the-circle-your-imovie-path-to-perfect-instagram-videos/"><u>Squaring the Circle Your iMovie Path to Perfect Instagram Videos</u></a></li>
+<li><a href="https://win-answers.techidaily.com/tackling-microsoft-edges-unexpected-shutdown-problem-in-windows-10-tips-and-tricks/"><u>Tackling Microsoft Edge's Unexpected Shutdown Problem in Windows 10: Tips and Tricks</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/ways-to-find-unlocking-codes-for-motorola-moto-g-stylus-5g-2023-phones-by-drfone-android/"><u>Ways To Find Unlocking Codes For Motorola Moto G Stylus 5G (2023) Phones</u></a></li>
 </ul></div>
 

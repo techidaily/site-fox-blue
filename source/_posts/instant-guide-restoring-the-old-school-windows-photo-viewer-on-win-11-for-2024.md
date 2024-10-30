@@ -1,7 +1,7 @@
 ---
 title: "\"Instant Guide  Restoring the Old-School Windows Photo Viewer on Win 11 for 2024\""
-date: 2024-10-19T18:10:34.525Z
-updated: 2024-10-24T16:07:04.917Z
+date: 2024-10-29T17:17:20.829Z
+updated: 2024-10-30T20:04:29.499Z
 tags: 
   - screen-recording
   - ai video
@@ -62,13 +62,6 @@ Here is why they want to restore Windows Photo Viewer –
 
 Though, Windows 10 Photos offers a dark theme, the effectiveness, responsiveness and features available with Windows Photo Viewer are hard to compromise.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027190/19272" target="_top" id="2027190">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027190" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027190/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Method 1 to restore Windows Photo Viewer
 
 The first method speaks about, when you have upgraded from a Windows 7/8/8.1 computer to Windows 10\. You can easily swing back to your most loved Windows Photo Viewer within no time. Here is the detailed guide –
@@ -77,16 +70,16 @@ The first method speaks about, when you have upgraded from a Windows 7/8/8.1 com
 
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 2**: Click on the present photo viewer app over there and look for ‘Windows Photo Viewer’. We assume that you have upgraded from an older version on Windows and Windows Photo Viewer is there in the options.
 
 **Step 3**: Tap on ‘Windows Photo Viewer’ and then exit ‘Settings’. Now, you have successfully restored Windows Photo Viewer and you can open photos in Windows Photo Viewer.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Method 2 to get Windows Photo Viewer back
 
@@ -103,15 +96,28 @@ Here is the detailed guide –
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-back.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1975555">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Note**: If the Windows Photo Viewer isn't there, here is a backup. You need to change Windows Registry to make Windows Photo Viewer returned. You need to go to [Edwin over on Ten Forums](https://www.tenforums.com/software-apps/8930-windows-photo-viewer-gone-2.html#post290818) to add code on your PC.
 
 ![restore windows photo viewer code](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-code.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938693/19272" target="_top" id="1938693">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938693/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Conclusion
 
@@ -119,20 +125,14 @@ From the above article, we found out that restoring Windows Photo Viewer on your
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<span id="1982508">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918684/19272" target="_top" id="1918684">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918684" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918684/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -159,20 +159,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-cut-to-impact-in-depth-youtube-video-editing-mastery/"><u>[New] 2024 Approved Cut to Impact In-Depth Youtube Video Editing Mastery</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-in-2024-the-art-of-using-kinemaster-techniques-and-top-online-video-editors/"><u>[Updated] In 2024, The Art of Using KineMaster Techniques and Top Online Video Editors</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-mastering-the-art-of-discovering-elusive-youtube-videos-for-2024/"><u>[Updated] Mastering the Art of Discovering Elusive YouTube Videos for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-affordable-aerial-acrobats-best-bargain-drones-for-(500/"><u>2024 Approved Affordable Aerial Acrobats Best Bargain Drones for <$500</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-comparing-streaming-software-obs-vs-shadowplay/"><u>2024 Approved Comparing Streaming Software OBS vs ShadowPlay</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-expand-horizons-freshest-wins11-apps-and-games/"><u>2024 Approved Expand Horizons Freshest Wins11 Apps & Games</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-harnessing-ai-an-innovators-toolkit-for-youtube-titles/"><u>2024 Approved Harnessing AI An Innovator's Toolkit for YouTube Titles</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-high-quality-duo-of-photo-and-sound-capture-software/"><u>2024 Approved High-Quality Duo of Photo & Sound Capture Software</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-leading-phones-best-gopro-videos-editing-tools/"><u>2024 Approved Leading Phones' Best GoPro Videos Editing Tools</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-pioneering-websites-for-modern-letterforms/"><u>2024 Approved Pioneering Websites for Modern Letterforms</u></a></li>
-<li><a href="https://android-location.techidaily.com/easy-ways-to-manage-your-honor-v-purse-location-settings-drfone-by-drfone-virtual/"><u>Easy Ways to Manage Your Honor V Purse Location Settings | Dr.fone</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/evaluating-camstudios-latest-screen-recording-features-for-2024/"><u>Evaluating CamStudio's Latest Screen Recording Features for 2024</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-fix-life360-shows-wrong-location-on-vivo-y100i-power-5g-drfone-by-drfone-virtual-android/"><u>How to Fix Life360 Shows Wrong Location On Vivo Y100i Power 5G? | Dr.fone</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-unlock-apple-id-activation-lock-from-iphone-15-pro-by-drfone-ios/"><u>In 2024, How to Unlock Apple ID Activation Lock From iPhone 15 Pro?</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/premier-choice-of-9-free-youtube-logos-and-graphics-maker/"><u>Premier Choice of 9 Free YouTube Logos & Graphics Maker</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-revamping-your-mobile-melodies-an-expert-iphone-ringtone-guide/"><u>[New] 2024 Approved Revamping Your Mobile Melodies An Expert iPhone Ringtone Guide</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-zooming-in-to-the-heart-of-roleplay-robloxs-close-up-guide/"><u>[New] 2024 Approved Zooming In to the Heart of Roleplay Roblox's Close-Up Guide</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-expert-guidelines-to-improve-zoom-on-chromeos/"><u>[New] Expert Guidelines to Improve Zoom on ChromeOS</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-differences-between-vr-ar-and-mr/"><u>[New] In 2024, Differences Between VR, AR and MR</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-ideal-timer-solutions-for-your-special-day-on-androidios/"><u>[New] In 2024, Ideal Timer Solutions for Your Special Day on Android/iOS</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-photography-refinement-removing-backgrounds-and-blurring-effectively/"><u>[New] In 2024, Photography Refinement Removing Backgrounds & Blurring Effectively</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-step-by-step-guide-to-efficient-video-capture-with-zd-software-tools/"><u>[New] In 2024, Step-by-Step Guide to Efficient Video Capture with ZD Software Tools</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-shift-photo-realism-to-a-more-distinctive-outer-glow-psx/"><u>[Updated] 2024 Approved Shift Photo Realism to a More Distinctive Outer Glow PSX</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-instagram-audio-the-ultimate-guide-to-music-icons-for-2024/"><u>[Updated] Instagram Audio The Ultimate Guide to Music Icons for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-optimal-viewing-solution-projector-or-tv-for-top-4k-quality/"><u>[Updated] Optimal Viewing Solution Projector or TV for Top 4K Quality</u></a></li>
+<li><a href="https://techidaily.com/complete-tutorial-for-honor-magic-6-pro-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>Complete Tutorial for Honor Magic 6 Pro Hard Reset | Dr.fone</u></a></li>
+<li><a href="https://win-able.techidaily.com/conquer-the-codex-defeating-cod-warzone-error-6328-with-expert-guidance/"><u>Conquer the Codex: Defeating COD Warzone Error 6328 with Expert Guidance</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-stop-life360-from-tracking-you-on-vivo-y100a-drfone-by-drfone-virtual-android/"><u>How to Stop Life360 from Tracking You On Vivo Y100A? | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-full-guide-navigating-the-world-of-final-cut-pro/"><u>In 2024, Full Guide Navigating the World of Final Cut Pro</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/in-2024-going-above-and-beyond-without-the-need-for-vimeo/"><u>In 2024, Going Above and Beyond Without the Need for Vimeo</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/invisible-edits-hide-elements-with-sharpen-mask/"><u>Invisible Edits Hide Elements with Sharpen Mask</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/learn-to-convert-youtube-videos-on-twitter-downloads-for-2024/"><u>Learn to Convert YouTube Videos on Twitter Downloads for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/mastery-over-music-flow-the-art-of-audio-blending/"><u>Mastery Over Music Flow The Art of Audio Blending</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/using-compressor-in-final-cut-pro-x-best-practices-and-workflows/"><u>Using Compressor in Final Cut Pro X Best Practices and Workflows</u></a></li>
 </ul></div>
 

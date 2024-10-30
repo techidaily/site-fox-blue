@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Transforming Movies to Still Moments with Windows 10 Photo Viewer\""
-date: 2024-10-22T18:31:57.960Z
-updated: 2024-10-24T20:47:21.439Z
+date: 2024-10-28T19:52:38.736Z
+updated: 2024-10-30T16:25:06.524Z
 tags: 
   - screen-recording
   - ai video
@@ -64,10 +64,10 @@ These photos are stored in the ‘Pictures’ folder of your computer having ‘
 * This image will be saved as ‘LI\_Moment’ file in your Pictures folder by default.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068439/7443" target="_top" id="2068439">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068439" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068439/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: Why I can’t save photo from video
@@ -77,10 +77,10 @@ In case, you are not able to save photos from video on Windows 10 Photos App. Th
 We are explaining the solutions here –
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885932/19272" target="_top" id="1885932">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885932" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1885999/19272" target="_top" id="1885999">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885999" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885999/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1\. Check the update
@@ -88,10 +88,10 @@ We are explaining the solutions here –
 Click on ‘Start’ > ‘Settings’ > ‘Update & Security’ > ‘Windows Updates’ > ‘Check for Updates’ > ‘Update Available’. When update is available, go ahead and follow the prompts to get the update.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
+<a href="https://bluettifr.pxf.io/c/5597632/2145079/17095" target="_top" id="2145079">
+  <img src="//a.impactradius-go.com/display-ad/17095-2145079" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145079/17095" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2\. Sign in a different account in Microsoft Store
@@ -113,18 +113,18 @@ Here comes the guide –
 * Once the image is captured, the editing tool bar is visible. It allows you to enhance the image to great extent.
 * Now, hit the ‘Save’ icon and get the image saved on your computer.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087239/19272" target="_top" id="2087239">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087239" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087239/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 We provided you some knowledge on how to save a photo from video Windows 10 Photos. Out of the multiple ways to save photos from videos, you can try what suits you best. If you want to go for a desktop based application, then Windows Photos serves you best. But, when you want to get things done online, you can pick ScreenShot for that matter. Hope you liked our efforts!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082521/7443" target="_top" id="2082521">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082521" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082521/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -151,17 +151,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/024-approved-design-best-practices-for-engaging-youtube-thumbnails/"><u>[New] 2024 Approved Design Best Practices for Engaging YouTube Thumbnails</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/new-crafting-a-captivating-voice-the-art-of-writing-film-dialogues/"><u>[New] Crafting a Captivating Voice The Art of Writing Film Dialogues</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-trends-that-make-your-meme-epidemic/"><u>[New] Trends That Make Your Meme Epidemic</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-hacks-create-youtube-shorts-thumbnails-that-stand-out-quickly/"><u>[Updated] 2024 Approved Hacks Create YouTube Shorts Thumbnails That Stand Out Quickly</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-quick-and-quirky-make-memes-with-kapwing-app-for-2024/"><u>[Updated] Quick & Quirky Make Memes with Kapwing App for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-cerebral-showdowns-top-general-knowledge-videos/"><u>2024 Approved Cerebral Showdowns - Top General Knowledge Videos</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-crafting-spectacular-hdr-images-blending-tips-in-adobe-lightroom/"><u>2024 Approved Crafting Spectacular HDR Images Blending Tips in Adobe Lightroom</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-ffmpeg-and-its-proficiency-in-original-audio-extraction/"><u>2024 Approved FFmpeg and Its Proficiency in Original Audio Extraction</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-sound-spectrum-listing-websites-for-legal-ringtones/"><u>2024 Approved Sound Spectrum Listing Websites for Legal Ringtones</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/discover-why-tech-enthusiasts-are-raving-about-lgs-stunning-65-inch-oled-c9-smart-television/"><u>Discover Why Tech Enthusiasts Are Raving About LG's Stunning 65-Inch OLED C9 Smart Television</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/in-2024-set-up-chromebook-for-seamless-video-capture/"><u>In 2024, Set Up Chromebook for Seamless Video Capture</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/inside-outlook-what-youre-missing-as-a-story-viewer/"><u>Inside Outlook What You're Missing as a Story Viewer</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-elevating-camera-experience-mavic-pro-review-for-2024/"><u>[New] Elevating Camera Experience - Mavic Pro Review for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-essential-windows-video-editing-software-for-professional-use/"><u>[New] Essential Windows Video Editing Software for Professional Use</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-building-a-brand-with-captivating-haul-videos-and-edits/"><u>[New] In 2024, Building a Brand with Captivating Haul Videos and Edits</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-top-5-best-live-streaming-webcamscameras-for-twitch-for-2024/"><u>[New] Top 5 Best Live Streaming Webcams/Cameras for Twitch for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-essential-free-resources-for-youtube-intros/"><u>[Updated] Essential Free Resources for YouTube Intros</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-formulating-final-fact-finding-flourishes/"><u>[Updated] Formulating Final Fact-Finding Flourishes</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-trendsetting-sky-docks-for-android-users/"><u>[Updated] In 2024, Trendsetting Sky Docks for Android Users</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-overcoming-windows-11-photo-app-anomalies-with-ease/"><u>[Updated] Overcoming Windows 11 Photo App Anomalies with Ease</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-free-online-music-archives-copyright-free-gaming-tunes/"><u>2024 Approved Free Online Music Archives (Copyright-Free Gaming Tunes)</u></a></li>
+<li><a href="https://techtrends.techidaily.com/automatisering-van-krachtpunten-voor-bedrijfsprocessen-met-abn-amro-bank-iguana-abbyy-vereniging/"><u>Automatisering Van Krachtpunten Voor Bedrijfsprocessen Met ABN Amro Bank - Iguana ABBYY Vereniging</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/breaking-down-the-fundamentals-of-mixed-reality/"><u>Breaking Down the Fundamentals of Mixed Reality</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/evaluating-the-impact-a-comprehensive-review-of-the-latest-apple-watch-ultra-model-the-ultra-ii/"><u>Evaluating the Impact: A Comprehensive Review of the Latest Apple Watch Ultra Model – The Ultra II</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-lightning-fast-windowed-photo-reader-for-win11/"><u>In 2024, Lightning-Fast Windowed Photo Reader for Win11</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-step-up-your-iphones-selfie-game-with-these-best-free-app-tools/"><u>In 2024, Step-Up Your iPhone's Selfie Game with These Best Free App Tools</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/quick-setup-for-flawless-time-lapses-on-ipad-for-2024/"><u>Quick Setup for Flawless Time-Lapses on iPad for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/the-fast-photography-path-to-crafting-quick-google-collage-pics-for-2024/"><u>The Fast Photography Path to Crafting Quick Google Collage Pics for 2024</u></a></li>
 </ul></div>
 
