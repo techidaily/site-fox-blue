@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Proven Pathways to Peeling Away Pesky Backdrops with Affinity Photo Tools\""
-date: 2024-10-26T16:44:39.936Z
-updated: 2024-10-30T20:47:36.532Z
+date: 2024-10-30T23:28:15.182Z
+updated: 2024-11-04T17:50:53.232Z
 tags: 
   - screen-recording
   - ai video
@@ -49,6 +49,13 @@ Step3 To make a selection around your subject, first enable the **"Snap To Edges
 
 ![enabling snap to edges and soft edges in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/enabling-snap-to-edges-and-soft-edges-in-affinity-designer.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Set your brush size using your keyboard's **left** and **right bracket** keys. Now, manually make a selection around your subject and white edges in the image as precisely as possible.
 
 Step4 Next, zoom in on your subject. Press & hold the ALT key on your keyboard, and use the Selection Brush tool to manually correct the rough edges of your outline.
@@ -58,10 +65,16 @@ Click the **"Refine"** option in the toolbar to open the **"Refine Selection"** 
 ![refining the outline around the image to remove background in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/refining-the-outline-around-the-image-to-remove-background-in-affinity-designer.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983472">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step5 In the last step, press the **"Delete"** key on your keyboard to remove the background, or click **"Edit"** and choose the **"Cut"** option.
@@ -105,13 +118,6 @@ Therefore, we recommend using [Wondershare PixCut](https://pixcut.wondershare.co
 
 ![wondershare pixcut for removing image background](https://images.wondershare.com/filmora/article-images/2023/03/wondershare-pixcut-for-removing-image-background.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Editing experts recommend Wondershare PixCut as the best alternative to many editing problems. An AI-powered automatic editing tool, this software has quicker solutions for you when it comes to removing an image's background. Some of its many benefits are:
 
 * Offline and online image editing tools.
@@ -127,13 +133,6 @@ Editing experts recommend Wondershare PixCut as the best alternative to many edi
 * Create a free account for easier future access.
 * Paid and customized accounts for premium benefits.
 * Customized categories that include e-commerce, car dealership, social media, graphic designing, personal, and marketing use.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006946/19272" target="_top" id="2006946">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006946" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006946/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -146,10 +145,10 @@ And if you have any interests in finding free images to expand your resource, yo
 Hopefully, this article and video can help you create ideal images!
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The Best Alternative of Affinity Photo
@@ -161,10 +160,10 @@ Therefore, we recommend using [Wondershare PixCut](https://pixcut.wondershare.co
 ![wondershare pixcut for removing image background](https://images.wondershare.com/filmora/article-images/2023/03/wondershare-pixcut-for-removing-image-background.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151894/7443" target="_top" id="2151894">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151894" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151865/7443" target="_top" id="2151865">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151865" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151894/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151865/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Editing experts recommend Wondershare PixCut as the best alternative to many editing problems. An AI-powered automatic editing tool, this software has quicker solutions for you when it comes to removing an image's background. Some of its many benefits are:
@@ -182,6 +181,13 @@ Editing experts recommend Wondershare PixCut as the best alternative to many edi
 * Create a free account for easier future access.
 * Paid and customized accounts for premium benefits.
 * Customized categories that include e-commerce, car dealership, social media, graphic designing, personal, and marketing use.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068433/7443" target="_top" id="2068433">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068433" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068433/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -217,20 +223,24 @@ Hopefully, this article and video can help you create ideal images!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-exploring-dji-phantom-3s-advanced-aerial-capabilities/"><u>[New] 2024 Approved Exploring DJI Phantom 3’S Advanced Aerial Capabilities</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-overcoming-obstacles-in-iphone-xs-facial-detection-system/"><u>[New] In 2024, Overcoming Obstacles in iPhone X’s Facial Detection System</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-step-into-the-future-microsofts-hololens-breakthrough/"><u>[New] In 2024, Step Into the Future Microsoft's HoloLens Breakthrough</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-the-ultimate-guide-to-selecting-premium-text-tools-for-ae-for-2024/"><u>[New] The Ultimate Guide to Selecting Premium Text Tools for AE for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-in-2024-screen-sharing-showdown-obs-vs-twitch-studio-face-off/"><u>[Updated] In 2024, Screen Sharing Showdown OBS vs Twitch Studio Face-Off</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-webcam-experience-pioneering-high-definition-video-capture/"><u>[Updated] In 2024, WebCam Experience Pioneering High-Definition Video Capture</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-navigating-picture-in-picture-features-in-firefox/"><u>[Updated] Navigating Picture-in-Picture Features in Firefox</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-step-up-your-game-expert-tips-for-tiktok-editing-for-2024/"><u>[Updated] Step Up Your Game Expert Tips for TikTok Editing for 2024</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/eager-to-switch-on-vision-pros-journey-setting-essential-tips-and-expectations-you-should-know-beforehand-exploration/"><u>Eager To Switch On Vision Pro's Journey Setting? Essential Tips & Expectations You Should Know Beforehand Exploration</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-repair-ios-system-of-iphone-15-pro-max-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Repair iOS System of iPhone 15 Pro Max? | Dr.fone</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-action-reel-extravaganza-7-premium-4k-cameras/"><u>In 2024, Action Reel Extravaganza 7 Premium 4K Cameras</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/in-2024-benq-bl2711u-a-journey-through-professional-4k-display-tech/"><u>In 2024, BenQ BL2711U - A Journey Through Professional 4K Display Tech</u></a></li>
-<li><a href="https://review-topics.techidaily.com/nubia-messages-recovery-recover-deleted-messages-from-nubia-by-fonelab-android-recover-messages/"><u>Nubia Messages Recovery - Recover Deleted Messages from Nubia</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/seamless-setup-swift-sharing-the-essential-guide-to-ifunny-apps/"><u>Seamless Setup, Swift Sharing The Essential Guide to iFunny Apps</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96464928-9781615931101-year-zero/"><u>Year Zero | Free Book</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-zero-pay-zone-how-to-watch-record-and-edit-soccer-for-free/"><u>[New] 2024 Approved Zero Pay Zone How To Watch, Record, and Edit Soccer for Free</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-add-personal-touch-to-videos-with-text-labels-using-photos-app-windows-11-for-2024/"><u>[New] Add Personal Touch to Videos with Text Labels Using Photos App (Windows 11) for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-perfect-your-presence-masterful-morphvox-techniques/"><u>[New] Perfect Your Presence Masterful MorphVOX Techniques</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-top-10-live-audio-broadcast-networks/"><u>[Updated] 2024 Approved Top 10 Live Audio Broadcast Networks</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-top-10-subtitle-converters-no-cost-for-srt-files/"><u>[Updated] 2024 Approved Top 10 Subtitle Converters, No Cost for SRT Files</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-precision-in-adding-time-stamps-to-images/"><u>[Updated] In 2024, Precision in Adding Time Stamps to Images</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-time-stretched-pixelation-the-ultimate-guide-to-cam-gear/"><u>[Updated] Time-Stretched Pixelation The Ultimate Guide to Cam Gear</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-top-tier-funny-editing-tool/"><u>2024 Approved Top-Tier Funny Editing Tool</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/elevate-visual-experience-with-apple-music-inclusion/"><u>Elevate Visual Experience with Apple Music Inclusion</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/elite-6-platforms-paving-the-way-for-biz-success/"><u>Elite 6 Platforms Paving the Way for Biz Success</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/enhance-pc-video-life-with-windows-immersive-hdr-techniques/"><u>Enhance PC Video Life with Windows' Immersive HDR Techniques</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/exquisite-talent-in-vr-content-development/"><u>Exquisite Talent in VR Content Development</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/game-of-thrones-ringtones-premier-download-websites-ranked/"><u>Game of Thrones Ringtones Premier Download Websites Ranked</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/generate-the-perfect-present-discover-how-googles-innovative-ai-offers-personalized-gift-suggestions/"><u>Generate the Perfect Present: Discover How Google's Innovative AI Offers Personalized Gift Suggestions</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/high-definition-recording-reigns-supreme-top-picks-listed-for-2024/"><u>High Definition Recording Reigns Supreme Top Picks Listed for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-remove-a-previously-synced-google-account-from-your-realme-narzo-n53-by-drfone-android/"><u>How to Remove a Previously Synced Google Account from Your Realme Narzo N53</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-apple-iphone-13-pro-screen-mirroring-you-must-know-drfone-by-drfone-ios/"><u>In 2024, Apple iPhone 13 Pro Screen Mirroring You Must Know | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/simple-solutions-to-fix-android-systemui-has-stopped-error-for-oneplus-nord-3-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Simple Solutions to Fix Android SystemUI Has Stopped Error For OnePlus Nord 3 5G | Dr.fone</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-in-2024-the-ultimate-list-of-free-vob-video-editors/"><u>Updated In 2024, The Ultimate List of Free VOB Video Editors</u></a></li>
 </ul></div>
 

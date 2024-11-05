@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Elevating Aerial Photography with GoPro Karma"
-date: 2024-10-26T17:14:52.860Z
-updated: 2024-10-30T20:09:24.120Z
+date: 2024-11-01T05:19:03.612Z
+updated: 2024-11-05T13:29:34.748Z
 tags: 
   - screen-recording
   - ai video
@@ -57,10 +57,10 @@ thumbnail: https://thmb.techidaily.com/4af354c0c4f31e85da7815990d834961f2e7342ec
  The overall verdict is that this is a fantastic drone for capturing stunning images but it doesn't have the easy flying mode or the battery life to compete with some of the best drones available at the same price point. Although you might have to sacrifice a bit in image quality when compared to a GoPro camera with some competitors, it's often worth it for value knowing that you can capture the shot and maintain control over your drone.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484951/16446" target="_top" id="1484951">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484951" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2112007/7443" target="_top" id="2112007">
+  <img src="//a.impactradius-go.com/display-ad/7443-2112007" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484951/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112007/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Detailed review for GoPro Karma
@@ -100,10 +100,10 @@ thumbnail: https://thmb.techidaily.com/4af354c0c4f31e85da7815990d834961f2e7342ec
 ![gopro karma controller](https://images.wondershare.com/filmora/article-images/gopro-karma-controller.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123901/26106" target="_top" id="2123901">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123901" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123901/26106" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  One thing that the GoPro Karma did especially well was creating a beautiful controller. The RC controller is relatively small but it feels exactly like playing a videogame with plenty of functions and no need to have a compatible device to use the drone. The other extremely strong point is the camera. Nobody can build a great outdoor camera that is it as resilient as a GoPro with the Hero 5 Black version of this drone capable of shooting in 4K with an astounding video quality, you can catch some amazing video as well as incredible still images on this drone.
@@ -115,10 +115,10 @@ Overall, the GoPro Karma is a fairly strong showing for a drone. Although it can
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148644/16836" target="_top" id="2148644">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148644" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896555/19272" target="_top" id="1896555">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896555" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148644/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896555/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Max Wales
@@ -146,20 +146,20 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-learning-the-pixiz-method-for-photo-based-video-crafting/"><u>[New] 2024 Approved Learning the Pixiz Method for Photo-Based Video Crafting</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-cultivating-a-brighter-home-with-outdoor-help/"><u>[New] In 2024, Cultivating a Brighter Home with Outdoor Help</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-inshot-app-how-to-integrate-external-songs-easily/"><u>[New] InShot App How to Integrate External Songs Easily</u></a></li>
-<li><a href="https://article-files.techidaily.com/new-link-films-for-organized-youtube-display-for-2024/"><u>[New] Link Films for Organized YouTube Display for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-revel-in-filmoras-top-9-edits-every-editor-loves-for-2024/"><u>[New] Revel in Filmora's Top 9 Edits Every Editor Loves for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-accelerated-mp4-conversion-for-fb-media-for-2024/"><u>[Updated] Accelerated MP4 Conversion for FB Media for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-discovering-mobile-virtual-realitys-elite-selection-for-2024/"><u>[Updated] Discovering Mobile Virtual Reality's Elite Selection for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-from-cluttered-to-clear-a-canva-guide-for-borders-removal-for-2024/"><u>[Updated] From Cluttered to Clear A Canva Guide for Borders Removal for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-how-to-make-a-cool-youtube-video-intro-in-imovie/"><u>[Updated] How to Make a Cool YouTube Video Intro in iMovie?</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/a-step-by-step-guide-to-getting-the-most-out-of-your-mobizen-experience-for-2024/"><u>A Step-by-Step Guide to Getting the Most Out of Your Mobizen Experience for 2024</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/exploring-the-visual-brilliance-samsung-qn55q6f-4k-hdr-television-critique/"><u>Exploring the Visual Brilliance - Samsung QN55Q6F 4K HDR Television Critique</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/quick-guide-eluding-educational-videos-effectively/"><u>Quick Guide Eluding Educational Videos Effectively</u></a></li>
-<li><a href="https://fox-access.techidaily.com/ultimate-thirteen-for-professional-cinematic-equipment/"><u>Ultimate Thirteen for Professional Cinematic Equipment</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/visual-narrative-magic-mastering-the-art-of-fading-edits/"><u>Visual Narrative Magic Mastering the Art of Fading Edits</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/be-rotation-simplified-techniques-for-any-degree-updated-edition-for-2024/"><u>YouTube Rotation Simplified Techniques for Any Degree [Updated Edition] for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-all-about-kinemaster-androids-ultimate-gaming-companion/"><u>[New] 2024 Approved All About KineMaster Android's Ultimate Gaming Companion</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-clip-courage-embracing-twitters-viral-vanguard-for-2024/"><u>[New] Clip Courage Embracing Twitter's Viral Vanguard for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-leading-the-field-in-remotely-recorded-content-creation-for-2024/"><u>[New] Leading the Field in Remotely Recorded Content Creation for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-the-ig-boom-technique-how-to-amass-a-massive-follower-count-quickly/"><u>[New] The IG Boom Technique How to Amass a Massive Follower Count Quickly</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-from-drafts-to-masterpieces-top-10-essential-graphic-design-tools-for-2024/"><u>[Updated] From Drafts to Masterpieces Top 10 Essential Graphic Design Tools for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-selecting-the-superior-hexacopters/"><u>[Updated] In 2024, Selecting the Superior HexaCopters</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-masterful-3d-design-best-animation-software-selection/"><u>2024 Approved Masterful 3D Design Best Animation Software Selection</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-pinnacle-10-gimbal-models-enhancing-smartphone-and-dslr-shots/"><u>2024 Approved Pinnacle 10 Gimbal Models Enhancing Smartphone and DSLR Shots</u></a></li>
+<li><a href="https://win-unique.techidaily.com/comment-resoudre-lerreur-dism-parameter-error-87-sous-windows-10-guide-complet/"><u>Comment Résoudre L'erreur Dism Parameter Error 87 Sous Windows 10 : Guide Complet</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/critical-cutting-tools-the-filmmakers-essentials/"><u>Critical Cutting Tools The Filmmaker's Essentials</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-full-picture-the-essence-of-google-podcasts-app/"><u>In 2024, Full Picture The Essence of Google Podcasts App</u></a></li>
+<li><a href="https://android-frp.techidaily.com/is-gsm-flasher-adb-legit-full-review-to-bypass-your-oppo-reno-9a-phone-frp-lock-by-drfone-android/"><u>Is GSM Flasher ADB Legit? Full Review To Bypass Your Oppo Reno 9A Phone FRP Lock</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/personal-aerial-companions-gps-drones-that-never-stray/"><u>Personal Aerial Companions - GPS Drones that Never Stray</u></a></li>
+<li><a href="https://discover-fantastic.techidaily.com/say-goodbye-to-pesky-pop-ups-four-ultimate-methods-to-remove-them-from-your-chrome-experience/"><u>Say Goodbye to Pesky Pop-Ups: Four Ultimate Methods to Remove Them From Your Chrome Experience</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/ultimate-alarm-tones-optimal-websites-list/"><u>Ultimate Alarm Tones Optimal Websites List</u></a></li>
 </ul></div>
 

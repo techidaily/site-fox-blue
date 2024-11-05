@@ -1,7 +1,7 @@
 ---
 title: "The Complete SRT Reference Manual for 2024"
-date: 2024-10-25T17:44:44.817Z
-updated: 2024-10-30T20:07:53.513Z
+date: 2024-10-30T01:23:37.323Z
+updated: 2024-11-04T16:43:47.971Z
 tags: 
   - screen-recording
   - ai video
@@ -89,6 +89,13 @@ Step1 Launch TextEdit if you're using a Mac or Notepad if you're using Windows a
 
 ![launch textedit](https://images.wondershare.com/filmora/article-images/2022/07/everything-you-should-know-about-srt-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://arkmc.pxf.io/c/5597632/352555/5172" target="_top" id="352555">
+  <img src="//a.impactradius-go.com/display-ad/5172-352555" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352555/5172" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step2 Now, type 1 to indicate the beginning of the first caption sequence. Then click on ‘Enter’ on your Keyboard.
 
 Enter of the following formats as the beginning and ending timecode; hours:minutes:seconds,milliseconds – -> hours:minutes:seconds,milliseconds
@@ -112,10 +119,10 @@ Step6 To Save your file in .srt format, click on **‘File’** \> **Save**. Und
 You've successfully created an SRT file. It's as simple as that!
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036486/19272" target="_top" id="2036486">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036486" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036486/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 4: How to open an SRT file?
@@ -138,32 +145,26 @@ Step2 Move the uploaded SRT file to the Timeline and right-click on it. Then cho
 
 ![choose advanced edit](https://images.wondershare.com/filmora/article-images/2022/07/open-and-edit-srt-file-with-filmora-2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136548/16384" target="_top" id="2136548">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136548" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136548/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3 Now take advantage of the Filmora software advanced editing to edit the SRT file.
 
 ![use filmora to edit srt file](https://images.wondershare.com/filmora/article-images/2022/07/open-and-edit-srt-file-with-filmora-3.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step4 Once you're done with editing the SRT file, move the cursor to the timeline and right-click on the ‘SRT’ > select ‘Export Subtitle File’ from the pop-up list that appears to upload the edited SRT file to your PC storage.
 
 ![select subtitle file](https://images.wondershare.com/filmora/article-images/2022/07/open-and-edit-srt-file-with-filmora-4.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1993654">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 5: Hot FAQs on SRT files
@@ -237,10 +238,10 @@ Another benefit of using SRT files is that it helps to increase your video engag
 The fact that SRT is highly compatible with almost every platform makes it a good subtitle file format. Yes, SRT can be used on different platforms including Facebook, Twitter, YouTube, and many other native video platforms. And as stated earlier, you don't need to always edit it or generate additional files irrespective of the platform you're looking to use it on.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100526/7443" target="_top" id="2100526">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100526" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 5\. Improve SEO ability
@@ -267,11 +268,25 @@ Step5 Repeat step 3 & 4 until you've completed the Transcript. Make sure you che
 
 ![check no errors in spellings](https://images.wondershare.com/filmora/article-images/2022/07/how-to-make-srt-file-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997695/19272" target="_top" id="1997695">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997695" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997695/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step6 To Save your file in .srt format, click on **‘File’** \> **Save**. Under ‘Save As’ enter the name of your file and change the file extension to .srt and hit the Save button to complete the process.
 
 ![click on file](https://images.wondershare.com/filmora/article-images/2022/07/how-to-make-srt-file-2.jpg)
 
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137411/7443" target="_top" id="2137411">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137411" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Note:** if you're on Mac, make sure you Uncheck the ‘Hide Extension’ and If no extension is provided, use “.txt” checkboxes.
 
@@ -297,41 +312,13 @@ Step2 Move the uploaded SRT file to the Timeline and right-click on it. Then cho
 
 ![choose advanced edit](https://images.wondershare.com/filmora/article-images/2022/07/open-and-edit-srt-file-with-filmora-2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052063/7443" target="_top" id="2052063">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052063" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052063/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step3 Now take advantage of the Filmora software advanced editing to edit the SRT file.
 
 ![use filmora to edit srt file](https://images.wondershare.com/filmora/article-images/2022/07/open-and-edit-srt-file-with-filmora-3.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step4 Once you're done with editing the SRT file, move the cursor to the timeline and right-click on the ‘SRT’ > select ‘Export Subtitle File’ from the pop-up list that appears to upload the edited SRT file to your PC storage.
 
 ![select subtitle file](https://images.wondershare.com/filmora/article-images/2022/07/open-and-edit-srt-file-with-filmora-4.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144287/7443" target="_top" id="2144287">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144287" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144287/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948876/19272" target="_top" id="1948876">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948876" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948876/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 5: Hot FAQs on SRT files
 
@@ -350,6 +337,13 @@ The process of adding SRT to your YouTube video is pretty straightforward. Just 
 1. Sign in to your YouTube channel and locate the ‘YouTube Creator Studio’. Then select ‘Subtitles’ on the right menu.
 
 ![select subtitles](https://images.wondershare.com/filmora/article-images/2022/07/how-to-use-srt-file-on-youtube-1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972698/19272" target="_top" id="1972698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 1. Select the Video that you want to add SRT to. Then click ‘Add Language’ and select the language you wrote your Subtitle.
 
@@ -389,22 +383,19 @@ That being said, if you plan on using SRT for your videos you can employ the sim
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-expert-guide-to-video-editing-leveraging-power-of-movies-maker-on-windows-8/"><u>[New] 2024 Approved Expert Guide to Video Editing Leveraging Power of Movies Maker on Windows 8</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-securing-stunning-media-backdrops-at-cost-effective-rates/"><u>[New] 2024 Approved Securing Stunning Media Backdrops at Cost-Effective Rates</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-crossfade-mastery-in-premiere-editing-tools/"><u>[New] In 2024, Crossfade Mastery in Premiere Editing Tools</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-cutting-edge-tactics-for-sharing-video-content-from-twitter-and-whatsapp/"><u>[New] In 2024, Cutting-Edge Tactics for Sharing Video Content From Twitter and WhatsApp</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-omega-series-high-definition-full-touch-workstations/"><u>[New] In 2024, Omega Series High Definition Full Touch Workstations</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-zoom-launch-your-guide-to-online-chats-for-2024/"><u>[New] Zoom Launch Your Guide to Online Chats for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-content-creation-evolution-studio-vs-innovative-beta-for-2024/"><u>[Updated] Content Creation Evolution Studio Vs. Innovative Beta for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-creative-cuts-unlocking-tiktoks-potential/"><u>[Updated] In 2024, Creative Cuts Unlocking TikTok's Potential</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-ultimate-vr-selection-top-8-must-have-titles-for-2024/"><u>[Updated] Ultimate VR Selection Top 8 Must-Have Titles for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-visual-virtue-essential-resources-for-adding-frames-to-images-for-2024/"><u>[Updated] Visual Virtue Essential Resources for Adding Frames to Images for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-jovial-graphics-via-adobe-tools/"><u>2024 Approved Jovial Graphics via Adobe Tools</u></a></li>
-<li><a href="https://win-deluxe.techidaily.com/effective-pny-sd-card-restoration-techniques-a-complete-guide-to-finding-and-recovering-deleted-items/"><u>Effective PNY SD Card Restoration Techniques: A Complete Guide to Finding and Recovering Deleted Items</u></a></li>
-<li><a href="https://win-marvelous.techidaily.com/guide-complet-comment-retrouver-vos-images-perduses-dans-google-photos/"><u>Guide Complet: Comment Retrouver Vos Images Perduses Dans Google Photos</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-change-location-on-tiktok-to-see-more-content-on-your-poco-m6-5g-drfone-by-drfone-virtual-android/"><u>How to Change Location on TikTok to See More Content On your Poco M6 5G | Dr.fone</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-revolutionize-streaming-top-converters-transform-4k-content/"><u>In 2024, Revolutionize Streaming Top Converters Transform 4K Content</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-key-strategies-for-elevating-content-exposure-on-fb/"><u>The Key Strategies for Elevating Content Exposure on FB</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-the-masterpiece-yakuza-like-a-dragon-review-essential-rpg-gaming-must-have/"><u>Unveiling the Masterpiece: Yakuza: Like a Dragon Review - Essential RPG Gaming Must-Have</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-journeys-best-tools-top-10-vr-peripherals-guide/"><u>[New] 2024 Approved Journey's Best Tools Top 10 VR Peripherals Guide</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-reviving-memories-with-instagram-reposts/"><u>[New] 2024 Approved Reviving Memories with Instagram Reposts</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-crafting-engaging-youtube-video-layouts/"><u>[New] In 2024, Crafting Engaging YouTube Video Layouts</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-olympic-spirits-2022s-short-track-feat/"><u>[New] In 2024, Olympic Spirits 2022'S Short-Track Feat</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-opening-lines-breaking-the-ice-in-video-comments/"><u>[New] Opening Lines Breaking the Ice in Video Comments</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-what-everyone-needs-to-know-about-asmr-videos/"><u>[Updated] 2024 Approved What Everyone Needs to Know About ASMR Videos</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-crafting-the-perfect-chat-sound-downloading-and-customizing-whatsapp-ringtones-for-2024/"><u>[Updated] Crafting the Perfect Chat Sound Downloading & Customizing WhatsApp Ringtones for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-a-rundown-top-8-exceptional-free-online-translation-platforms/"><u>[Updated] In 2024, A Rundown Top 8 Exceptional Free Online Translation Platforms</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/benq-bl2711u-reviewed-the-apex-of-27-high-definition-monitoring-technology-for-2024/"><u>BenQ BL2711U Reviewed - The Apex of 27” High-Definition Monitoring Technology for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/breaking-through-the-barrier-of-ms-store-access/"><u>Breaking Through the Barrier of MS Store Access</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/expert-insights-on-powerdirector-24-review-for-2024/"><u>Expert Insights on PowerDirector '24 Review for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-call-logs-from-honor-play-8t-by-fonelab-android-recover-call-logs/"><u>How To Restore Missing Call Logs from Honor Play 8T</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/in-2024-scalable-techniques-for-vimeo-broadcasting/"><u>In 2024, Scalable Techniques for Vimeo Broadcasting</u></a></li>
+<li><a href="https://driver-error.techidaily.com/win11-kernel-glitch-bsod-resolution-for-irql/"><u>Win11 Kernel Glitch: BSOD Resolution for Irql</u></a></li>
 </ul></div>
 

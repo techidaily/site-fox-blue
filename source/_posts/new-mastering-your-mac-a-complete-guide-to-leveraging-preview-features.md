@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Mastering Your Mac  A Complete Guide to Leveraging Preview Features\""
-date: 2024-10-23T18:15:16.251Z
-updated: 2024-10-30T18:23:12.978Z
+date: 2024-11-04T09:43:30.380Z
+updated: 2024-11-04T20:42:00.728Z
 tags: 
   - screen-recording
   - ai video
@@ -41,6 +41,13 @@ Being the default image editor for Mac, Apple tried to make the **Preview app** 
 
 The instructions given in the following sections explain how to edit pictures with the **Preview app for Mac**:
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2145009/26400" target="_top" id="2145009">
+  <img src="//a.impactradius-go.com/display-ad/26400-2145009" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2145009/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How to View and Edit Photos in Preview on Mac
 
 As mentioned earlier, the **Preview app** is a default photo viewer on Mac that also has many editing tools. Therefore:
@@ -54,13 +61,6 @@ As mentioned earlier, the **Preview app** is a default photo viewer on Mac that 
 
 * Use the tools present on the standard toolbar at the top of the interface
 * Alternatively, click **Tools** from the top, and choose your preferred editing option from the menu
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### How to Show Markup Tools in Preview on Mac
 
@@ -77,16 +77,10 @@ Click the **Hide Markup Tools** icon from the upper-right area to hide **Markup 
 **Note:** Throughout this demonstration, the **Markup Toolbar** is kept visible to access the editing tools easily.
 
 <!-- affiliate ads begin -->
-<span id="1977006">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2087485/7443" target="_top" id="2087485">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087485" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087485/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### How to Crop in Preview
@@ -133,13 +127,6 @@ Click inside the frame, delete the existing placeholder text, and type a new cap
 
 Select the text, click the **Text Style** icon from the **Markup Toolbar**, and change font, size, color, etc. using the available options.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052062/7443" target="_top" id="2052062">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052062" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052062/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### How to Remove Background in Preview
 
 As it is with some of the advanced image manipulation programs, even the **Preview app** allows you to remove background from a photo, and that too pretty easily. To get this done:
@@ -171,6 +158,13 @@ Ensure that Preview opens with both the images listed in the sidebar in the left
 **Step 3: Combine the Images**
 
 After removing the background, press **Command** \+ **A** to select all the remaining elements, and then press **Command** \+ **C** to copy them. Next, select the second photo from the sidebar, and press **Command** \+ **V** to paste the object to combine the pictures. Additionally, you can drag the pasted object or move its side handles to reposition or resize it respectively.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### How to Save Images in Different Formats
 
@@ -219,16 +213,10 @@ Choose a destination folder in the **Where** field, select your preferred format
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 <!-- affiliate ads begin -->
-<span id="701707">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Ollie Mattison
@@ -256,22 +244,19 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-best-buys-for-your-digital-chime-preferences-in-snapchat/"><u>[New] 2024 Approved Best Buys for Your Digital Chime Preferences in SnapChat</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-briskbounce-momentmirror-tape/"><u>[New] BriskBounce MomentMirror Tape</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-phantom-a-guide-to-backward-video-capture-techniques/"><u>[New] Phantom A Guide to Backward Video Capture Techniques</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-premium-tvs-for-ps5-and-xbox-series-x-gamers-dreams-for-2024/"><u>[New] Premium TVs for PS5 & Xbox Series X Gamers' Dreams for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-quick-path-to-virtual-self-building-metaverse-profiles/"><u>[New] Quick Path to Virtual Self Building Metaverse Profiles</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-srt-transition-the-ultimate-subcap-guide/"><u>[Updated] 2024 Approved SRT Transition The Ultimate SUBCAP Guide</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-skincare-and-sensational-looks-for-2024/"><u>[Updated] Skincare and Sensational Looks for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/2024-approved-ideal-ios-options-the-finest-selector-of-emulators-for-playing-psp-games/"><u>2024 Approved Ideal iOS Options The Finest Selector of Emulators for Playing PSP Games</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-step-by-step-fixes-for-youtube-short-failures/"><u>2024 Approved Step-by-Step Fixes for YouTube Short Failures</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/re-the-leading-youtube-to-webm-video-conversion-tools/"><u>Explore the Leading YouTube-to-WebM Video Conversion Tools</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-boost-engagement-advanced-youtube-tag-strategies-revealed/"><u>In 2024, Boost Engagement Advanced YouTube Tag Strategies Revealed</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-cataloging-tiktok-scenes-as-backgrounds/"><u>In 2024, Cataloging TikTok Scenes as Backgrounds</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-poco-m6-pro-4g-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some Pro Tips for Pokemon Go PvP Battles On Poco M6 Pro 4G | Dr.fone</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-pictorial-humor-ranking-10-memes-by-creativity/"><u>In 2024, Pictorial Humor Ranking #10 Memes by Creativity</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/masterminds-ultimate-gk-quiz-channel-showdowns-2024-edition/"><u>Masterminds' Ultimate GK Quiz Channel Showdowns, 2024 Edition</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/navigating-the-google-podcast-submission-guide/"><u>Navigating the Google Podcast Submission Guide</u></a></li>
-<li><a href="https://howto.techidaily.com/simple-solutions-to-fix-android-systemui-has-stopped-error-for-samsung-galaxy-a23-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Simple Solutions to Fix Android SystemUI Has Stopped Error For Samsung Galaxy A23 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-your-complimentary-access-to-50-premium-youtube-banners/"><u>[New] 2024 Approved Your Complimentary Access to 50 Premium YouTube Banners!</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-5-best-toy-drones/"><u>[New] 5 Best Toy Drones</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-premier-pdf-enhancements/"><u>[New] In 2024, Premier PDF Enhancements</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-top-5-high-quality-low-speed-video-gear/"><u>[New] In 2024, Top 5 High-Quality Low-Speed Video Gear</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-essential-photography-tricks-for-ios-11-users-for-2024/"><u>[Updated] Essential Photography Tricks for iOS 11 Users for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-mastering-screen-sharing-on-skype-for-remote-collaboration-for-2024/"><u>[Updated] Mastering Screen Sharing on Skype for Remote Collaboration for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-rewind-ritual-making-playlists-run-opposite-to-current/"><u>[Updated] The Rewind Ritual Making Playlists Run Opposite to Current</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-top-tier-tech-a-comparison-of-the-best-9-microphone-apps-for-2024/"><u>[Updated] Top-Tier Tech A Comparison of the Best 9 Microphone Apps for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-whip-up-a-fresh-web-comedic-bite-sized-delight-for-2024/"><u>[Updated] Whip Up a Fresh Web Comedic Bite-Sized Delight for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/accelerating-your-macbook-air-or-pro-post-ventura-update-a-step-by-step-guide/"><u>Accelerating Your MacBook Air or Pro Post-Ventura Update: A Step-by-Step Guide</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-can-you-afford-to-exclude-itop-from-your-setup/"><u>In 2024, Can You Afford to Exclude ITop From Your Setup?</u></a></li>
+<li><a href="https://discover-forum.techidaily.com/seamlessly-sharing-photos-between-iphones-and-ipads-transforming-heics-into-jpg-files-with-airdrop/"><u>Seamlessly Sharing Photos Between iPhones and iPads: Transforming HEICs Into JPG Files with AirDrop</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/sustained-soundwaves-a-list-of-tiktok-tracks-that-stick/"><u>Sustained Soundwaves A List of TikTok Tracks that Stick</u></a></li>
+<li><a href="https://media-tips.techidaily.com/the-comprehensive-breakdown-of-xavc-technology-why-it-matters-for-prosumers-and-enthusiasts/"><u>The Comprehensive Breakdown of XAVC Technology – Why It Matters for Prosumers and Enthusiasts</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Unraveling the Secrets of Exceptional Green Screen Filming"
-date: 2024-09-09T08:17:38.982Z
-updated: 2024-09-10T08:17:38.982Z
+date: 2024-11-01T16:00:30.654Z
+updated: 2024-11-05T02:42:31.062Z
 tags: 
   - screen-recording
   - ai video
@@ -16,12 +16,6 @@ keywords: "GreenScreenFilmingSecrets,ExcellentGreenKeyingTips,GreenScreenCinemaT
 thumbnail: https://thmb.techidaily.com/589975317cd54578e2464cf37ff9c3436a24bffda2b797c9a9ae1ed0b5abaff9.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134234/18498" target="_top" id="2134234">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134234" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134234/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Unraveling the Secrets of Exceptional Green Screen Filming
 
 # How to Shoot a Green Screen Video
@@ -42,32 +36,8 @@ If you are wondering how to compositing the shot green screen video with your ma
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<span id="1993645">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Related:**[Resources for green screen effects](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<span id="1977028">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 5 Tips for shooting better green screen video
 
 We’ve figured out some useful green screen tricks, have fun and hope you’ll be more creative with the help of Filmora green screen video compositing software.
@@ -90,12 +60,6 @@ Check out our picks of [the best lighting equipment for shooting videos](https:/
 
 ![Camera tips in shooting a Green Screen Video](https://images.wondershare.com/images/multimedia/video-editor/green-screen-mistake-6.png)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 When lighting your key surface, make sure the bounce light is not directed at the camera (as shown in the image above). For example, if your camera faces the key surface directly, set your lights at 45 degree angles to the key surface. This will ensure that the bounce light bounces toward the other light and not at the camera.
 
 Also choose carefully the camera as some cameras are better to shoot green screen video, especially if you are shooting something with a bit of movement. Then shoot your video as HD quality video (720p or higher) and save in a format your green screen software can import.
@@ -120,12 +84,6 @@ Wrinkles in your screen can actually lead to heavy shadows and distorted image q
 
 ![Motion blur problem in shooting a Green Screen Video](https://images.wondershare.com/images/multimedia/video-editor/green-screen-mistake-4.png)
 
-<!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123901/26106" target="_top" id="2123901">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123901" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123901/26106" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 If you are planning on shooting a high action scene in front of a green screen with a camera that only has lower shutter speeds, you can run into real problems. When using a camera with a lower shutter speed consider doing action shots in slow motion or getting subjects to not make any sudden movements in front of the green screen. Motion blur from someone moving rapidly on camera in front of a green screen can really ruin the scene and ruin the realism of the scene. Alternately you could also consider renting a high shutter speed camera to avoid this motion blur if you do plan on shooting a lot of action scenes. Ultimately this is something that you will need to test for yourself before shooting a green screen video, so that you can get a feel for how much action your camera can handle with a green screen without motion blur.
 
 Wanna adding a fake camera shake effect to your video? Check our tips of [How to creating camera shake effects in your video](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -136,12 +94,6 @@ Besides compositing chroma keying videos in Filmora, you can also[stabilize your
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 Liza Brown
@@ -167,4 +119,28 @@ Follow @Liza Brown
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-ceased-shorts-missing-on-youtube-screen/"><u>[New] 2024 Approved Ceased Shorts Missing on YouTube Screen</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-essential-srt-knowledge-for-all-levels/"><u>[New] 2024 Approved Essential SRT Knowledge for All Levels</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-the-ultimate-shortcut-to-achieving-unique-vocal-flair-in-pubg/"><u>[New] 2024 Approved The Ultimate Shortcut to Achieving Unique Vocal Flair in PUBG</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-optimize-game-console-audio-settings-on-sony-platforms/"><u>[New] In 2024, Optimize Game Console Audio Settings on Sony Platforms</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/nfallible-way-to-forbid-youtubes-snappy-videos/"><u>[New] Infallible Way to Forbid YouTube's Snappy Videos</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-strategies-for-creating-hit-memes/"><u>[Updated] Strategies for Creating Hit Memes</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-swift-solution-mastering-the-art-of-image-to-thumbnail-transformation/"><u>[Updated] Swift Solution Mastering the Art of Image-To-Thumbnail Transformation</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-the-art-of-low-volume-playback-system-guide-for-2024/"><u>[Updated] The Art of Low-Volume Playback System Guide for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024s-elite-line-up-of-netgear-routers-a-consumers-guide/"><u>2024'S Elite Line-Up of Netgear Routers - A Consumer's Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/buzzword-breakdown-a-comprehensive-list-of-30-must-know-abbreviations-for-users/"><u>Buzzword Breakdown: A Comprehensive List of 30 Must-Know Abbreviations for Users</u></a></li>
+<li><a href="https://media-tips.techidaily.com/deciding-between-h264-and-h265-comprehensive-analysis-of-video-codecs-for-enhanced-quality/"><u>Deciding Between H.2ˈ64 and H.2ˈ65: Comprehensive Analysis of Video Codecs for Enhanced Quality</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/discover-the-power-of-mycam-recording-features/"><u>Discover the Power of MyCam Recording Features</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/elevate-your-recordings-doing-without-a-microphone/"><u>Elevate Your Recordings Doing Without a Microphone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/secrets-to-sustaining-high-view-count-in-youtube-videos/"><u>Secrets to Sustaining High View Count in YouTube Videos</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037350/7443" target="_top" id="2037350">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037350" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037350/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

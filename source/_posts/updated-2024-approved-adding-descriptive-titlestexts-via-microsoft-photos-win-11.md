@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Adding Descriptive Titles/Texts via Microsoft Photos Win 11\""
-date: 2024-10-26T17:38:19.304Z
-updated: 2024-10-30T16:06:54.028Z
+date: 2024-10-29T18:04:06.679Z
+updated: 2024-11-05T03:59:16.200Z
 tags: 
   - screen-recording
   - ai video
@@ -56,6 +56,13 @@ Do you wish to add titles/text to video on Photos in Windows 10 for your video p
 * Select the best-animated text fonts to suit the background. There are different layouts for each of the font style. Preview the animation by using Playback Control. If the text is not animating, you may try to increase the duration to 3-4 seconds that works well
 * For addition of credits, try to use the Classic text style. Put each of the credits in a new line and do give credits to yourself as well
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135358/19272" target="_top" id="2135358">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135358" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135358/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How to Make Text Move in Windows 10 Photos App
 
 The Photos app in Windows 10 is even easier than the old Windows Movie Maker. You do not need a sharp learning curve for using this app and any beginner can use it with ease and comfort. The Photos app has an anchoring system along with the text tool that makes the text move with the video images. Here’s how you can make the text move in Windows 10 Photos app-
@@ -68,10 +75,10 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/effects-photos.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938698/19272" target="_top" id="1938698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * Some of the effects might not have the option to move or anchor but if you choose the one that does allow moving of texts, you get an option to attach once you select it
@@ -80,25 +87,18 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/attach-effects-photos-min.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * To increase or decrease the length of animation time, adjust the slider
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/edit-text-photos.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144288/7443" target="_top" id="2144288">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144288" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144288/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * Start experiment by rotating the wheels, dragging the handles to resize, and anchoring for linking up the animation at different points within the video
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975802/19272" target="_top" id="1975802">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975802" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975802/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -107,10 +107,10 @@ To add titles/text to video on Photos in Windows 10 and to make the text move wi
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100534/7443" target="_top" id="2100534">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100534" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1885928/19272" target="_top" id="1885928">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885928" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100534/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885928/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -138,24 +138,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/new-in-2024-exclusive-selection-of-elite-race-games/"><u>[New] In 2024, Exclusive Selection of Elite Race Games</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-the-most-upvoted-reddit-post-of-all-time-a-list-of-10/"><u>[Updated] 2024 Approved The Most Upvoted Reddit Post of All Time - (A List of 10)</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-a6400-video-display-issues-troubleshooting-tips/"><u>[Updated] A6400 Video Display Issues Troubleshooting Tips</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-enveloped-by-shadow-adobe-technique/"><u>[Updated] Enveloped by Shadow Adobe Technique</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-essential-virtual-reality-cinema-experiences-for-2024/"><u>[Updated] Essential Virtual Reality Cinema Experiences for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-nighttime-iphone-photography-secrets-revealed/"><u>[Updated] In 2024, Nighttime iPhone Photography Secrets Revealed</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-seconds-spent-watching-a-20mb-video/"><u>[Updated] In 2024, Seconds Spent Watching a 20MB Video</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-unraveling-the-packaging-a-marketing-approach/"><u>[Updated] In 2024, Unraveling the Packaging A Marketing Approach</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-tactics-for-pinpointing-ideal-podcast-debut-days/"><u>[Updated] Tactics for Pinpointing Ideal Podcast Debut Days</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-the-80s-revivalists-handbook-for-dynamic-editing-techniques/"><u>[Updated] The 80S Revivalist's Handbook for Dynamic Editing Techniques</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-vintage-visionary-old-iphone-xx-portraiture-for-2024/"><u>[Updated] Vintage Visionary Old iPhone Xx Portraiture for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/best-3-software-to-transfer-files-tofrom-your-motorola-moto-g24-via-a-usb-cable-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Best 3 Software to Transfer Files to/from Your Motorola Moto G24 via a USB Cable | Dr.fone</u></a></li>
-<li><a href="https://win-exceptional.techidaily.com/easy-steps-for-creating-a-rescuezilla-copy-on-a-reduced-capacity-drive-your-ultimate-diy-guide/"><u>Easy Steps for Creating a RescueZilla Copy on a Reduced Capacity Drive: Your Ultimate DIY Guide</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/foremost-internet-based-programming-lessons-and-workshops/"><u>Foremost Internet-Based Programming Lessons & Workshops</u></a></li>
-<li><a href="https://driver-download.techidaily.com/1722974828732-free-downloads-get-your-startech-usb-vga-graphics-adapter-drivers-now/"><u>Free Downloads: Get Your StarTech USB VGA Graphics Adapter Drivers Now!</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/guide-to-mirror-your-motorola-moto-g24-to-other-android-devices-drfone-by-drfone-android/"><u>Guide to Mirror Your Motorola Moto G24 to Other Android devices | Dr.fone</u></a></li>
-<li><a href="https://win-answers.techidaily.com/how-to-eliminate-lag-problems-in-fortnite-a-comprehensive-guide/"><u>How to Eliminate Lag Problems in Fortnite - A Comprehensive Guide</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-disabled-iphone-14-plusipad-without-computer-by-drfone-ios/"><u>In 2024, How to Unlock Disabled iPhone 14 Plus/iPad Without Computer</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/the-complete-guide-to-tecno-spark-go-2023-frp-bypass-everything-you-need-to-know-by-drfone-android/"><u>The Complete Guide to Tecno Spark Go (2023) FRP Bypass Everything You Need to Know</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-beyond-one-viewpoint-the-ultimate-review-of-best-11-bridge-cams/"><u>[New] Beyond One Viewpoint The Ultimate Review of Best 11 Bridge Cams</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-explore-15-essential-skills-for-recording-digital-music-for-2024/"><u>[Updated] Explore 15 Essential Skills for Recording Digital Music for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-unbeatable-online-and-desktop-gif-maker-options/"><u>[Updated] In 2024, Unbeatable Online & Desktop GIF Maker Options</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-the-ultimate-countdown-best-zombie-games-ranked/"><u>2024 Approved The Ultimate Countdown Best Zombie Games Ranked</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/enthralling-e-artistry-ai-creations-by-gpt-insights/"><u>Enthralling E-Artistry: AI Creations by GPT Insights</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/fine-tuning-focus-the-ultimate-guide-to-zooming-in-on-videoleap-for-2024/"><u>Fine-Tuning Focus The Ultimate Guide to Zooming in on Videoleap for 2024</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-can-you-unlock-iphone-8-plus-after-forgetting-the-passcode-drfone-by-drfone-ios/"><u>In 2024, Can You Unlock iPhone 8 Plus After Forgetting the Passcode? | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/leading-small-drones-2021-a-buyers-guide/"><u>Leading Small Drones 2021 A Buyer's Guide</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/modify-your-kindle-paperwhites-system-time-detailed-instructions-included/"><u>Modify Your Kindle Paperwhite's System Time - Detailed Instructions Included</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/erity-through-streaming-a-youtube-money-blueprint/"><u>Prosperity Through Streaming A YouTube Money Blueprint</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/score-the-best-9-websites-providing-exquisite-3d-graffiti-fonts/"><u>Score the Best 9 Websites Providing Exquisite 3D Graffiti Fonts</u></a></li>
+<li><a href="https://article-tips.techidaily.com/storyboard-pro-for-win8-for-2024/"><u>StoryBoard Pro for Win8 for 2024</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/ultra-hd-video-troubleshooting-guide-solve-playback-problems-for-5k-4k-and-8k-content/"><u>Ultra HD Video Troubleshooting Guide – Solve Playback Problems for 5K, 4K and 8K Content</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/unveiling-the-ultimate-editor-sets-for-macos-sierra-users/"><u>Unveiling the Ultimate Editor Sets for macOS Sierra Users</u></a></li>
 </ul></div>
 

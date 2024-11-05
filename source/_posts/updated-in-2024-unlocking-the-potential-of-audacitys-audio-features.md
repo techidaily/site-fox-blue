@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Unlocking the Potential of Audacity's Audio Features"
-date: 2024-10-24T18:50:29.988Z
-updated: 2024-10-30T17:01:19.157Z
+date: 2024-11-02T23:38:22.698Z
+updated: 2024-11-05T00:43:18.649Z
 tags: 
   - screen-recording
   - ai video
@@ -42,16 +42,10 @@ Step3To choose the kind of track you want, click "Tracks" at the top of the page
 Step4To begin the recording, simply click the "Record" button. As soon as you press record, an audio graph of your voice should start to display. Using the "Shift + R" hotkeys on your keyboard, you can add a new recording if you'd like to.
 
 <!-- affiliate ads begin -->
-<span id="1834903">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 2\. Recording using Mac
@@ -67,10 +61,10 @@ Step3In the "Device" section of the Audacity preferences box, choose "Soundflowe
 Step4Launch audacity, then open the app whose audio you wish to record. To begin the recording, click the "Record" button.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105873/7443" target="_top" id="2105873">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105873" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902304/19272" target="_top" id="1902304">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902304" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902304/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 3\. Export your audio
@@ -121,24 +115,24 @@ Simply select the necessary file format from the drop-down box that appears next
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-primeplex-all-in-one-channel-hub-with-homeside-views/"><u>[New] 2024 Approved PrimePlex All-in-One Channel Hub with Homeside Views</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-adding-pictures-to-instagram-with-ease/"><u>[New] In 2024, Adding Pictures to Instagram with Ease</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-ultimate-silent-input-transcription-services/"><u>[New] In 2024, Ultimate Silent Input Transcription Services</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-a-detailed-guidance-how-to-change-or-customize-your-ringtone-on-an-iphone-for-2024/"><u>[Updated] A Detailed Guidance How To Change Or Customize Your Ringtone On An iPhone for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-explore-the-best-ios-camera-enhancing-apps-all-at-no-cost-for-2024/"><u>[Updated] Explore the Best iOS Camera Enhancing Apps - All at No Cost for 2024</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-gameplay-revolution-elevating-ram-usage-for-minecraft/"><u>[Updated] Gameplay Revolution Elevating Ram Usage for Minecraft</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-hefty-helpers-airborne-lifting-titans-unveiled/"><u>[Updated] Hefty Helpers Airborne Lifting Titans Unveiled</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-subtle-shadows-perfectly-blurred-iphone-photos-explained/"><u>[Updated] In 2024, Subtle Shadows Perfectly Blurred iPhone Photos Explained</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-top-8-easy-to-use-subtitle-converters-from-sub-to-compliant-srt-format-in-seconds/"><u>[Updated] In 2024, Top 8 Easy-to-Use Subtitle Converters From SUB to Compliant SRT Format in Seconds</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-podcast-basics-crafting-your-first-rss-feed/"><u>[Updated] Podcast Basics Crafting Your First RSS Feed</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-ultimate-set-of-free-photo-screen-shifts-for-2024/"><u>[Updated] Ultimate Set of Free Photo Screen Shifts for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-zero-cost-green-screens-for-professionals-for-2024/"><u>[Updated] Zero-Cost Green Screens for Professionals for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/2024-approved-best-instagram-highlights-covers-apps/"><u>2024 Approved Best Instagram Highlights Covers Apps</u></a></li>
-<li><a href="https://techtrends.techidaily.com/best-no-fee-html-design-software-for-pc-a-guide-to-8-options/"><u>Best No-Fee HTML Design Software for PC: A Guide to 8 Options</u></a></li>
-<li><a href="https://win-updates.techidaily.com/effortlessly-bring-back-your-alienware-machine-using-windows-n-update-procedure/"><u>Effortlessly Bring Back Your Alienware Machine Using Windows N Update Procedure</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-sign-dotm-file-by-digital-signature-by-ldigisigner-sign-a-word-sign-a-word/"><u>How to sign .dotm file by digital signature</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/how-to-update-atheros-wifi-drivers-in-windows-11/"><u>How to Update Atheros Wifi Drivers In Windows 11</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-the-seamless-transition-of-tweeted-vids-to-snappy-ends/"><u>In 2024, The Seamless Transition of Tweeted Vids to Snappy Ends</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-unlocking-creativity-free-animation-techniques/"><u>In 2024, Unlocking Creativity Free Animation Techniques</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-iphone-hdr-excellence-comprehensive-tutorial-for-2024/"><u>[New] IPhone HDR Excellence Comprehensive Tutorial for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-meme-creation-at-its-peak-10-templates-unveiled/"><u>[New] Meme Creation at Its Peak #10 Templates Unveiled</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-enhancing-video-reach-tactics-against-bot-visitors/"><u>[Updated] 2024 Approved Enhancing Video Reach Tactics Against Bot Visitors</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-boosting-engagement-on-youtube-edit-update-and-enhance-metadata-for-2024/"><u>[Updated] Boosting Engagement on YouTube Edit, Update & Enhance Metadata for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-expert-tips-for-enhanced-kinemaster-frame-focus-for-2024/"><u>[Updated] Expert Tips for Enhanced Kinemaster Frame Focus for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-mapping-instagrams-unfollowers-landscape/"><u>[Updated] Mapping Instagram's Unfollowers Landscape</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-novice-path-to-prosperity-making-money-on-periscope/"><u>[Updated] Novice Path to Prosperity Making Money on Periscope</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-skin-the-subject-eradicate-bg-in-affinity/"><u>[Updated] Skin the Subject, Eradicate Bg in Affinity</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-step-by-step-guide-for-top-picture-editor-for-2024/"><u>[Updated] Step-by-Step Guide for Top Picture Editor for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-laugh-out-loud-select-funny-photo-enhancers-online/"><u>2024 Approved Laugh Out Loud Select Funny Photo Enhancers Online</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-under-200-cameras-with-action-potential-at-your-fingertips/"><u>2024 Approved Under $200 Cameras with Action Potential at Your Fingertips</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/cod-vanguard-guide-overcoming-voice-chat-connectivity-problems-successfully/"><u>COD: Vanguard Guide – Overcoming Voice Chat Connectivity Problems Successfully</u></a></li>
+<li><a href="https://win-news.techidaily.com/come-recuperare-il-tuo-windows-server-da-un-file-di-restaurazione/"><u>Come Recuperare Il Tuo Windows Server Da Un File Di Restaurazione?</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/finding-the-ideal-present-when-in-doubt-discover-smart-solutions-with-insights/"><u>Finding the Ideal Present When in Doubt? Discover Smart Solutions with Insights</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-step-by-step-approach-to-saving-instagram-stories/"><u>In 2024, Step-by-Step Approach to Saving Instagram Stories</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-the-ultimate-guide-to-elegant-sound-reduction-on-lumafusion/"><u>In 2024, The Ultimate Guide to Elegant Sound Reduction on Lumafusion</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/mastering-adobe-easy-hue-transformations-for-2024/"><u>Mastering Adobe Easy Hue Transformations for 2024</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/smooth-mp4-video-creation-from-screenshots-advanced-recording-tool-for-flawless-outputs/"><u>Smooth MP4 Video Creation From Screenshots – Advanced Recording Tool for Flawless Outputs</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/the-comprehensive-guide-to-micromobility-timelines-breaking-stories-rumored-trends-and-in-depth-analysis/"><u>The Comprehensive Guide to Micromobility Timelines: Breaking Stories, Rumored Trends & In-Depth Analysis</u></a></li>
 </ul></div>
 
