@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Thrifty Shopping for Cameras  The Most Economical Lists Under $100\""
-date: 2024-10-31T14:11:10.352Z
-updated: 2024-11-05T09:07:26.442Z
+date: 2024-11-14T16:32:06.128Z
+updated: 2024-11-15T16:59:33.510Z
 tags: 
   - screen-recording
   - ai video
@@ -50,16 +50,10 @@ thumbnail: https://thmb.techidaily.com/ec5c93589cbbf4437a85d01509aad074c0824b7a4
 **Camera Shape, Dimension and Weight:** The action camera is mostly mounted on the photographer’s body during high-speed mobility. Choose a camera with extremely compact design (preferably box shaped) and lightweight model for convenient mounting.
 
 <!-- affiliate ads begin -->
-<span id="1977023">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Top 6 Cheapest Action Cameras to Buy Under $100
@@ -171,10 +165,10 @@ thumbnail: https://thmb.techidaily.com/ec5c93589cbbf4437a85d01509aad074c0824b7a4
 * **Waterproof:** 30m (with case)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105866/7443" target="_top" id="2105866">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105866" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105873/7443" target="_top" id="2105873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105873" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105866/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105873/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -188,10 +182,10 @@ thumbnail: https://thmb.techidaily.com/ec5c93589cbbf4437a85d01509aad074c0824b7a4
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082539/7443" target="_top" id="2082539">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082539" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1938745/19272" target="_top" id="1938745">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938745" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082539/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938745/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Max Wales
@@ -219,19 +213,24 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-how-to-add-motion-blur-to-face-with-picsart-for-2024/"><u>[New] How to Add Motion Blur to Face with Picsart for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-how-to-snip-save-and-share-high-quality-tamil-ringtones-easily-for-2024/"><u>[New] How to Snip, Save and Share High-Quality Tamil Ringtones Easily for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-pinnacle-of-stream-quality-nine-must-try-video-filters/"><u>[Updated] 2024 Approved Pinnacle of Stream Quality Nine Must-Try Video Filters</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-swift-windows-insight-sharing-methods/"><u>[Updated] 2024 Approved Swift Windows Insight Sharing Methods</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-innovative-immersion-a-guide-to-the-leaders/"><u>[Updated] In 2024, Innovative Immersion A Guide to the Leaders</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-sleep-soundly-top-aspers-techniques-unveiled-for-2024/"><u>[Updated] Sleep Soundly Top Asper's Techniques Unveiled for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-superior-mkv-player-pcandroid-experience/"><u>[Updated] Superior MKV Player PC/Android Experience</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/6-proven-ways-to-unlock-infinix-smart-7-phone-when-you-forget-the-password-by-drfone-android/"><u>6 Proven Ways to Unlock Infinix Smart 7 Phone When You Forget the Password</u></a></li>
-<li><a href="https://fake-location.techidaily.com/does-life360-notify-when-you-log-out-on-asus-rog-phone-7-ultimate-drfone-by-drfone-virtual-android/"><u>Does Life360 Notify When You Log Out On Asus ROG Phone 7 Ultimate? | Dr.fone</u></a></li>
-<li><a href="https://win-dash.techidaily.com/enhance-gaming-and-work-experience-by-updating-amd-drivers-in-windows-versions-10-11-and-navigating-to-the-microsoft-store-or-manufacturers-website-for-driv167/"><u>Enhance Gaming and Work Experience by Updating AMD Drivers in Windows Versions (10, 11 & Navigating to the Microsoft Store or Manufacturer's Website for Driver Software.</u></a></li>
-<li><a href="https://change-location.techidaily.com/guide-how-to-unbrick-a-bricked-infinix-note-30-pro-phone-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Guide How To Unbrick a Bricked Infinix Note 30 Pro Phone | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-special-features-virtual-location-on-motorola-edge-40-drfone-by-drfone-virtual-android/"><u>In 2024, How To Use Special Features - Virtual Location On Motorola Edge 40? | Dr.fone</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-depth-analysis-top-15-youtube-channels-for-epic-product-reviews-for-2024/"><u>In-Depth Analysis Top 15 YouTube Channels for Epic Product Reviews for 2024</u></a></li>
-<li><a href="https://win-dash.techidaily.com/trouble-free-guide-to-lenovos-power-control-driver-update/"><u>Trouble-Free Guide to Lenovo's Power Control Driver Update</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-elevate-visuals-no-cost-with-some-color-correction-tools/"><u>[New] Elevate Visuals No Cost with Some Color Correction Tools</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-from-concept-to-completion-the-artisans-guide-to-gifs-for-2024/"><u>[New] From Concept to Completion The Artisan's Guide to GIFs for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-advanced-speed-adjustment-techniques-in-media-editing/"><u>[New] In 2024, Advanced Speed Adjustment Techniques in Media Editing</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-leveraging-hashtags-and-collaborations-for-1k-insta-following/"><u>[New] Leveraging Hashtags & Collaborations for 1K Insta Following</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-turbo-speed-photo-browser-for-windows-10-for-2024/"><u>[New] Turbo Speed Photo Browser for Windows 10 for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-quick-guide-to-crafting-realistic-motion-blur-effect-in-ps/"><u>[Updated] In 2024, Quick Guide to Crafting Realistic Motion Blur Effect in PS</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-innovative-tips-producing-instagram-ready-loop-videos-for-2024/"><u>[Updated] Innovative Tips Producing Instagram-Ready Loop Videos for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/enhancing-system-performance-by-reducing-tiworkerexe-load/"><u>Enhancing System Performance by Reducing TiWorker.exe Load</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fake-gps-on-poco-m6-pro-4g-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>How To Fake GPS On Poco M6 Pro 4G For Mobile Legends? | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-archive-artistry-seamlessly-fuse-infinite-no-charge-cloud-and-premium-subscriptions/"><u>In 2024, Archive Artistry Seamlessly Fuse Infinite, No-Charge Cloud & Premium Subscriptions</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-hustle-smart-listen-hard-top-tasks-for-podcast-enthusiasts/"><u>In 2024, Hustle Smart, Listen Hard Top Tasks for Podcast Enthusiasts</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-mastering-podcast-name-selection-step-by-step-guide-plus-50plus-top-ideas-list/"><u>In 2024, Mastering Podcast Name Selection Step-by-Step Guide + 50+ Top Ideas List</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-pokemon-go-no-gps-signal-heres-every-possible-solution-on-samsung-galaxy-f14-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go No GPS Signal? Heres Every Possible Solution On Samsung Galaxy F14 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-reasons-for-unexpected-cut-off-in-imovie/"><u>In 2024, Reasons for Unexpected Cut-Off in iMovie</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-the-ultimate-vr-journey-best-pc-360-video-streamers-reviewed/"><u>In 2024, The Ultimate VR Journey Best PC 360 Video Streamers Reviewed</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-unlocking-the-power-of-smart-lock-a-beginners-guide-for-poco-f5-5g-users-by-drfone-android/"><u>In 2024, Unlocking the Power of Smart Lock A Beginners Guide for Poco F5 5G Users</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/podcasts-vs-youtube-which-one-is-the-right-choice-in-2024/"><u>Podcasts Vs. YouTube Which One Is the Right Choice, In 2024</u></a></li>
+<li><a href="https://win-lab.techidaily.com/simple-guide-to-setting-up-glacier-backups-on-your-synology-router/"><u>Simple Guide to Setting Up Glacier Backups on Your Synology Router</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-in-2024-avi-video-editing-essentials-top-t/"><u>Updated In 2024, AVI Video Editing Essentials Top T</u></a></li>
 </ul></div>
 

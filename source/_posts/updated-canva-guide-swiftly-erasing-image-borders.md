@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Canva Guide  Swiftly Erasing Image Borders\""
-date: 2024-11-03T11:22:43.581Z
-updated: 2024-11-05T02:58:18.716Z
+date: 2024-11-13T18:41:32.984Z
+updated: 2024-11-15T16:00:39.125Z
 tags: 
   - screen-recording
   - ai video
@@ -57,6 +57,13 @@ Step4 From the left side menu, click **"Background Remover."** Wait for the back
 
 Once the background is disappeared, click **"Apply"** to save your changes.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
+  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### On Mobile
 
 The following steps will help you remove the image's background in Canva using its mobile app. The steps for iOS and Android systems are similar, and here we use an Android telephone as an example:
@@ -71,7 +78,21 @@ Step3 Next, tap the **"Effects"** option from the menu below and select **"BG Re
 
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
+  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Note:** The **"Background Remover"** is available only in the premium version, letting you remove BG from up to 500 images daily.
+
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1166360/14483" target="_top" id="1166360">
+  <img src="//a.impactradius-go.com/display-ad/14483-1166360" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1166360/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Facilitate Functions Of Removing Image's Background More Accurately
 
@@ -82,10 +103,10 @@ Canva's Erase and Restore function makes it easy to remove image backgrounds. [W
 ![erase and restore options in canva](https://images.wondershare.com/filmora/article-images/2023/03/erase-and-restore-options-in-canva.png)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### To erase an element from an image
@@ -95,13 +116,6 @@ Step1 Select the **Erase** brush from the left panel under the **Background Remo
 Step2 Adjust the size of the **erase tool** to fit the element you want to remove.
 
 Step3 Select the **element** you want to remove.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### To undo an erase
 
@@ -113,37 +127,11 @@ Step2 Click on the **area** you want to restore.
 
 **Note:** These tools are only available in the Canva web and desktop version.
 
-<!-- affiliate ads begin -->
-<span id="1983575">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## The Best Alternative Of Canva To Remove Images' Backgrounds
 
 Since Canva offers the "Background Remover" tool only in the premium version, you might want to use the best free alternative to Canva to help remove an image's Background. Therefore, [Wondershare Pixcut](https://pixcut.wondershare.com/) may be a good option for you.
 
 This online tool offers several advantages over similar devices, including a user-friendly interface, a wide range of editing options, and the ability to save edited images in up to 2000\*1502p quality.
-
-<!-- affiliate ads begin -->
-<span id="1983553">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Why Is PixCut The Best Option?
 
@@ -184,17 +172,10 @@ Step2 Let the tool process your image, and the background will be removed instan
 ![remove an image background in pixcut](https://images.wondershare.com/filmora/article-images/2023/03/remove-an-image-background-in-pixcut.png)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2141683/17092" target="_top" id="2141683">
-  <img src="//a.impactradius-go.com/display-ad/17092-2141683" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1972665/19272" target="_top" id="1972665">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972665" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141683/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148772/18498" target="_top" id="2148772">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148772" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148772/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972665/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -205,6 +186,13 @@ In the end, we've recommended PixCut as the best alternative to Canva for removi
 
 Hopefully, you've found this article helpful and can now optimize your images in any way you like!
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Facilitate Functions Of Removing Image's Background More Accurately
 
 Follwing the above guidance, you can remove the image's background with Canva with ease. However, there are two must-see functions in Canva which facilitate the accuracy of background removal.
@@ -213,13 +201,6 @@ Canva's Erase and Restore function makes it easy to remove image backgrounds. [W
 
 ![erase and restore options in canva](https://images.wondershare.com/filmora/article-images/2023/03/erase-and-restore-options-in-canva.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151882/7443" target="_top" id="2151882">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151882" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151882/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### To erase an element from an image
 
 Step1 Select the **Erase** brush from the left panel under the **Background Remover** option
@@ -227,6 +208,13 @@ Step1 Select the **Erase** brush from the left panel under the **Background Remo
 Step2 Adjust the size of the **erase tool** to fit the element you want to remove.
 
 Step3 Select the **element** you want to remove.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148771/18498" target="_top" id="2148771">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148771" border="0" alt="https://techidaily.com" width="350" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148771/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### To undo an erase
 
@@ -283,10 +271,10 @@ Step2 Let the tool process your image, and the background will be removed instan
 ![remove an image background in pixcut](https://images.wondershare.com/filmora/article-images/2023/03/remove-an-image-background-in-pixcut.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1883998/19272" target="_top" id="1883998">
+  <img src="//a.impactradius-go.com/display-ad/19272-1883998" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1883998/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -321,14 +309,20 @@ Hopefully, you've found this article helpful and can now optimize your images in
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-full-exploration-of-googles-voice-to-text-speech-recognition-tool-for-2024/"><u>[New] Full Exploration of Google's Voice-to-Text Speech Recognition Tool for 2024</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-in-2024-restore-windows-photo-viewer-efficiency-on-windows-10-pcs/"><u>[New] In 2024, Restore Windows Photo Viewer Efficiency on Windows 10 PCs</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-snap-it-all-navigating-the-world-of-free-tiktok-bgs/"><u>[Updated] In 2024, Snap It All Navigating the World of Free TikTok BGs</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-pixels-of-laughter-mobile-apps-transform-images-for-2024/"><u>[Updated] Pixels of Laughter Mobile Apps Transform Images for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-top-online-sources-for-high-quality-vector-illustrations/"><u>[Updated] Top Online Sources for High-Quality Vector Illustrations</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/1722978829900-get-free-steelseries-drivers-for-arctis-5-headsets-now/"><u>Get Free SteelSeries Drivers for Arctis 5 Headsets Now</u></a></li>
-<li><a href="https://ios-location-track.techidaily.com/in-2024-best-anti-tracker-software-for-apple-iphone-12-mini-drfone-by-drfone-virtual-ios/"><u>In 2024, Best Anti Tracker Software For Apple iPhone 12 mini | Dr.fone</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-unleash-clarity-efficient-background-erasure-in-affinity-photo/"><u>In 2024, Unleash Clarity Efficient Background Erasure in Affinity Photo</u></a></li>
-<li><a href="https://win-data.techidaily.com/recuperation-des-fichiers-dimages-egares-dans-windows-11-ou-10-guide-de-solution/"><u>Recupération Des Fichiers D'Images Égarés Dans Windows 11 Ou 10 : Guide De Solution</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-becoming-an-animoji-expert-on-your-iphone-x-device/"><u>[New] 2024 Approved Becoming an Animoji Expert on Your iPhone X Device</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-igniting-interest-and-inviting-in-accelerating-audience-acquisition/"><u>[New] In 2024, Igniting Interest and Inviting In Accelerating Audience Acquisition</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-mint-magic-in-depth-analysis-and-instructions-for-ice-cream-cam/"><u>[New] In 2024, Mint Magic In-Depth Analysis & Instructions for Ice Cream Cam</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-missing-link-prime-free-speech-to-text-on-macos-for-2024/"><u>[New] Missing Link Prime Free Speech to Text on macOS for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-navigating-through-the-top-8-blended-mobile-video-collage-choices-on-android-for-2024/"><u>[New] Navigating Through the Top 8 Blended Mobile Video Collage Choices on Android for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-experience-realities-unveiled-vr-tour-essentials/"><u>[Updated] 2024 Approved Experience Realities Unveiled VR Tour Essentials</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-mastering-windows-graphics-the-top-9-tools-for-capturing-animation-gifs/"><u>[Updated] In 2024, Mastering Windows Graphics The Top 9 Tools for Capturing Animation GIFs</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-mastering-filming-techniques-on-tiktok-platforms/"><u>[Updated] Mastering Filming Techniques on TikTok Platforms</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/can-i-recover-my-data-if-my-iphone-6s-plus-screen-turns-black-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>Can I recover my data if my iPhone 6s Plus screen turns black? | Stellar</u></a></li>
+<li><a href="https://program-issues.techidaily.com/guilty-gear-strive-release-delayed-fans-await-confirmation/"><u>Guilty Gear Strive Release Delayed: Fans Await Confirmation</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-remove-forgotten-pin-of-your-motorola-moto-g14-by-drfone-android/"><u>How to Remove Forgotten PIN Of Your Motorola Moto G14</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-unveiling-gestures-in-tech-landscape/"><u>In 2024, Unveiling Gestures in Tech Landscape</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/the-art-of-hue-adjustment-in-post-production-for-2024/"><u>The Art of Hue Adjustment in Post-Production for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/the-ultimate-cheat-sheet-for-college-students-eager-for-budget-beats-with-an-apple-music-discount-plan/"><u>The Ultimate Cheat Sheet for College Students Eager for Budget Beats with an Apple Music Discount Plan!</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-in-2024-demystifying-pexels-your-comprehensive-guide-to-free-imagery/"><u>Updated In 2024, Demystifying Pexels Your Comprehensive Guide to Free Imagery</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Hacking Back Photo Viewing in Windows 11 Easily for 2024"
-date: 2024-09-04T20:49:34.120Z
-updated: 2024-09-05T20:49:34.120Z
+date: 2024-11-09T20:18:43.983Z
+updated: 2024-11-15T20:27:53.184Z
 tags: 
   - screen-recording
   - ai video
@@ -70,11 +70,12 @@ The first method speaks about, when you have upgraded from a Windows 7/8/8.1 com
 **Step 3**: Tap on ‘Windows Photo Viewer’ and then exit ‘Settings’. Now, you have successfully restored Windows Photo Viewer and you can open photos in Windows Photo Viewer.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972698/19272" target="_top" id="1972698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1934292/19272" target="_top" id="1934292">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934292" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934292/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Method 2 to get Windows Photo Viewer back
 
 Here comes another way to restore Windows Photo Viewer on your computer. If your computer has been upgraded to Windows 10 from an older version, then Windows Photo Viewer might be lying around somewhere. You can retrieve it to view images.
@@ -90,47 +91,44 @@ Here is the detailed guide –
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-back.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068412/7443" target="_top" id="2068412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 **Note**: If the Windows Photo Viewer isn't there, here is a backup. You need to change Windows Registry to make Windows Photo Viewer returned. You need to go to [Edwin over on Ten Forums](https://www.tenforums.com/software-apps/8930-windows-photo-viewer-gone-2.html#post290818) to add code on your PC.
 
 ![restore windows photo viewer code](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-code.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052063/7443" target="_top" id="2052063">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052063" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052063/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068417/7443" target="_top" id="2068417">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068417" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068417/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977028">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Conclusion
 
 From the above article, we found out that restoring Windows Photo Viewer on your system is not a tough task. But, without having the proper knowledge you shouldn’t play around with your Photos app. So, this article guides you through a reliable method for restoring Windows Photo Viewer and view your photos like you always loved to. We hope you liked our efforts of enlightening you about Windows Photo Viewer and got the necessary information. Plus, if none of these work, you can use [Windows 10 Photos app alternatives](https://tools.techidaily.com/wondershare/filmora/download/). Thanks for reading! Do comment us below to let us know your views.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885947/19272" target="_top" id="1885947">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885947" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885947/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868575/19272" target="_top" id="1868575">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868575" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868575/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -154,4 +152,23 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-expert-iphone-camera-settings-simplified-for-2024/"><u>[New] Expert iPhone Camera Settings Simplified for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-integrating-photos-and-videos-a-guide-to-using-storyremix-in-windows-11/"><u>[New] In 2024, Integrating Photos & Videos A Guide to Using StoryRemix in Windows 11</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-in-2024-steps-for-perfect-audio-transition-in-adobe-audition/"><u>[New] In 2024, Steps for Perfect Audio Transition in Adobe Audition</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-navigating-tiktoks-guest-entry-guide/"><u>[New] Navigating TikTok's Guest Entry Guide</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-how-to-steer-clear-of-virtual-sickness/"><u>[Updated] How to Steer Clear of Virtual Sickness</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-mastering-speed-easy-steps-to-create-top-notch-slow-motion-on-android/"><u>[Updated] In 2024, Mastering Speed Easy Steps to Create Top-Notch Slow Motion on Android</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-depth-analysis-simplified-dynamic-range-photography/"><u>[Updated] In-Depth Analysis Simplified Dynamic Range Photography</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-the-filmmakers-handbook-for-professional-gopro-videographers/"><u>[Updated] The Filmmaker's Handbook for Professional Gopro Videographers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/canon-speedlite-430ex-iii-rt-shines-brighter/"><u>Canon Speedlite 430EX III-RT Shines Brighter</u></a></li>
+<li><a href="https://win-able.techidaily.com/effective-solutions-for-the-recurring-crashes-of-thunder-tier-one-on-windows/"><u>Effective Solutions for the Recurring Crashes of Thunder Tier One on Windows</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/hp-laserjet-pro-m404dn-download-latest-drivers-for-windows-111087/"><u>HP LaserJet Pro M404dn - Download Latest Drivers for Windows 11/10/8/7</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/membership-or-not-the-gptplus-dilemma/"><u>Membership or Not? The GPT+ Dilemma</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/rapidly-create-facebook-collage-imagery-with-ease-for-2024/"><u>Rapidly Create Facebook Collage Imagery with Ease for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/snap-it-all-navigating-the-world-of-free-tiktok-bgs/"><u>Snap It All Navigating the World of Free TikTok BGs</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/top-5-samsung-galaxy-a15-5g-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>Top 5 Samsung Galaxy A15 5G Bypass FRP Tools for PC That Actually Work</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/-tactics-for-striking-youtube-thumbnails-that-perform-well/"><u>Top 8 Tactics for Striking YouTube Thumbnails That Perform Well</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Understanding Hue and Saturation  GoPro Studio Edition\""
-date: 2024-09-09T08:17:45.002Z
-updated: 2024-09-10T08:17:45.002Z
+date: 2024-11-11T20:02:22.560Z
+updated: 2024-11-15T18:20:35.804Z
 tags: 
   - screen-recording
   - ai video
@@ -16,24 +16,12 @@ keywords: "GoPro Color Grading,Hue Adjustments Pro,Saturate Filmmaking,Studio Hu
 thumbnail: https://thmb.techidaily.com/053654aac9195ea45d1f77852c408a3b2770cc6c802ff6728e9e3d8c452deddb.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Understanding Hue and Saturation: GoPro Studio Edition
 
 # How to Do Color Correction in GoPro Studio
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115940/19272" target="_top" id="2115940">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115940" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115940/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Max Wales
 
  Mar 27, 2024• Proven solutions
@@ -44,12 +32,6 @@ thumbnail: https://thmb.techidaily.com/053654aac9195ea45d1f77852c408a3b2770cc6c8
 
 [Color Grading and Correction in Final Cut Pro >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120862/26400?prodsku=Saturn" target="_top" id="2120862">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120862" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120862/26400?prodsku=Saturn" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Color Correction in GoPro Studio
 
  One of the easiest and most convenient ways of making the most out of your action camera is to use the ["Protune"](https://gopro.com/support/articles/how-to-use-protune) setting. The Protune among other things is capable of enhancing the dynamic recording range. The enhanced dynamic range would offer you a flat log like image which appears more vigorous while during color grading.
@@ -72,30 +54,12 @@ thumbnail: https://thmb.techidaily.com/053654aac9195ea45d1f77852c408a3b2770cc6c8
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<span id="1993647">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  The all new version of the Wondershare Filmora editing software for Windows and Mac is packed with exciting features meant exclusively for action cameras. These features include:
 
 1. [Video stabilization](https://tools.techidaily.com/wondershare/filmora/download/), advanced speed control (slow motion, fast motion, replay, freeze frame and reverse), audio de-noise, along with color correction features (3D, white balance, LUT etc).
 2. The Instant Cutter tool would give the users the option of trimming and merging video files without any loss of quality. It would allow you to cut a 8GB footage within just a minutes time.
 3. It fully supports  encoded MP4 format, MTS and Mov videos shot on any action cams, camcorders and phones.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135362/19272" target="_top" id="2135362">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135362" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135362/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## GoPro Footage Color Correction in Wondershare Filmora
 
  In order to do the color correction in Filmora you just need to follow the 3 easy steps.
@@ -104,24 +68,46 @@ thumbnail: https://thmb.techidaily.com/053654aac9195ea45d1f77852c408a3b2770cc6c8
 
 ![color correction](https://images.wondershare.com/filmora/guide/1-action-cam-tool-fix-entrance.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 2:** Color Tuning. Now you need to choose the Color Tab on the left of your control panel. Here you will be able to drag the individual slider so as to alter the contrast, brightness, tint, vignette and saturation.
 
 ![correct gopro footage color](https://images.wondershare.com/filmora/article-images/color-corretion-in-gopro-studio-3.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144274/7443" target="_top" id="2144274">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144274" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144274/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  The compare button located on the top right lets you check all the segments before and after the correction simultaneously. While the Reset button ![color-tuning-reset-button](https://images.wondershare.com/filmora/guide/color-tuning-reset-button.png) would allow you to clear all the color corrections anytime.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902304/19272" target="_top" id="1902304">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902304" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902304/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 3:** Save and Share- Once the edit is finished you need to hit the Export button in order to save the edited clip as MOV or MP4 format. You can also alter the video res and the frames per sec. Now just hit the OK button to start the export.
 
 ![Export](https://images.wondershare.com/filmora/guide/8-action-cam-tool-export.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925473/19272" target="_top" id="1925473">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925473" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925473/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 Max Wales
@@ -147,4 +133,21 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-unleash-the-potential-of-pip-in-microsoft-edge-browser/"><u>[New] 2024 Approved Unleash the Potential of PIP in Microsoft Edge Browser</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-top-picks-for-the-best-android-image-correction-tools-5-choices/"><u>[New] Top Picks for the Best Android Image Correction Tools (5 Choices)</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-top-picks-for-the-best-android-image-correction-tools-5-choices-for-2024/"><u>[New] Top Picks for the Best Android Image Correction Tools (5 Choices) for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-racing-cameras-clash-is-black-hero-4-or-ghost-s-better/"><u>[Updated] In 2024, Racing Cameras Clash Is Black Hero 4 or Ghost-S Better?</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-unlock-video-communication-using-whatsapp-browser-on-your-notebook-pc/"><u>[Updated] In 2024, Unlock Video Communication Using WhatsApp Browser on Your Notebook PC</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-premium-sound-on-a-dime-top-value-asmr-gear-uncovered-here-for-2024/"><u>[Updated] Premium Sound on a Dime Top Value ASMR Gear Uncovered Here for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-retro-editing-magic-cutting-classical-cinematography-for-2024/"><u>[Updated] Retro Editing Magic Cutting Classical Cinematography for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-revolutionizing-visuals-the-impact-of-usb-c-and-4k-on-hps-envy-27-for-2024/"><u>[Updated] Revolutionizing Visuals The Impact of USB-C & 4K on HP's Envy 27 for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/cyberpunk-2077-audio-issues-on-windows-11-heres-the-solution/"><u>Cyberpunk 2077 Audio Issues on Windows 11? Here's the Solution</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/fundamental-russian-greetings-a-practical-guidebook/"><u>Fundamental Russian Greetings: A Practical Guidebook</u></a></li>
+<li><a href="https://win-online.techidaily.com/guia-simple-para-realizar-copias-de-seguridad-incrementales-en-windows-server-2012-metodos-practicos/"><u>Guía Simple Para Realizar Copias De Seguridad Incrementales en Windows Server 2012 - Métodos Prácticos</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-intercept-text-messages-on-infinix-hot-30-5g-drfone-by-drfone-virtual-android/"><u>How to Intercept Text Messages on Infinix Hot 30 5G | Dr.fone</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-masterclass-flawless-powerpoint-screen-recordings/"><u>In 2024, Masterclass Flawless PowerPoint Screen Recordings</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/tech-tutorial-exporting-and-storing-your-snaps-safely-for-2024/"><u>Tech Tutorial Exporting and Storing Your Snaps Safely for 2024</u></a></li>
+</ul></div>
 

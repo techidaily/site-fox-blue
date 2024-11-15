@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Reviving Photo Viewer on Win 11 - Methods Explained for 2024\""
-date: 2024-11-02T04:36:06.559Z
-updated: 2024-11-05T11:06:08.566Z
+date: 2024-11-10T16:12:27.499Z
+updated: 2024-11-15T18:25:09.638Z
 tags: 
   - screen-recording
   - ai video
@@ -70,9 +70,23 @@ The first method speaks about, when you have upgraded from a Windows 7/8/8.1 com
 
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037475/7443" target="_top" id="2037475">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 2**: Click on the present photo viewer app over there and look for ‘Windows Photo Viewer’. We assume that you have upgraded from an older version on Windows and Windows Photo Viewer is there in the options.
 
 **Step 3**: Tap on ‘Windows Photo Viewer’ and then exit ‘Settings’. Now, you have successfully restored Windows Photo Viewer and you can open photos in Windows Photo Viewer.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136616/26400" target="_top" id="2136616">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136616" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136616/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Method 2 to get Windows Photo Viewer back
 
@@ -88,30 +102,9 @@ Here is the detailed guide –
 
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-back.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151866/7443" target="_top" id="2151866">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151866" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151866/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Note**: If the Windows Photo Viewer isn't there, here is a backup. You need to change Windows Registry to make Windows Photo Viewer returned. You need to go to [Edwin over on Ten Forums](https://www.tenforums.com/software-apps/8930-windows-photo-viewer-gone-2.html#post290818) to add code on your PC.
 
 ![restore windows photo viewer code](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-code.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037334/7443" target="_top" id="2037334">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037334" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037334/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Conclusion
 
@@ -120,19 +113,20 @@ From the above article, we found out that restoring Windows Photo Viewer on your
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<span id="1983471">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -159,18 +153,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-connect-worlds-quickly-sharing-tiktoks-with-facebook/"><u>[New] 2024 Approved Connect Worlds Quickly Sharing TikToks with Facebook</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-the-ultimate-guide-to-quality-iphone-filmmaking-top-8-tips/"><u>2024 Approved The Ultimate Guide to Quality iPhone Filmmaking (Top 8 Tips)</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-ultimate-guide-to-15-best-4k-recording-tools/"><u>2024 Approved Ultimate Guide to #15 Best 4K Recording Tools</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-unleashing-potential-windows-10s-new-upgrades/"><u>2024 Approved Unleashing Potential Windows 10'S New Upgrades</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-unlock-your-lens-skills-with-snapseed-essentials/"><u>2024 Approved Unlock Your Lens Skills with Snapseed Essentials</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/convert-your-flv-videos-to-mjpeg-format-for-free-with-movavis-tool/"><u>Convert Your FLV Videos to MJPEG Format for Free with Movavi's Tool</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/dissecting-the-best-app-for-video-editing-is-inshot-it-in-2024/"><u>Dissecting the Best App for Video Editing - Is InShot It, In 2024</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/exploring-the-capabilities-of-djis-high-end-42k-drone-a-close-look-from-zdnet/"><u>Exploring the Capabilities of DJI's High-End $42K Drone: A Close Look From ZDNet</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-change-location-on-tiktok-to-see-more-content-on-your-oppo-find-x7-ultra-drfone-by-drfone-virtual-android/"><u>How to Change Location on TikTok to See More Content On your Oppo Find X7 Ultra | Dr.fone</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-on-your-xiaomi-13t-pro-by-drfone-android/"><u>In 2024, A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock on your Xiaomi 13T Pro</u></a></li>
-<li><a href="https://fox-links.techidaily.com/the-ultimate-guide-to-android-slow-motion-video-magic-for-2024/"><u>The Ultimate Guide to Android Slow Motion Video Magic for 2024</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/updated-2024-approved-yosemite-video-editing-101-a-beginners-guide-to-editing-videos-on-mac/"><u>Updated 2024 Approved Yosemite Video Editing 101 A Beginners Guide to Editing Videos on Mac</u></a></li>
-<li><a href="https://fake-location.techidaily.com/which-is-the-best-fake-gps-joystick-app-on-realme-v30-drfone-by-drfone-virtual-android/"><u>Which is the Best Fake GPS Joystick App On Realme V30? | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-flipping-photo-lightness-for-an-alternate-look/"><u>[New] 2024 Approved Flipping Photo Lightness for an Alternate Look</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-top-30-acid-pro-replacements-explored/"><u>[New] 2024 Approved Top 30 ACID Pro Replacements Explored</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-expert-strategies-for-effective-angle-rotations-on-android/"><u>[New] Expert Strategies for Effective Angle Rotations on Android</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-get-the-edge-with-a-premier-zero-cost-voice-change-software-for-2024/"><u>[New] Get the Edge with a Premier, Zero-Cost Voice Change Software for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-step-by-step-guide-to-infectious-internet-memes-gifs/"><u>[New] In 2024, Step-by-Step Guide to Infectious Internet Memes (GIFs)</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-professional-gamers-showcase-live-recording-in-obs-for-2024/"><u>[New] Professional Gamers Showcase - Live Recording in OBS for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-the-essentials-of-crafting-impactful-spotify-ads/"><u>[New] The Essentials of Crafting Impactful Spotify Ads</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-ignite-your-artistic-spirit-find-the-premier-android-drawing-tools/"><u>[Updated] 2024 Approved Ignite Your Artistic Spirit Find the Premier Android Drawing Tools</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-enhancing-media-interaction-with-smart-control-options-for-2024/"><u>[Updated] Enhancing Media Interaction with Smart Control Options for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-go-beyond-boundaries-with-panasonic-hx-a1-wearable-camera-for-2024/"><u>[Updated] Go Beyond Boundaries with Panasonic HX-A1 Wearable Camera for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-influencing-your-drones-performance-choosing-right-propellers-for-2024/"><u>[Updated] Influencing Your Drone's Performance Choosing Right Propellers for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-ultimate-guide-to-affordable-video-players-a-comprehensive-list-pc-and-mobile-for-2024/"><u>[Updated] Ultimate Guide to Affordable Video Players A Comprehensive List (PC & Mobile) for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/digital-wealth-creation-through-video-networking-for-2024/"><u>Digital Wealth Creation Through Video Networking for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/home-button-not-working-on-tecno-spark-20-here-are-real-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Home Button Not Working on Tecno Spark 20? Here Are Real Fixes | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-apple-iphone-12-online-here-are-6-easy-ways-by-drfone-ios/"><u>How to Unlock Apple iPhone 12 Online? Here are 6 Easy Ways</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-tecno-pop-7-pro-phone-with-broken-screen-by-drfone-android/"><u>How to Unlock Tecno Pop 7 Pro Phone with Broken Screen</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fake-gps-on-vivo-y28-5g-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>In 2024, How To Fake GPS On Vivo Y28 5G For Mobile Legends? | Dr.fone</u></a></li>
 </ul></div>
 

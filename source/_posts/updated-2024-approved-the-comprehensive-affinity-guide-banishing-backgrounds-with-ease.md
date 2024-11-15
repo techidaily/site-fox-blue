@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  The Comprehensive Affinity Guide  Banishing Backgrounds with Ease\""
-date: 2024-11-04T09:25:28.839Z
-updated: 2024-11-05T11:49:44.181Z
+date: 2024-11-08T18:36:49.575Z
+updated: 2024-11-15T16:02:34.721Z
 tags: 
   - screen-recording
   - ai video
@@ -31,19 +31,6 @@ No matter you are a professional content creator or a newbie, we'll be discussin
 
 Affinity Photo is a simple and easy-to-use editing software, and you can remove a background in it under two scenarios: remove a white or a busy background.
 
-<!-- affiliate ads begin -->
-<span id="1155462">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### How to Erase a White Background in Affinity Designer
 
 To erase a white background in Affinity Designer, do these steps:
@@ -53,6 +40,13 @@ Step1 In the first step, install the [Affinity Designer](https://affinity.serif.
 Now access the **Pixel Persona** section in the left corner of the software screen by clicking the **colored boxes** icon.
 
 ![accessing the pixel persona in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/accessing-the-pixel-persona-in-affinity-designer.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step2 Go to the **"Layers"** tab in the right pane, right-click your layer, and disable **"Lock."** Now right-click on your layer again, and select **"Rasterize"** to enable editing of specific parts of the image.
 
@@ -69,13 +63,6 @@ Step4 Next, zoom in on your subject. Press & hold the ALT key on your keyboard, 
 Click the **"Refine"** option in the toolbar to open the **"Refine Selection"** menu. A red mask will be applied to your subject, giving you an idea of how your image will look once you remove the background. Zoom in and if any details are excluded, paint them over. Once you are satisfied, click **"Apply"** to save your changes.
 
 ![refining the outline around the image to remove background in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/refining-the-outline-around-the-image-to-remove-background-in-affinity-designer.png)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step5 In the last step, press the **"Delete"** key on your keyboard to remove the background, or click **"Edit"** and choose the **"Cut"** option.
 
@@ -109,13 +96,20 @@ Finally, click **"File"** and select the **"Export"** option from the drop-down 
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Note:** To save your image with a transparent background, do not export it in JPG file format.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## The Best Alternative of Affinity Photo
 
@@ -126,10 +120,10 @@ Therefore, we recommend using [Wondershare PixCut](https://pixcut.wondershare.co
 ![wondershare pixcut for removing image background](https://images.wondershare.com/filmora/article-images/2023/03/wondershare-pixcut-for-removing-image-background.png)
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1186864/12108" target="_top" id="1186864">
-  <img src="//a.impactradius-go.com/display-ad/12108-1186864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2111981/7443" target="_top" id="2111981">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111981" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186864/12108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111981/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Editing experts recommend Wondershare PixCut as the best alternative to many editing problems. An AI-powered automatic editing tool, this software has quicker solutions for you when it comes to removing an image's background. Some of its many benefits are:
@@ -183,10 +177,10 @@ Editing experts recommend Wondershare PixCut as the best alternative to many edi
 * Customized categories that include e-commerce, car dealership, social media, graphic designing, personal, and marketing use.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948895/19272" target="_top" id="1948895">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948895" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2036467/19272" target="_top" id="2036467">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036467" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948895/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036467/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -223,20 +217,18 @@ Hopefully, this article and video can help you create ideal images!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-how-to-convert-live-photo-to-video/"><u>[New] 2024 Approved How to Convert Live Photo to Video</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-gratitude-archive-complete-collection-freepaid/"><u>[New] Gratitude Archive Complete Collection (Free/Paid)</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-swift-skillz-best-high-speed-games-for-laptopsmobile/"><u>[Updated] 2024 Approved Swift Skillz Best High-Speed Games for Laptops/Mobile</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-cutting-edge-strategies-for-real-time-green-screen-applications/"><u>[Updated] In 2024, Cutting-Edge Strategies for Real-Time Green Screen Applications</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-optimize-mac-streams-with-these-industrys-favorite-5-apps/"><u>[Updated] Optimize Mac Streams with These Industry's Favorite 5 Apps</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/beyond-conversation-boundaries-groundbreaking-gpt-3-enhancements/"><u>Beyond Conversation Boundaries: Groundbreaking GPT-3 Enhancements</u></a></li>
-<li><a href="https://facebook.techidaily.com/does-clearing-faceprints-endanger-social-media-privacy-for-fb-users/"><u>Does Clearing Faceprints Endanger Social Media Privacy for FB Users?</u></a></li>
-<li><a href="https://os-tips.techidaily.com/how-to-effortlessly-mirror-an-ipad-onto-roku-the-three-ultimate-techniques/"><u>How to Effortlessly Mirror an iPad Onto Roku: The Three Ultimate Techniques</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-the-chiefs-guide-to-superior-cloud-vaults/"><u>In 2024, The Chief's Guide to Superior Cloud Vaults</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/in-2024-the-groove-guide-navigating-todays-hot-raps-in-156-characters-or-less/"><u>In 2024, The Groove Guide Navigating Today's Hot Raps in 156 Characters or Less</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-upward-perspectives-capturing-landscapes-from-your-phone/"><u>In 2024, Upward Perspectives Capturing Landscapes From Your Phone</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/pitch-modulation-techniques-in-free-fire/"><u>Pitch Modulation Techniques in Free Fire</u></a></li>
-<li><a href="https://techidaily.com/today-i-will-share-your-winning-forex-trades-with-friends-and-family-by-mt4copier-guide/"><u>Today I will Share Your Winning Forex Trades With Friends and Family</u></a></li>
-<li><a href="https://common-error.techidaily.com/troubleshooting-sign-in-issues-caused-by-user-profile-service-in-windows-11/"><u>Troubleshooting Sign-In Issues Caused by 'User Profile Service' In Windows 11</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/unleash-the-power-of-your-iphone-mastering-secret-voice-tricks-from-experts-discovered-by-zdnet/"><u>Unleash the Power of Your iPhone: Mastering Secret Voice Tricks From Experts - Discovered by ZDNet</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-5-best-slow-motion-cameras/"><u>[New] 5 Best Slow Motion Cameras</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-explore-interaction-tips-for-uploading-videos-from-twitter-snapchat/"><u>[New] Explore Interaction Tips for Uploading Videos From Twitter (Snapchat)</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-selecting-the-best-equipment-for-expeditions/"><u>[New] In 2024, Selecting the Best Equipment for Expeditions</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-the-best-editing-software-for-professional-dji-videos/"><u>[New] In 2024, The Best Editing Software for Professional DJi Videos</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-optimizing-your-vlc-livestream-over-the-net-for-2024/"><u>[New] Optimizing Your VLC Livestream over the Net for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-innovative-10-solutions-for-seamless-video-background-swapping/"><u>[Updated] 2024 Approved Innovative 10 Solutions for Seamless Video Background Swapping</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-leading-5-online-title-masters-revealed/"><u>[Updated] Leading 5 Online Title Masters Revealed</u></a></li>
+<li><a href="https://some-tips.techidaily.com/mp4-m4r-movavi/"><u>線上免費 MP4 到 M4R 轉換 – Movavi 音效調整工具簡介</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/direct-connectivity-ios-and-android-file-relay-for-2024/"><u>Direct Connectivity IOS & Android File Relay for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-stop-google-chrome-from-tracking-your-location-on-lava-yuva-2-drfone-by-drfone-virtual-android/"><u>How to Stop Google Chrome from Tracking Your Location On Lava Yuva 2? | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-craft-a-closer-vision-5-easy-ways-to-enhance-minecraft-screens/"><u>In 2024, Craft a Closer Vision 5 Easy Ways to Enhance Minecraft Screens</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-the-ultimate-guide-to-compressor-settings-in-fcpx-for-2024/"><u>New The Ultimate Guide to Compressor Settings in FCPX for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/techniques-for-capturing-wide-angle-360-photos-effortlessly/"><u>Techniques for Capturing Wide Angle 360 Photos Effortlessly</u></a></li>
 </ul></div>
 

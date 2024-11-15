@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Mastering Audacity for Professional Sound Capture"
-date: 2024-09-04T20:49:35.285Z
-updated: 2024-09-05T20:49:35.285Z
+date: 2024-11-08T19:36:35.306Z
+updated: 2024-11-15T19:59:20.229Z
 tags: 
   - screen-recording
   - ai video
@@ -36,6 +36,13 @@ Step3To choose the kind of track you want, click "Tracks" at the top of the page
 
 Step4To begin the recording, simply click the "Record" button. As soon as you press record, an audio graph of your voice should start to display. Using the "Shift + R" hotkeys on your keyboard, you can add a new recording if you'd like to.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105866/7443" target="_top" id="2105866">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105866" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105866/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. Recording using Mac
 
 To record audio on your Mac, you might need to install Audacity and additional plugins. The best option is to use the Soundflower program, which enables you to send sound to other apps rather than your computer's speakers. Here's how to use Soundflower and Audacity to record audio on a Mac.
@@ -49,11 +56,12 @@ Step3In the "Device" section of the Audacity preferences box, choose "Soundflowe
 Step4Launch audacity, then open the app whose audio you wish to record. To begin the recording, click the "Record" button.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087409/7443" target="_top" id="2087409">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087409" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1915865/19272" target="_top" id="1915865">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915865" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087409/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915865/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 3\. Export your audio
 
 It's time to export the finished file after finishing up your Audacity project's modification. It's crucial to realize that simply saving your Audacity project doesn't produce a file that you can share with others.
@@ -100,4 +108,20 @@ Simply select the necessary file format from the drop-down box that appears next
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-explore-top-ios-emulators-for-playing-psp-games/"><u>[New] 2024 Approved Explore Top iOS Emulators for Playing PSP Games</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-diy-dynamics-unlock-creative-animation-potential/"><u>[New] DIY Dynamics Unlock Creative Animation Potential</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-how-to-stream-your-google-meet-talks-iphone-and-android/"><u>[New] How to Stream Your Google Meet Talks IPhone & Android</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-finding-your-footprint-in-the-world-of-youtube-comments/"><u>[New] In 2024, Finding Your Footprint in the World of YouTube Comments</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-transform-your-broadcasts-5-advanced-recording-methods-web/"><u>[New] In 2024, Transform Your Broadcasts 5 Advanced Recording Methods Web</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-effervescent-emotions-on-iphone/"><u>[Updated] In 2024, Effervescent Emotions on IPhone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-virtual-vistas-of-video-select-top-6-apps-for-macos-big-surs-editors/"><u>[Updated] Virtual Vistas of Video Select Top 6 Apps for macOS Big Sur's Editors</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/emulate-hand-held-shooting-effects-in-ps-for-2024/"><u>Emulate Hand-Held Shooting Effects in PS for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-does-the-stardust-trade-cost-in-pokemon-go-on-xiaomi-redmi-k70-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How does the stardust trade cost In pokemon go On Xiaomi Redmi K70 Pro? | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-learn-to-flip-videos-a-guide-for-instagram-users/"><u>In 2024, Learn to Flip Videos A Guide for Instagram Users</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-reinstate-your-airdrop-linkages-simple-fixes-for-iosmacos-issues/"><u>In 2024, Reinstate Your AirDrop Linkages Simple Fixes for iOS/macOS Issues</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/synching-melodies-to-photos-virtually/"><u>Synching Melodies to Photos Virtually</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/unlock-videos-free-effect-sites-ranked-for-2024/"><u>Unlock Videos Free Effect Sites Ranked for 2024</u></a></li>
+</ul></div>
 

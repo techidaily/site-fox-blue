@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, The Premier List  All-Time Great General Knowledge Shows '24\""
-date: 2024-11-04T03:11:12.571Z
-updated: 2024-11-05T09:31:36.700Z
+date: 2024-11-12T17:39:05.161Z
+updated: 2024-11-15T18:06:47.767Z
 tags: 
   - screen-recording
   - ai video
@@ -60,10 +60,10 @@ Their **GK questions videos** are fun to watch and have background music that en
 ![apptato trivia and word games](https://images.wondershare.com/filmora/article-images/2023/02/apptato-trivia-and-word-games.png)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1938698/19272" target="_top" id="1938698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938698" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938698/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2.[Detormentis](https://www.youtube.com/channel/UCL5MgQS6VbE9DOwi-R5Vh6w)
@@ -73,6 +73,13 @@ Detormentis, formed in 2017, is a **youtube trivia questions** channel with over
 Here, you'll find emoji puzzles, guessing games, would you rather find, the odd one out, and general knowledge questions videos with the most fun and interesting background music and graphics.
 
 ![detormentis channel for video quizzes](https://images.wondershare.com/filmora/article-images/2023/02/detormentis-channel-for-video-quizzes.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880972/19272" target="_top" id="1880972">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880972" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880972/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3.[Quizzes4U](https://www.youtube.com/c/Quizzes4U)
 
@@ -122,13 +129,6 @@ You can subscribe to the channel for free or donate some amount to support their
 
 ![quizme for video quizzes](https://images.wondershare.com/filmora/article-images/2023/02/quizme-for-video-quizzes.png)
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014848/22899" target="_top" id="2014848">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014848" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014848/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 9.[FunnyFriQuiz](https://www.youtube.com/c/FunnyFriQuiz)
 
 As one of the oldest quiz channels on YouTube, FunnyFriQuiz provides trivia quizzes with a fun twist. There are a total of 77 quiz videos on the channel and around 18 playlists where the content is categorized into different topics, including Sports, Mythology, Science, Geography, and more.
@@ -138,10 +138,10 @@ So far, the FunnyFriQuiz channel has been a hit with over 72.6K subscribers, and
 ![funnyfriquiz for video quizzes](https://images.wondershare.com/filmora/article-images/2023/02/funnyfriquiz-for-video-quizzes.png)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1938693/19272" target="_top" id="1938693">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938693" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938693/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 10.[Mindful Play Quizzes](https://www.youtube.com/c/MindfulPlay1)
@@ -224,13 +224,6 @@ Their **GK questions videos** are fun to watch and have background music that en
 
 ![apptato trivia and word games](https://images.wondershare.com/filmora/article-images/2023/02/apptato-trivia-and-word-games.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2.[Detormentis](https://www.youtube.com/channel/UCL5MgQS6VbE9DOwi-R5Vh6w)
 
 Detormentis, formed in 2017, is a **youtube trivia questions** channel with over 218K subscribers and is a one-stop-shop for all the fun trivia knowledge and picture quizzes. They provide accurate and up-to-date information clearly and concisely.
@@ -255,6 +248,20 @@ The channel has over 128K subscribers with 46,949,631 views. Since the creator a
 
 ![the quiz channel for video quizzes](https://images.wondershare.com/filmora/article-images/2023/02/the-quiz-channel-for-video-quizzes.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902319/19272" target="_top" id="1902319">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902319" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902319/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 5.[Pub Quiz Masters](https://www.youtube.com/c/PubQuizMasters)
 
 Whether you're a pub quiz aficionado or just looking to learn something new, you'll find engaging and informative quizzes on Pub Quiz Masters. The channel was created in Feb 2022 and has over 2.55K subscribers with 872,826 views.
@@ -262,13 +269,6 @@ Whether you're a pub quiz aficionado or just looking to learn something new, you
 Here you'll find videos on various topics, ranging from history to pop culture and everything in between, so you can test your knowledge to check how you stack up against the competition.
 
 ![pub quiz master](https://images.wondershare.com/filmora/article-images/2023/02/pub-quiz-master.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105883/7443" target="_top" id="2105883">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105883" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105883/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 6.[Mister Quizster's Trivia Channel](https://www.youtube.com/c/MisterQuizstersTriviaChannel)
 
@@ -279,10 +279,17 @@ On this channel, you will find a variety of quizzes, educational videos, and mor
 ![mister quizster’s tirvia channel for video quizzes](https://images.wondershare.com/filmora/article-images/2023/02/mister-quizster’s-tirvia-channel-for-video-quizzes.png)
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
-  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2148619/17108" target="_top" id="2148619">
+  <img src="//a.impactradius-go.com/display-ad/17108-2148619" border="0" alt="https://techidaily.com" width="100" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2148619/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 7.[Trivia Butchers](https://www.youtube.com/c/TriviaButchers)
@@ -301,13 +308,6 @@ You can subscribe to the channel for free or donate some amount to support their
 
 ![quizme for video quizzes](https://images.wondershare.com/filmora/article-images/2023/02/quizme-for-video-quizzes.png)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 9.[FunnyFriQuiz](https://www.youtube.com/c/FunnyFriQuiz)
 
 As one of the oldest quiz channels on YouTube, FunnyFriQuiz provides trivia quizzes with a fun twist. There are a total of 77 quiz videos on the channel and around 18 playlists where the content is categorized into different topics, including Sports, Mythology, Science, Geography, and more.
@@ -316,13 +316,6 @@ So far, the FunnyFriQuiz channel has been a hit with over 72.6K subscribers, and
 
 ![funnyfriquiz for video quizzes](https://images.wondershare.com/filmora/article-images/2023/02/funnyfriquiz-for-video-quizzes.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 10.[Mindful Play Quizzes](https://www.youtube.com/c/MindfulPlay1)
 
 Mindful Play Quizez is a popular YouTube channel that creates content on numerous topics, such as The Harry Potter Quiz series, TV trivia, Multiple Choice Quizzes, logo quizzes, general knowledge trivia, fun with flags trivia, and world capitals quizzes.
@@ -330,6 +323,19 @@ Mindful Play Quizez is a popular YouTube channel that creates content on numerou
 Mindful Play Quizzes also has a YouTube Shorts channel, known as Mindful Play Quizzes Shorts, where you can find up to 60 seconds of short Trivia quizzes.
 
 ![mindful play quizzes for video quiz](https://images.wondershare.com/filmora/article-images/2023/02/mindful-play-quizzes-for-video-quiz.png)
+
+<!-- affiliate ads begin -->
+<span id="1155462">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 11.[Brain Munch Quizzes](https://www.youtube.com/channel/UCWs7c7W1cXev%5F-IP40F5FrQ)
 
@@ -411,24 +417,20 @@ We hope you've found this article helpful and that now you know where to watch i
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-master-commanders-unleashed-ranking-7-total-war-champions/"><u>[New] 2024 Approved Master Commanders Unleashed Ranking 7 Total War Champions</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-thriving-in-a-world-of-negative-video-reviews/"><u>[New] 2024 Approved Thriving in a World of Negative Video Reviews</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-dive-deep-comprehensive-tutorial-for-launching-a-product-vlog-channel-for-2024/"><u>[Updated] Dive Deep Comprehensive Tutorial for Launching a Product Vlog Channel for 2024</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-snap-edit-and-assemble-a-rapid-google-collage-how-to-for-2024/"><u>[Updated] Snap, Edit & Assemble A Rapid Google Collage How-To for 2024</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/2024-approved-examining-splitcams-video-quality-against-competitors/"><u>2024 Approved Examining SplitCam's Video Quality Against Competitors</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-step-by-step-manual-kickstart-your-bite-sized-gadget-reviews-channel/"><u>2024 Approved Step-by-Step Manual Kickstart Your Bite-Sized Gadget Reviews Channel</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-streamlining-video-calls-leveraging-zoom-on-windows-10-pcs/"><u>2024 Approved Streamlining Video Calls Leveraging Zoom on Windows 10 PCs</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-switch-onoff-youtubes-pip-mode-on-your-iphone/"><u>2024 Approved Switch On/Off YouTube's PIP Mode on Your iPhone</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-television-or-projector-unraveling-the-best-for-4k-viewing-pleasure/"><u>2024 Approved Television or Projector? Unraveling the Best for 4K Viewing Pleasure</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-the-archivists-arsenal-pivotal-80s-vhs-tricks-for-editors/"><u>2024 Approved The Archivist’s Arsenal Pivotal 80S VHS Tricks for Editors</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-the-ultimate-4k-aerial-experience-with-xiaomis-drone/"><u>2024 Approved The Ultimate 4K Aerial Experience with Xiaomi's Drone</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-the-ultimate-guide-to-polarr-photo-editor-proficiency/"><u>2024 Approved The Ultimate Guide to Polarr Photo Editor Proficiency</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-tips-for-gaining-attention-via-snapchat-star/"><u>2024 Approved Tips for Gaining Attention via Snapchat Star</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-unlock-full-potential-mac-plus-obs-plus-streamlabs/"><u>2024 Approved Unlock Full Potential Mac + OBS + Streamlabs</u></a></li>
-<li><a href="https://common-error.techidaily.com/1723210436104-effective-remedies-for-windows-10-cast-to-device-malfunctions-solutions-inside/"><u>Effective Remedies for Windows 10 Cast To Device Malfunctions – Solutions Inside!</u></a></li>
-<li><a href="https://win-blog.techidaily.com/fix-how-to-resolve-undetected-graphics-card-issues-in-msi-afterburner-on-windows-11/"><u>Fix: How to Resolve Undetected Graphics Card Issues in MSI Afterburner on Windows 11</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/optimizing-user-engagement-through-innovative-cookiebot-solutions/"><u>Optimizing User Engagement Through Innovative Cookiebot Solutions</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211375438-9780061748950-papal-magic/"><u>Papal Magic | Free Book</u></a></li>
-<li><a href="https://driver-error.techidaily.com/windows-user-friendly-solution-for-wireless-woes/"><u>Windows User-Friendly Solution for Wireless Woes</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-master-organization-with-mematics-toolkit/"><u>[New] 2024 Approved Master Organization with Mematic's Toolkit</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-streaming-made-easier-learning-to-use-netflixs-dual-screen-feature/"><u>[New] Streaming Made Easier Learning to Use Netflix's Dual-Screen Feature</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-through-vr-lenses-30plus-enlightened-metaverse-proverbs-for-2024/"><u>[New] Through VR Lenses 30+ Enlightened Metaverse Proverbs for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-streamline-your-office-work-with-voice-to-text-in-ms-word/"><u>[Updated] 2024 Approved Streamline Your Office Work with Voice-to-Text in MS Word</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-how-to-secure-free-fcp-software/"><u>[Updated] How to Secure Free FCP Software</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-a-user-friendly-guide-to-leveraging-windows-10-and-zoom/"><u>[Updated] In 2024, A User-Friendly Guide to Leveraging Windows 10 and Zoom</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-full-picture-the-essence-of-google-podcasts-app/"><u>[Updated] In 2024, Full Picture The Essence of Google Podcasts App</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-ios-guide-your-step-by-step-vr-video-experience/"><u>[Updated] In 2024, IOS Guide Your Step-by-Step VR Video Experience</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-measuring-64gbs-video-holding-ability/"><u>[Updated] Measuring 64Gb's Video Holding Ability</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-masterclass-in-youtube-video-previews-and-trailers/"><u>2024 Approved Masterclass in YouTube Video Previews and Trailers</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/battling-cold-weather-how-to-prevent-your-tablets-and-laptops-from-losing-charge-in-winter/"><u>Battling Cold Weather: How to Prevent Your Tablets and Laptops From Losing Charge in Winter</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/enabling-adobe-flash-on-your-browser-complete-tutorial-for-chrome-firefox-opera-and-edge-users/"><u>Enabling Adobe Flash on Your Browser: Complete Tutorial for Chrome, Firefox, Opera, and Edge Users</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/fixing-mac-volume-issues-a-complete-guide/"><u>Fixing Mac Volume Issues: A Complete Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/maximize-your-home-security-with-iseebells-video-doorbell-the-best-sub-50-options-reviewed/"><u>Maximize Your Home Security with iSeeBell's Video Doorbell - The Best Sub $50 Options Reviewed!</u></a></li>
+<li><a href="https://fake-location.techidaily.com/read-this-guide-to-find-a-reliable-alternative-to-fake-gps-on-apple-iphone-8-plus-drfone-by-drfone-virtual-ios/"><u>Read This Guide to Find a Reliable Alternative to Fake GPS On Apple iPhone 8 Plus | Dr.fone</u></a></li>
 </ul></div>
 
