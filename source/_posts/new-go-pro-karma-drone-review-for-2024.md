@@ -1,7 +1,7 @@
 ---
 title: "[New] Go Pro Karma Drone Review for 2024"
-date: 2024-11-13T20:35:03.823Z
-updated: 2024-11-15T17:37:42.008Z
+date: 2024-11-20T17:28:10.035Z
+updated: 2024-11-24T22:19:52.988Z
 tags: 
   - screen-recording
   - ai video
@@ -41,6 +41,10 @@ thumbnail: https://thmb.techidaily.com/9c252b23b1e3ad8357c15bea477480a8c23a36edb
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Pros and cons of GoPro Karma
 
 **Pros**
@@ -57,10 +61,7 @@ thumbnail: https://thmb.techidaily.com/9c252b23b1e3ad8357c15bea477480a8c23a36edb
  The overall verdict is that this is a fantastic drone for capturing stunning images but it doesn't have the easy flying mode or the battery life to compete with some of the best drones available at the same price point. Although you might have to sacrifice a bit in image quality when compared to a GoPro camera with some competitors, it's often worth it for value knowing that you can capture the shot and maintain control over your drone.
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Detailed review for GoPro Karma
@@ -100,10 +101,7 @@ thumbnail: https://thmb.techidaily.com/9c252b23b1e3ad8357c15bea477480a8c23a36edb
 ![gopro karma controller](https://images.wondershare.com/filmora/article-images/gopro-karma-controller.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118306/7443" target="_top" id="2118306">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118306" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118306/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  One thing that the GoPro Karma did especially well was creating a beautiful controller. The RC controller is relatively small but it feels exactly like playing a videogame with plenty of functions and no need to have a compatible device to use the drone. The other extremely strong point is the camera. Nobody can build a great outdoor camera that is it as resilient as a GoPro with the Hero 5 Black version of this drone capable of shooting in 4K with an astounding video quality, you can catch some amazing video as well as incredible still images on this drone.
@@ -115,10 +113,7 @@ Overall, the GoPro Karma is a fairly strong showing for a drone. Although it can
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036501/19272" target="_top" id="2036501">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036501" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036501/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Max Wales
@@ -146,18 +141,22 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-charting-your-path-podcast-income-expectations/"><u>[New] 2024 Approved Charting Your Path Podcast Income Expectations</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-hitting-the-sweet-spot-balancing-images-in-your-instagram-story-for-2024/"><u>[New] Hitting the Sweet Spot Balancing Images in Your Instagram Story for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-frozen-frenzy-2022s-ultimate-showdown-on-snowy-olympic-rivers/"><u>[Updated] Frozen Frenzy 2022'S Ultimate Showdown on Snowy Olympic Rivers</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-techniques-for-removing-cluttered-photo-backgrounds/"><u>[Updated] In 2024, Techniques for Removing Cluttered Photo Backgrounds</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-the-power-of-persuasion-exploring-6-video-genres/"><u>[Updated] In 2024, The Power of Persuasion Exploring 6 Video Genres</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-ios-and-android-leading-10-apps-for-captivating-stickers-on-images/"><u>[Updated] IOS & Android Leading 10 Apps for Captivating Stickers on Images</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/excellent-screen-capture-software-for-windows-11-users/"><u>Excellent Screen Capture Software for Windows 11 Users</u></a></li>
-<li><a href="https://android-frp.techidaily.com/how-to-bypass-realme-11-proplus-frp-in-3-different-ways-by-drfone-android/"><u>How To Bypass Realme 11 Pro+ FRP In 3 Different Ways</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/iphone-camera-mastery-x8-series-essential-tools-for-2024/"><u>IPhone Camera Mastery X/8 Series Essential Tools for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ter-loop-a-pocketful-of-humorous-short-film-ideas/"><u>Laughter Loop A Pocketful of Humorous Short Film Ideas</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/launching-at-optimal-times-a-podcast-guide-for-2024/"><u>Launching at Optimal Times A Podcast Guide for 2024</u></a></li>
-<li><a href="https://extra-support.techidaily.com/monetary-milestones-pewdiepies-income-summary-for-2024/"><u>Monetary Milestones PewDiePie’s Income Summary for 2024</u></a></li>
-<li><a href="https://review-topics.techidaily.com/nokia-video-recovery-recover-deleted-videos-from-nokia-by-fonelab-android-recover-video/"><u>Nokia Video Recovery - Recover Deleted Videos from Nokia</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-a-comprehensive-list-top-rated-srt-translation-services/"><u>[New] A Comprehensive List Top-Rated SRT Translation Services</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-clear-photography-archives-legal-purchase-tactics-for-2024/"><u>[New] Clear Photography Archives Legal Purchase Tactics for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-above-the-clouds-unveiled-best-online-portals-for-hd-skies/"><u>[New] In 2024, Above the Clouds Unveiled Best Online Portals for HD Skies</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-crafting-perfect-tiktok-captions-the-ultimate-20-guide/"><u>[New] In 2024, Crafting Perfect TikTok Captions The Ultimate 20 Guide</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-funnyframe-generator/"><u>[Updated] 2024 Approved FunnyFrame Generator</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-boosting-your-gameplay-tips-for-increased-zoom-range-for-2024/"><u>[Updated] Boosting Your Gameplay Tips for Increased Zoom Range for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-dialing-into-smooth-audio-edits-with-reaper/"><u>[Updated] Dialing Into Smooth Audio Edits with Reaper</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-getting-prepared-for-macos-11-big-sur-upgrade-for-2024/"><u>[Updated] Getting Prepared for MacOS 11 Big Sur Upgrade for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-unleash-your-imagination-review-of-the-garmin-virb-ultra-30/"><u>[Updated] In 2024, Unleash Your Imagination Review of the Garmin VIRB Ultra 30</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/discover-popular-tiktok-background-images-for-2024/"><u>Discover Popular TikTok Background Images for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/exploring-the-world-of-ai-chatbots-and-their-growing-demand/"><u>Exploring the World of AI Chatbots & Their Growing Demand</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-elite-microphones-matched-to-premium-4k-camera-systems/"><u>In 2024, Elite Microphones Matched to Premium 4K Camera Systems</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-instantaneous-sharability-tweeting-videos-on-snapchat-network/"><u>In 2024, Instantaneous Sharability Tweeting Videos on Snapchat Network</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/is-the-xbox-live-service-currently-operational/"><u>Is the Xbox Live Service Currently Operational?</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/mastering-social-media-engagement-enhancing-your-content-with-chatgpt/"><u>Mastering Social Media Engagement: Enhancing Your Content with ChatGPT</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/the-best-bandicam-mac-alternatives-top-5-tools-for-2024/"><u>The Best Bandicam Mac Alternatives [Top 5 Tools] for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-complete-breakdown-why-your-video-needs-proper-tagging-for-2024/"><u>The Complete Breakdown Why Your Video Needs Proper Tagging for 2024</u></a></li>
 </ul></div>
 

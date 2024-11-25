@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Beyond Basics  20 Underrated WhatsApp Features You Need\""
-date: 2024-11-10T19:07:02.618Z
-updated: 2024-11-15T19:47:47.697Z
+date: 2024-11-23T19:15:20.592Z
+updated: 2024-11-25T03:23:18.162Z
 tags: 
   - screen-recording
   - ai video
@@ -37,6 +37,10 @@ With more than a billion active users worldwide, WhatsApp is now among the prima
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Cool WhatsApp Text Tricks to Make You Look Edgy
 
 You can do a lot of things with your WhatsApp fonts, appearance, and texts that will make your messages look oh-so-edgy! From italics, bold, strikethrough to monospace there are plenty of text formatting tricks to dress up your epic announcements, festive greetings et al. Rounding it all, here are the best WhatsApp Typing Tricks you can use right away.
@@ -53,11 +57,19 @@ Just like the bold, you can also italicize your fonts by simply inserting Unders
 
 ![Whatsapp Text Tricks Italic](https://images.wondershare.com/filmora/article-images/whatsapp-text-tricks-italic.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 3.Strikethrough
 
 Strikethrough is largely used to intend puns in WhatsApp, but sometimes it is also a functional tool for text corrections, used at large for online tutorials, editorials, or brainstorming. For adding Strikethrough use the Tilde Symbol (\~text\~) at the starting and end of your text.
 
 ![Whatsapp Text Tricks Strikethrough](https://images.wondershare.com/filmora/article-images/whatsapp-text-tricks-strikethrough.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 4.Monospace
 
@@ -85,11 +97,19 @@ If you wish to save the chats that you exchanged with someone special, you can e
 
 ![Whatsapp Export Chat Logs](https://images.wondershare.com/filmora/article-images/whatsapp-export-chat-logs.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 8.WhatsApp Font Tricks for Formatting
 
 Though we have already mentioned the shortcuts for bold, italics, and other text formatting features, there is another way to format your texts if you forget the shortcuts - go for the Native Settings Strip. Once you are done typing, then tap and hold the text sections you want to format, this will open all the options in a list. You can scroll it to select your formatting command.
 
 ![Whatsapp Font Tricks Formatting](https://images.wondershare.com/filmora/article-images/whatsapp-font-tricks-formatting.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 9.You Can Apply All WhatsApp Font Tricks on One Word or Sentence
 
@@ -104,10 +124,7 @@ While typing a WhatsApp message if you need to cross-check certain areas with so
 ![Whatsapp Typing Trick](https://images.wondershare.com/filmora/article-images/whatsapp-typing-trick.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934183/19272" target="_top" id="1934183">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934183" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934183/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What are the Hidden Features of WhatsApp?
@@ -152,6 +169,10 @@ Not every message thread is important, and many people have the habit of deletin
 
 ![Whatsapp Auto Delete Messages](https://images.wondershare.com/filmora/article-images/whatsapp-auto-delete-messages.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 8.Mute Stories that You Don’t Want to See
 
 If it is annoying to open a loved one’s story and then automatically sliding into a story you did not want to open, you can MUTE the people whose stories you are not interested to see. Go to Story and tap and hold the unwanted contact to open the Mute option. Even though there is no option that you can stop the automatic carousel to the next contact’s stories altogether, you can always go by the rule of the thumb - place your thumb on the screen and the carousel won’t move.
@@ -159,10 +180,7 @@ If it is annoying to open a loved one’s story and then automatically sliding i
 ![Mute Whatsapp Stories](https://images.wondershare.com/filmora/article-images/mute-whatsapp-stories.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1013424/11832" target="_top" id="1013424">
-  <img src="//a.impactradius-go.com/display-ad/11832-1013424" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1013424/11832" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 9.Reply Privately to Recipients in a WhatsApp Group
@@ -175,27 +193,7 @@ Manage how you are notified of messages from specific contacts and groups. Go to
 
 ![Whatsapp Hidden Feature Custom Notification](https://images.wondershare.com/filmora/article-images/whatsapp-hidden-feature-custom-notification.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Source: beebom.com
-
-<!-- affiliate ads begin -->
-<span id="1975658">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Edit WhatsApp Videos with Ease
 
@@ -248,17 +246,19 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-essential-knowledge-of-using-look-up-tables-for-image-grading/"><u>[New] Essential Knowledge of Using Look-Up Tables for Image Grading</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-unlocking-new-potentials-with-macos-11-big-sur/"><u>[New] In 2024, Unlocking New Potentials with macOS 11 Big Sur</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-peak-popularity-on-reddit-10-most-upvoted-stories/"><u>[New] Peak Popularity on Reddit 10 Most Upvoted Stories</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-simplified-methods-for-logging-google-voice-calls/"><u>[New] Simplified Methods for Logging Google Voice Calls</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/isionaries-mastering-the-art-of-multimedia-synthesis/"><u>[New] Visionaries Mastering the Art of Multimedia Synthesis</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-nostalgia-revue-old-school-review-of-the-goofys-for-2024/"><u>[Updated] Nostalgia Revue Old-School Review of The Goofys for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-sage-scripts-for-soundplays-for-2024/"><u>[Updated] Sage Scripts for Soundplays for 2024</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/artisans-nexus-reports-in-depth-studio-scrutiny-2023-edition/"><u>Artisan's Nexus Reports In-Depth Studio Scrutiny, 2023 Edition</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/how-to-incorporate-your-podcast-into-app-store/"><u>How To Incorporate Your Podcast Into App Store</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-find-ispoofer-pro-activation-key-on-samsung-galaxy-f04-drfone-by-drfone-virtual-android/"><u>In 2024, How to Find iSpoofer Pro Activation Key On Samsung Galaxy F04? | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-my-motorola-razr-40-ultra-location-is-wrong-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix My Motorola Razr 40 Ultra Location Is Wrong | Dr.fone</u></a></li>
-<li><a href="https://techtrends.techidaily.com/top-5-essential-automated-pinterest-management-applications/"><u>Top 5 Essential Automated Pinterest Management Applications</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-how-to-go-live-on-facebook/"><u>[New] 2024 Approved How to Go Live on Facebook?</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-reigniting-creativity-exclusive-free-drawing-tools-for-mac-users/"><u>[New] In 2024, Reigniting Creativity Exclusive FREE Drawing Tools for Mac Users</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-elite-photography-narrative-assembler-kit/"><u>[Updated] 2024 Approved Elite Photography Narrative Assembler Kit</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-introduce-natural-photo-smear-in-ps/"><u>[Updated] 2024 Approved Introduce Natural Photo Smear in PS</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-mastering-youtube-captions-3-effective-methods-to-download-srt-files/"><u>[Updated] 2024 Approved Mastering YouTube Captions 3 Effective Methods to Download SRT Files</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-unleashing-your-creative-potential-expert-led-audio-transition-workshops-in-audacity/"><u>[Updated] In 2024, Unleashing Your Creative Potential Expert-Led Audio Transition Workshops in Audacity</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-unlock-your-live-feed-free-cam-recording-and-top-picks/"><u>2024 Approved Unlock Your Live Feed Free Cam Recording & Top Picks</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/expert-tips-to-fix-error-code-28-in-windows-no-tech-knowledge-needed/"><u>Expert Tips to Fix Error Code 28 in Windows - No Tech Knowledge Needed</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-location-on-tiktok-to-see-more-content-on-your-oppo-reno-11f-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location on TikTok to See More Content On your Oppo Reno 11F 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-the-key-to-dramatic-contrast-in-hdr-portrait-photography/"><u>In 2024, The Key to Dramatic Contrast in HDR Portrait Photography</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/secrets-to-successful-twitpicingvideos-included-for-2024/"><u>Secrets to Successful Twitpicing—Videos Included for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/transform-your-search-habits-navigating-through-the-advanced-features-of-ai-enhanced-bing-app-on-android/"><u>Transform Your Search Habits: Navigating Through the Advanced Features of AI-Enhanced Bing App on Android</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/unlocking-data-potential-with-cookiebot-integration/"><u>Unlocking Data Potential with Cookiebot Integration</u></a></li>
+<li><a href="https://win-bytes.techidaily.com/1728468600741-windowsaomei-backupper/"><u>Windows用バックアップ・リカバーツール「AOMEI Backupper」 - 最適化されたセキュリティと使いやすさ</u></a></li>
 </ul></div>
 

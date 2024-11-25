@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Mastering the Art of Green Screen Filming"
-date: 2024-09-04T20:49:40.174Z
-updated: 2024-09-05T20:49:40.174Z
+date: 2024-11-19T16:58:04.717Z
+updated: 2024-11-25T05:19:38.464Z
 tags: 
   - screen-recording
   - ai video
@@ -38,11 +38,19 @@ If you are wondering how to compositing the shot green screen video with your ma
 
 **Related:**[Resources for green screen effects](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 5 Tips for shooting better green screen video
 
 We’ve figured out some useful green screen tricks, have fun and hope you’ll be more creative with the help of Filmora green screen video compositing software.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 In the following section, we will share with you five tips when you shooting a video for compositing a green screen video, which covering the lighting tips, the camera tips, the clothing tips, the tips for using green screen sheet, and the tips for resolving motion blur in shooting videos.
 
@@ -53,6 +61,10 @@ To shoot a nice green screen video, it's better to be able to light the backgrou
 Don’t throw too much light onto the green background. That will create hotspots and “green spill” on the subject and make the key less effective. The key to lighting a green screen is consistency – create a single, consistent shade of color across the entire screen.
 
 ![Lighting tips in shooting a Green Screen Video](https://images.wondershare.com/images/multimedia/video-editor/green-screen-lighting-tips.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Check out our picks of [the best lighting equipment for shooting videos](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -78,6 +90,10 @@ There are some mistakes that you can avoid to help your green screen video look 
 
 ![Wrinkles problem in shooting a Green Screen Video](https://images.wondershare.com/images/multimedia/video-editor/green-screen-mistake-2.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Wrinkles in your screen can actually lead to heavy shadows and distorted image quality in your green screen video. If you regularly fold your green screen for storage it's very important that you take an iron out and flat negative green screen to prevent shadows and distortions with your background image. This is a step that many skip over but it's important to have a high-quality green screen without wrinkles and folds that cause shadows.
 
 #### 5 Motion blur problem in shooting a Green Screen Video
@@ -95,6 +111,10 @@ Besides compositing chroma keying videos in Filmora, you can also[stabilize your
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -119,11 +139,26 @@ Follow @Liza Brown
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-how-can-you-make-outstanding-youtube-outro/"><u>[New] 2024 Approved How Can You Make Outstanding YouTube Outro?</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-mastering-lightroom-crafting-breathtaking-hdr-photos/"><u>[New] 2024 Approved Mastering Lightroom Crafting Breathtaking HDR Photos</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-toolwiz-photos-app-complete-review-2023/"><u>[New] 2024 Approved Toolwiz Photos App - Complete Review 2023</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-immediate-fixes-fb-messenger-video-sending-hitch-on-mobile-devices/"><u>[New] In 2024, Immediate Fixes FB Messenger Video Sending Hitch on Mobile Devices</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-optimal-iphone-image-management-ordered-album-setups-and-icloud-integration/"><u>[New] In 2024, Optimal iPhone Image Management Ordered Album Setups & iCloud Integration</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-understanding-theta-s-complete-technical-review/"><u>[New] In 2024, Understanding Theta S Complete Technical Review</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-prime-6-engagement-realms-critical-for-corporate-networks/"><u>[New] Prime 6 Engagement Realms Critical for Corporate Networks</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-snap-spectacularly-with-top-10-sticker-enhancing-phone-apps/"><u>[New] Snap Spectacularly with Top 10 Sticker-Enhancing Phone Apps</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-how-to-perfectly-stream-your-ps4-gaming-session-for-2024/"><u>[Updated] How to Perfectly Stream Your PS4 Gaming Session for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-detailed-tutorial-implementing-custom-lut-filters-in-obs-productions/"><u>[Updated] In 2024, Detailed Tutorial Implementing Custom LUT Filters in OBS Productions</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-onscreen-excellence-video-talent-licensing/"><u>[Updated] Onscreen Excellence Video Talent Licensing</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-unlocking-apples-audio-world-a-download-guide-for-ios-users/"><u>2024 Approved Unlocking Apple's Audio World A Download Guide for iOS Users</u></a></li>
+<li><a href="https://win-answers.techidaily.com/1722995337258-avoid-crashing-vrchat-on-your-desktop-discover-the-ultimate-8-fixes/"><u>Avoid Crashing VRChat on Your Desktop: Discover the Ultimate 8 Fixes!</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/excellent-choices-comprehensive-paid-and-free-macpc-video-decoders/"><u>Excellent Choices Comprehensive Paid & FREE Mac/PC Video Decoders</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-to-enter-the-ispoofer-discord-server-on-apple-iphone-12-pro-drfone-by-drfone-virtual-ios/"><u>How to enter the iSpoofer discord server On Apple iPhone 12 Pro | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-the-art-of-zooming-elevate-your-tiktok-videos/"><u>In 2024, The Art of Zooming Elevate Your TikTok Videos</u></a></li>
+<li><a href="https://win11.techidaily.com/life-without-maintenrancy-windows-xp-7-and-81-post-support-era/"><u>Life Without Maintenrancy: Windows XP, 7, and 8.1 Post-Support Era</u></a></li>
+<li><a href="https://fox-place.techidaily.com/pc-bequem-verschieben-mit-kostenlosen-alternativen-zu-pcmover-express-in-w7810/"><u>PC Bequem Verschieben Mit Kostenlosen Alternativen Zu PCmover Express in W7/8/10</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/quick-dive-into-your-pcs-core-settings/"><u>Quick Dive Into Your PC's Core Settings</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925570/19272" target="_top" id="1925570">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925570" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925570/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

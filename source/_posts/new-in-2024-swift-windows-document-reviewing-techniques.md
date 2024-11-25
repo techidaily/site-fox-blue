@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Swift Windows Document Reviewing Techniques"
-date: 2024-11-08T20:16:32.079Z
-updated: 2024-11-15T16:48:26.996Z
+date: 2024-11-19T22:37:34.159Z
+updated: 2024-11-24T16:23:31.380Z
 tags: 
   - screen-recording
   - ai video
@@ -37,6 +37,10 @@ Step1 Open Microsoft Store and search for QuickLook. Make sure you select the op
 
 ![search for quicklook for windows on Microsoft store](https://images.wondershare.com/filmora/article-images/2022/09/quicklook-for-windows-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step2 Once you find QuickLook, click “Get it” to download and install the app in your Windows operating system. At around 60MB, installing this preview app should be quick and easy.
 
 Step3 After successfully installing QuickLook, head to File Explorer and select any file you want to preview. Press the “Space” bar on your keyboard to view the file.
@@ -44,6 +48,10 @@ Step3 After successfully installing QuickLook, head to File Explorer and select 
 ![preview video on quicklook for windows](https://images.wondershare.com/filmora/article-images/2022/09/quicklook-for-windows-2.jpg)
 
 Unfortunately, you won’t preview the content inside the document file. Instead, you’ll only see details like the file type/format, size, image name, and more. You can also directly choose the opening app. As for videos and audio, the media file will automatically play on the QuickLook media player. But don’t fret because the following section will teach you to read your documents, presentations, PDFs, and other files on QuickLook without opening the file.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: Get the App on GitHub
 
@@ -55,37 +63,24 @@ Step1 Visit the [QuickLook GitHub](https://github.com/QL-Win/QuickLook) page and
 
 ![click the latest quicklook for windows version](https://images.wondershare.com/filmora/article-images/2022/09/quicklook-for-windows-3.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105863/7443" target="_top" id="2105863">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105863" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105863/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step2 Scroll down and download the .msi file. After downloading the installation file successfully, install it on your computer.
 
 ![install the quicklook for windows msi](https://images.wondershare.com/filmora/article-images/2022/09/quicklook-for-windows-4.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step3 Now go back to the QuickLook GitHub home page and click [plugin](https://github.com/QL-Win/QuickLook/wiki/Available-Plugins). Then, download the plugins to add additional preview capabilities to Microsoft QuickLook. For example, install the FontViewer, FFmpeg, and OfficeViewer plugins by clicking the respective “Link” buttons.
 
 ![install quicklook for windows plugins](https://images.wondershare.com/filmora/article-images/2022/09/quicklook-for-windows-5.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1186864/12108" target="_top" id="1186864">
-  <img src="//a.impactradius-go.com/display-ad/12108-1186864" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186864/12108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step4 After a successful installation, find the file you want to preview and select it. Then, tap the space bar to preview the files. And remember, browse ZIP files to view all content.
 
 **Pro tip**: We recommend installing the QuickLook OfficeViewer plugin to rip open your Office files and view the content inside. This method is recommended if you haven’t installed Microsoft Office on your PC. However, you might notice that the OfficeViewer plugin isn’t supported on your Windows PC. So to install OfficeViewer, select the file and click the space bar to preview it on QuickLook. Then, tap the “Click here to install this plugin” button. Now restart QuickLook and view all your office documents without opening them on their respective programs.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037475/7443" target="_top" id="2037475">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037475" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: Should We Expect Built-in Quick Look on Windows in the Future?
@@ -111,10 +106,7 @@ Unfortunately, Microsoft QuickLook doesn’t offer native support for E-books. B
 Now this is one of the primary advantages of using the Mac QuickLook. You can trim video and audio clips, rotate photos, and use markups directly on the program. We hope that the Windows version will add these convenient features as well.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948954/19272" target="_top" id="1948954">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948954" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948954/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -151,24 +143,22 @@ This guidepost is another testament that your PC has massive hidden abilities. W
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-expertise-in-clip-blending-a-blend-mode-guide/"><u>[New] 2024 Approved Expertise in Clip Blending A Blend Mode Guide</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-top-virtual-reality-vr-bikes-to-check-out/"><u>[New] 2024 Approved Top Virtual Reality (VR) Bikes to Check Out</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-asmr-a-gateway-to-enhanced-self-care/"><u>[New] ASMR A Gateway to Enhanced Self-Care</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-design-like-a-pro-free-premiere-plans-templates-2023/"><u>[New] Design Like a Pro Free Premiere Plans, Templates 2023</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-3d-lut-expertise-in-a-quick-learning-journey/"><u>[New] In 2024, 3D LUT Expertise in a Quick Learning Journey</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-advancing-training-with-vr-systems-for-2024/"><u>[Updated] Advancing Training with VR Systems for 2024</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-comprehensively-understanding-cloud-storage-with-adobe-and-why-you-should-compare/"><u>[Updated] Comprehensively Understanding Cloud Storage with Adobe and Why You Should Compare</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-green-screen-essentials-your-first-step-guide-into-color-key-techniques/"><u>[Updated] In 2024, Green Screen Essentials Your First-Step Guide Into Color Key Techniques</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-iphone-techniques-crafting-striking-silhouettes/"><u>[Updated] In 2024, IPhone Techniques Crafting Striking Silhouettes</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-ten-practical-ways-to-prevent-vr-sickness-for-2024/"><u>[Updated] Ten Practical Ways to Prevent VR Sickness for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-the-ultimate-strategy-to-turn-your-fb-page-into-cash-for-2024/"><u>[Updated] The Ultimate Strategy to Turn Your FB Page Into Cash for 2024</u></a></li>
-<li><a href="https://article-files.techidaily.com/2024-approved-the-insiders-guide-to-perfected-picture-hues/"><u>2024 Approved The Insider's Guide to Perfected Picture Hues</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/breaking-down-the-science-behind-green-screen-filmmaking-for-starters/"><u>Breaking Down the Science Behind Green Screen Filmmaking for Starters</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-the-best-ispoofer-alternative-to-try-on-vivo-s18-pro-drfone-by-drfone-virtual-android/"><u>In 2024, The Best iSpoofer Alternative to Try On Vivo S18 Pro | Dr.fone</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/mastering-image-resizing-techniques-for-windows-and-mac-users/"><u>Mastering Image Resizing Techniques for Windows and Mac Users</u></a></li>
-<li><a href="https://win-able.techidaily.com/mastering-stability-in-fall-guys-eliminate-those-puzzling-pc-freezes/"><u>Mastering Stability in Fall Guys: Eliminate Those Puzzling PC Freezes</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/sharpen-your-scopes-a-comprehensive-guide-to-close-up-roblox/"><u>Sharpen Your Scopes A Comprehensive Guide to Close-Up Roblox</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/the-ultimate-guide-to-iphones-best-5-podcasting-apps/"><u>The Ultimate Guide to iPhone's Best 5 Podcasting Apps</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/top-7-considerations-for-picking-the-right-motherboard/"><u>Top 7 Considerations for Picking the Right Motherboard</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-streaming-software-showdown-wirecast-vs-obs-explored/"><u>[New] In 2024, Streaming Software Showdown Wirecast vs OBS Explored</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ivestream-platforms-at-play-fb-vs-yt-live-and-twitspaces/"><u>[New] Livestream Platforms at Play FB Vs. YT Live & TWITSpaces</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-rank-the-best-10-cost-free-image-enhancers-for-smartphone-users-for-2024/"><u>[New] Rank the Best 10 Cost-Free Image Enhancers for Smartphone Users for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-scripted-time-warps-a-cinematic-approach-for-2024/"><u>[New] Scripted Time Warps A Cinematic Approach for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/nderstanding-youtubes-rating-mechanism-nuances-for-2024/"><u>[New] Understanding YouTube's Rating Mechanism Nuances for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-best-in-class-iphone-and-android-video-enhancers/"><u>[Updated] Best-In-Class iPhone and Android Video Enhancers</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-finding-the-key-personalized-tag-for-your-tiktok-stream/"><u>[Updated] Finding the Key Personalized Tag for Your TikTok Stream</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-non-sport-spectacles-in-the-top-ten-front-rows/"><u>[Updated] Non-Sport Spectacles in the Top Ten Front Rows</u></a></li>
+<li><a href="https://review-topics.techidaily.com/4-feasible-ways-to-fake-location-on-facebook-for-your-vivo-v30-drfone-by-drfone-virtual-android/"><u>4 Feasible Ways to Fake Location on Facebook For your Vivo V30 | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-an-ultimate-overview-of-polarr-photo-editor/"><u>In 2024, An Ultimate Overview of Polarr Photo Editor</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-best-sfpr-settings-for-leisurely-scenes/"><u>In 2024, Best SFPR Settings for Leisurely Scenes</u></a></li>
+<li><a href="https://fox-access.techidaily.com/in-2024-easy-guide-to-boost-your-videos-speed-in-snapchat/"><u>In 2024, Easy Guide to Boost Your Videos Speed in Snapchat</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ipogo-will-be-the-new-ispoofer-on-oppo-find-x6-drfone-by-drfone-virtual-android/"><u>In 2024, iPogo will be the new iSpoofer On Oppo Find X6? | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/review-of-audews-portable-air-compressor-unmatched-portability-and-dependability/"><u>Review of Audew's Portable Air Compressor: Unmatched Portability & Dependability</u></a></li>
+<li><a href="https://win11.techidaily.com/step-by-step-walkthrough-of-audio-settings-in-w11-pcs/"><u>Step-by-Step Walkthrough of Audio Settings in W11 PCs</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/the-ultimate-guide-to-3d-text-design-in-ps-for-2024/"><u>The Ultimate Guide to 3D Text Design in PS for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/ultimate-trailer-treasure-chest/"><u>Ultimate Trailer Treasure Chest</u></a></li>
 </ul></div>
 

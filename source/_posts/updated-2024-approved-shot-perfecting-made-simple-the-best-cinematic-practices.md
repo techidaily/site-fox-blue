@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Shot Perfecting Made Simple  The Best Cinematic Practices\""
-date: 2024-11-14T18:57:02.136Z
-updated: 2024-11-15T20:41:04.537Z
+date: 2024-11-24T03:59:58.089Z
+updated: 2024-11-25T03:53:51.230Z
 tags: 
   - screen-recording
   - ai video
@@ -27,6 +27,10 @@ You can use common household items to uplift the quality of your videos. But how
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Tip 1\. Smooth Camera Movement
 
 Smooth camera movement is the most basic and vital part of the video-making process. Expensive equipment is used to get smooth camera movements on a professional level.
@@ -39,7 +43,15 @@ Step 1 Attach your phone to the side of a door using duct tape or any strong tap
 
 ![smooth camera movement](https://images.wondershare.com/filmora/article-images/2022/12/smooth-camera-movement.gif)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step 2 Now open and close the door to get smooth camera movement.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Tip 2\. DIY Light Focus and Control
 
@@ -63,13 +75,6 @@ Alright! Let's check out how it looks in the video below.
 
 ![diy led panel](https://images.wondershare.com/filmora/article-images/2022/12/diy-led-panel.gif)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484944/16446" target="_top" id="1484944">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484944" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484944/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### DIY Light Flag
 
 Black color does not reflect light, so a black fabric can be used to make a DIY Light Flag. Here is a step-by-step guide to creating a light flag at home.
@@ -87,13 +92,6 @@ Step 4 Now, use this DIY Light Flag to shape or block light while filming.
 Let us see how it looks;
 
 ![diy light flag](https://images.wondershare.com/filmora/article-images/2022/12/diy-light-flag.gif)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151870/7443" target="_top" id="2151870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151870/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### DIY Black Wrap
 
@@ -117,6 +115,10 @@ Here is a GIF attached for a better understanding of the steps.
 
 ![diy black wrap](https://images.wondershare.com/filmora/article-images/2022/12/diy-black-wrap.gif)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### DIY Light Reflector
 
 A reflector is a piece of glass or any reflective surface that can redirect light to a specific spot. For example, use aluminum foil to make a Light Reflector at your home.
@@ -136,15 +138,16 @@ There is a GIF attached below to understand the steps visually.
 ![diy light reflector](https://images.wondershare.com/filmora/article-images/2022/12/diy-light-reflector.gif)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Tip 3\. DIY Light Diffuser
 
 In professional productions, light diffusers are frequently used to soften, level out the lighting, and lessen the harshness of shadows.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Diffuse Lights With a Desk Mat
 
@@ -164,16 +167,13 @@ For a better understanding of the steps, watch the GIF attached below.
 
 ![diy light diffuser](https://images.wondershare.com/filmora/article-images/2022/12/diy-light-diffuser.gif)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Tip 4\. Reveal Movement and 180° Presentation
 
 The most commonly used cinematic movements are the reveal and 180° presentation movements. A gimbal is needed to record these movements.
-
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1815678/21290" target="_top" id="1815678">
-  <img src="//a.impactradius-go.com/display-ad/21290-1815678" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815678/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Reveal Movement
 
@@ -212,10 +212,7 @@ A sample video attached below shows how to record 180 presentation movements.
 ![180 presentation movement](https://images.wondershare.com/filmora/article-images/2022/12/180-presentation-movement.gif)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528703/16446" target="_top" id="1528703">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528703" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528703/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Tip 5\. Create a Barrel Roll Shot
@@ -237,20 +234,6 @@ Step 4 Turn on the power drill at low speed and record the barrel roll shot.
 The video attached below will help you to understand these steps.
 
 ![barrel roll shot](https://images.wondershare.com/filmora/article-images/2022/12/barrel-roll-shot.gif)
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
-  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137975/21526" target="_top" id="2137975">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137975" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137975/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Final Words
 
@@ -288,24 +271,18 @@ After filming the videos, edit them using [Wondershare Filmora](https://tools.te
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-innovative-interaction-integrating-watch-with-macos/"><u>[New] 2024 Approved Innovative Interaction Integrating Watch with MacOS</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-photography-elite-line-up-best-6-4k-dslr-options-reviewed/"><u>[New] In 2024, Photography Elite Line-Up Best 6 4K DSLR Options Reviewed</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-no-pay-all-praise-tailor-made-outro-videos-here/"><u>[New] No Pay, All Praise Tailor-Made Outro Videos Here</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-stream-on-the-go-youtube-via-mobile-for-understaffed-creators/"><u>[New] Stream on the Go YouTube via Mobile for Understaffed Creators</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-building-dynamic-photographic-ensembles/"><u>[Updated] 2024 Approved Building Dynamic Photographic Ensembles</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-celebrating-the-greats-anime-opens-of-all-time/"><u>[Updated] 2024 Approved Celebrating the Greats Anime Opens of All Time</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-dynamic-tiktok-effects-a-double-approach-for-2024/"><u>[Updated] Dynamic TikTok Effects A Double Approach for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-humor-and-heartbreak-the-vhs-story-of-goofy-movie/"><u>[Updated] Humor and Heartbreak The VHS Story of Goofy Movie</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/2024-approved-consolidating-zoom-schedules-on-android-ios-and-desktop-platforms/"><u>2024 Approved Consolidating Zoom Schedules on Android, iOS & Desktop Platforms</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/assisting-with-utorrent-sync-halt-on-microsoft-operating-systems/"><u>Assisting with uTorrent Sync Halt on Microsoft Operating Systems</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/comprehensive-android-solutions-expert-guide-to-resolving-any-issue/"><u>Comprehensive Android Solutions: Expert Guide to Resolving Any Issue</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/how-to-fix-stuttering-audio-on-your-pc-with-windows-1011-ultimate-guide/"><u>How to Fix Stuttering Audio on Your PC with Windows 10/11 – Ultimate Guide</u></a></li>
-<li><a href="https://win11.techidaily.com/how-to-use-different-wallpapers-for-each-monitor-in-windows-11-and-11/"><u>How to Use Different Wallpapers for Each Monitor in Windows 11 and 11</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-infinix-smart-8-pro-to-blackberry-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Infinix Smart 8 Pro to BlackBerry | Dr.fone</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/meet-mycam-cam-the-home-video-revolution-unfolding-for-2024/"><u>Meet MyCam Cam The Home Video Revolution Unfolding for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/navigating-the-top-10-live-streaming-choices/"><u>Navigating the Top 10 Live Streaming Choices</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/g-darkness-for-a-bright-youtube-experience-for-2024/"><u>Taming Darkness for a Bright YouTube Experience for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/the-ultimate-upgrade-list-best-accessories-for-phantom-4/"><u>The Ultimate Upgrade List Best Accessories for Phantom 4</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/webcam-mastery-choosing-the-best-for-your-podcast/"><u>Webcam Mastery Choosing the Best for Your Podcast</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-unveiling-top-tiktok-edit-techniques-for-max-impact/"><u>[New] 2024 Approved Unveiling Top TikTok Edit Techniques for Max Impact</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-behind-the-scenes-crafting-a-screenplay-for-2024/"><u>[New] Behind the Scenes Crafting a Screenplay for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-unveiling-the-power-of-picture-in-picture-on-apple-devices/"><u>[New] In 2024, Unveiling the Power of Picture-in-Picture on Apple Devices</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-top-15-tripods-and-mounts-for-gopro/"><u>[New] Top 15 Tripods and Mounts for GoPro</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-video-show-reviewed-detailed-analysis-of-the-2024-edition/"><u>[New] Video Show Reviewed Detailed Analysis of the 2024 Edition</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-infuse-audiovisual-experience-in-ppt/"><u>[Updated] 2024 Approved Infuse Audiovisual Experience in PPT</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-express-faster-window-photo-sorter/"><u>[Updated] In 2024, Express Faster Window Photo Sorter</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-harnessing-online-platforms-beyond-youtube-to-30plus-communities/"><u>[Updated] In 2024, Harnessing Online Platforms Beyond YouTube to 30+ Communities</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-3-methods-to-mirror-lava-agni-2-5g-to-roku-drfone-by-drfone-android/"><u>In 2024, 3 Methods to Mirror Lava Agni 2 5G to Roku | Dr.fone</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-secret-sonic-snatchers-6-in-the-shadows-voice-recording-apps/"><u>In 2024, Secret Sonic Snatchers 6 In-the-Shadows Voice Recording Apps</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-the-ultimate-guide-to-optimal-screen-recording/"><u>In 2024, The Ultimate Guide to Optimal Screen Recording</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/johannes-honterus-messenger-of-motivation/"><u>Johannes Honterus: Messenger of Motivation</u></a></li>
+<li><a href="https://discover-fantastic.techidaily.com/logiciels-successeurs-du-wd-smartware-pour-windows-11-solutions-innovantes-et-fiables/"><u>Logiciels Successeurs Du WD SmartWare Pour Windows 11: Solutions Innovantes Et Fiables</u></a></li>
 </ul></div>
 

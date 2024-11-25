@@ -1,7 +1,7 @@
 ---
 title: "Innovative Approaches to Background Blanketing in Affinity Photo for 2024"
-date: 2024-09-04T20:49:42.467Z
-updated: 2024-09-05T20:49:42.467Z
+date: 2024-11-18T05:37:30.281Z
+updated: 2024-11-24T23:51:17.866Z
 tags: 
   - screen-recording
   - ai video
@@ -40,9 +40,17 @@ Step2 Go to the **"Layers"** tab in the right pane, right-click your layer, and 
 
 ![unlocking the image layer in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/unlocking-the-image-layer-in-affinity-designer.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step3 To make a selection around your subject, first enable the **"Snap To Edges"** and **"Soft Edges"** feature from the top toolbar. This will help you automatically detect the edges and give it a more tapered finish.
 
 ![enabling snap to edges and soft edges in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/enabling-snap-to-edges-and-soft-edges-in-affinity-designer.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Set your brush size using your keyboard's **left** and **right bracket** keys. Now, manually make a selection around your subject and white edges in the image as precisely as possible.
 
@@ -83,20 +91,12 @@ Finally, click **"File"** and select the **"Export"** option from the drop-down 
 
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Note:** To save your image with a transparent background, do not export it in JPG file format.
 
-<!-- affiliate ads begin -->
-<span id="1531882">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## The Best Alternative of Affinity Photo
 
 Since Affinity Photo is a desktop software available for a one-time purchase of $40.99, you might be looking for an online free alternative if you need more space or can afford the subscription fee.
@@ -105,12 +105,6 @@ Therefore, we recommend using [Wondershare PixCut](https://pixcut.wondershare.co
 
 ![wondershare pixcut for removing image background](https://images.wondershare.com/filmora/article-images/2023/03/wondershare-pixcut-for-removing-image-background.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068417/7443" target="_top" id="2068417">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068417" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068417/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Editing experts recommend Wondershare PixCut as the best alternative to many editing problems. An AI-powered automatic editing tool, this software has quicker solutions for you when it comes to removing an image's background. Some of its many benefits are:
 
 * Offline and online image editing tools.
@@ -128,11 +122,9 @@ Editing experts recommend Wondershare PixCut as the best alternative to many edi
 * Customized categories that include e-commerce, car dealership, social media, graphic designing, personal, and marketing use.
 
 <!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576477/17382" target="_top" id="1576477">
-  <img src="//a.impactradius-go.com/display-ad/17382-1576477" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576477/17382" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Conclusion
 
 This article discusses **removing a background in Affinity Photo**, whether the image has a white or a busy BG.
@@ -144,17 +136,9 @@ And if you have any interests in finding free images to expand your resource, yo
 Hopefully, this article and video can help you create ideal images!
 
 <!-- affiliate ads begin -->
-<span id="1983584">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983584.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983584">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983584.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983584%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983584/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## The Best Alternative of Affinity Photo
 
 Since Affinity Photo is a desktop software available for a one-time purchase of $40.99, you might be looking for an online free alternative if you need more space or can afford the subscription fee.
@@ -163,12 +147,6 @@ Therefore, we recommend using [Wondershare PixCut](https://pixcut.wondershare.co
 
 ![wondershare pixcut for removing image background](https://images.wondershare.com/filmora/article-images/2023/03/wondershare-pixcut-for-removing-image-background.png)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/798161/11305" target="_top" id="798161">
-  <img src="//a.impactradius-go.com/display-ad/11305-798161" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798161/11305" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Editing experts recommend Wondershare PixCut as the best alternative to many editing problems. An AI-powered automatic editing tool, this software has quicker solutions for you when it comes to removing an image's background. Some of its many benefits are:
 
 * Offline and online image editing tools.
@@ -185,12 +163,6 @@ Editing experts recommend Wondershare PixCut as the best alternative to many edi
 * Paid and customized accounts for premium benefits.
 * Customized categories that include e-commerce, car dealership, social media, graphic designing, personal, and marketing use.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049391/7443" target="_top" id="2049391">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049391" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049391/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Conclusion
 
 This article discusses **removing a background in Affinity Photo**, whether the image has a white or a busy BG.
@@ -223,4 +195,26 @@ Hopefully, this article and video can help you create ideal images!
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-maximizing-image-excellence-zero-price-tag/"><u>[New] 2024 Approved Maximizing Image Excellence, Zero Price Tag</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-streamline-your-travel-narratives-top-ios-techniques-for-podcasting/"><u>[New] 2024 Approved Streamline Your Travel Narratives Top iOS Techniques for Podcasting</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-command-prompt-wizardry-opening-srt-in-winosx-for-2024/"><u>[New] Command Prompt Wizardry Opening SRT in Win/OSX for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-fb-videos-unleashed-with-new-mobile-app-for-2024/"><u>[New] FB Videos Unleashed with New Mobile App for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-visual-flair-a-collection-of-ae-text-presets/"><u>[New] In 2024, Visual Flair A Collection of AE Text Presets</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-steer-clear-of-virtual-reality-sickness-for-2024/"><u>[New] Steer Clear of Virtual Reality Sickness for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-ghostly-replay-instructional-guide/"><u>[Updated] Ghostly Replay Instructional Guide</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-premiere-previews-extravaganza/"><u>2024 Approved Premiere Previews Extravaganza</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-subtitled-on-the-go-zip-to-srt-conversion-techniques/"><u>2024 Approved Subtitled on the Go ZIP-to-SRT Conversion Techniques</u></a></li>
+<li><a href="https://blog-min.techidaily.com/best-3-software-to-transfer-files-tofrom-your-samsung-galaxy-m14-5g-via-a-usb-cable-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Best 3 Software to Transfer Files to/from Your Samsung Galaxy M14 5G via a USB Cable | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/building-a-successful-facebook-charity-competition-for-2024/"><u>Building a Successful Facebook Charity Competition for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/comprehensive-instructions-for-incorporating-smileys-in-iphone-conversations/"><u>Comprehensive Instructions for Incorporating Smileys in iPhone Conversations</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/cross-social-smiles-top-meme-picks-on-reddit-and-twitter-for-2024/"><u>Cross-Social Smiles Top Meme Picks on Reddit & Twitter for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/how-to-determine-if-an-ai-chatbot-service-is-right-for-you-7-critical-considerations/"><u>How To Determine If An AI Chatbot Service Is Right For You: 7 Critical Considerations</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-choosing-the-ultimate-action-cam-does-black-gopro-outshine-x1000v/"><u>In 2024, Choosing the Ultimate Action Cam Does Black GoPro Outshine X1000V?</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-samsung-galaxy-s23-ultra-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>In 2024, How to Cast Samsung Galaxy S23 Ultra to Computer for iPhone and Android? | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-shadows-and-highlights-for-text-depth-in-illustrator/"><u>In 2024, Shadows & Highlights for Text Depth in Illustrator</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-unveiling-techniques-for-3d-text-transformation-in-ps/"><u>In 2024, Unveiling Techniques for 3D Text Transformation in PS</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/winxdvd-officiel-software-dextraction-et-conversion-de-dvd-pour-iphoneipad-transfers/"><u>WinXDVD : Officiel Software D'Extraction Et Conversion De DVD Pour iPhone/iPad Transfers</u></a></li>
+</ul></div>
 

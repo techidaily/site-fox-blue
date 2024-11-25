@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Dynamic Dialogue Driven Decks\""
-date: 2024-11-11T17:02:59.551Z
-updated: 2024-11-15T18:45:01.782Z
+date: 2024-11-23T22:52:21.206Z
+updated: 2024-11-24T18:17:49.408Z
 tags: 
   - screen-recording
   - ai video
@@ -39,6 +39,10 @@ You get 110 animated elements that you can apply to the text in your video. The 
 
 ![liquid text animation effect ae](https://images.wondershare.com/filmora/article-images/2022/07/liquid-text-animation-effect-ae.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 3\. Dynamic Text Animations
 
 There is always a high demand for dynamic text animations in After Effects. This pack focuses on three types of animations namely bounce, kinetic and overshoot. You get 50 presets, 20 title scenes as well as 10 different typography scenes. You can animate texts, titles, as well as characters. You can even adjust the properties to match your video content as per your requirements. In fact, there are advanced controls available for further customization.
@@ -46,16 +50,7 @@ There is always a high demand for dynamic text animations in After Effects. This
 ![dynamic text animations ae](https://images.wondershare.com/filmora/article-images/2022/07/dynamic-text-animations-ae.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1834903">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 4\. Squash & Stretch Preset
@@ -65,10 +60,11 @@ If you want to add texts and titles in your video that looks like the games mean
 ![squash stretch preset ae](https://images.wondershare.com/filmora/article-images/2022/07/squash-stretch-preset-ae.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 5\. CounterPro Preset
@@ -78,10 +74,7 @@ In this pack, you will find unique text effects, and you can animate text with k
 ![counterpro preset ae](https://images.wondershare.com/filmora/article-images/2022/07/counterpro-preset-ae.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 6\. Text Library
@@ -91,10 +84,7 @@ If there is a must-have preset you should manage to have in After Effects is Tex
 ![text library effect ae](https://images.wondershare.com/filmora/article-images/2022/07/text-library-effect-ae.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136624/26400" target="_top" id="2136624">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136624" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136624/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 7\. Kinetic Text Animation
@@ -108,13 +98,6 @@ Kinetic text effect is a part of dynamic text effects and there is a high demand
 You get eleven styles of elements in the pack, and you can customize the designs to get into any size as per your requirements. You get the elements in HD and Full HD resolution, and you can use them in the intro or outro of the video to show text and title credits. You can also use them to show quotes or keywords. Most of them have highlighted background, and technically, they are referred to as lower thirds.
 
 ![text animation lower thirds ae](https://images.wondershare.com/filmora/article-images/2022/07/text-animation-lower-thirds-ae.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576477/17382" target="_top" id="1576477">
-  <img src="//a.impactradius-go.com/display-ad/17382-1576477" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576477/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## The Bottom Line
 
@@ -150,21 +133,24 @@ As the saying goes, the more the merrier and the more presets you have, the more
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-essential-tips-for-iphone-shadow-photography/"><u>[New] 2024 Approved Essential Tips for iPhone Shadow Photography</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-speedy-shot-mastery-discovering-the-best-5-hacks-for-filming/"><u>[New] Speedy Shot Mastery Discovering the Best 5 Hacks for Filming</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-gamers-paradise-our-candidate-7-best-fps-titles-for-2024/"><u>[Updated] Gamer's Paradise Our Candidate 7 Best FPS Titles for 2024</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-tackling-frame-loss-best-practices-for-obs-users/"><u>[Updated] In 2024, Tackling Frame Loss Best Practices for OBS Users</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-optimal-card-selection-for-professional-video-editing-for-2024/"><u>[Updated] Optimal Card Selection for Professional Video Editing for 2024</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-the-excellent-videocameras-of-the-year-2024/"><u>[Updated] The Excellent Videocameras of the Year 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-the-perfect-snap-infusing-dynamic-blur-into-faces-through-picsart-editing/"><u>[Updated] The Perfect Snap Infusing Dynamic Blur Into Faces Through Picsart Editing</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/efficiently-capture-whatsapp-chat-a-step-by-step-tutorial-for-2024/"><u>Efficiently Capture WhatsApp Chat A Step-by-Step Tutorial for 2024</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-text-messages-from-samsung-galaxy-f04-to-new-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Text Messages from Samsung Galaxy F04 to New Phone | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-can-life360-track-you-when-your-samsung-galaxy-m14-4g-is-off-drfone-by-drfone-virtual-android/"><u>In 2024, Can Life360 Track You When Your Samsung Galaxy M14 4G is off? | Dr.fone</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-essential-tips-for-audio-gradual-decline-in-premiere-pro/"><u>In 2024, Essential Tips for Audio Gradual Decline in Premiere Pro</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-innovating-visual-storytelling-drone-techniques/"><u>In 2024, Innovating Visual Storytelling Drone Techniques</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/ios-excellence-leading-apps-to-unlock-youtube-videos/"><u>IOS Excellence Leading Apps to Unlock YouTube Videos</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/preparation-to-beat-giovani-in-pokemon-go-for-honor-play-40c-drfone-by-drfone-virtual-android/"><u>Preparation to Beat Giovani in Pokemon Go For Honor Play 40C | Dr.fone</u></a></li>
-<li><a href="https://win-bits.techidaily.com/ripara-i-download-non-riusciti-di-windows-11-con-questi-5-semplici-passaggi/"><u>Ripara I Download Non Riusciti Di Windows 11 Con Questi 5 Semplici Passaggi</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/unlocking-the-full-potential-of-zoom-on-chromeos-for-2024/"><u>Unlocking the Full Potential of Zoom on ChromeOS for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-iconic-top-tier-virtual-reality-films/"><u>[New] 2024 Approved Iconic Top-Tier Virtual Reality Films</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/dentifying-and-accessing-your-music-picks-on-youtube-for-2024/"><u>[New] Identifying and Accessing Your Music Picks on Youtube for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-step-up-your-photography-game-with-these-top-8-tablets/"><u>[New] In 2024, Step Up Your Photography Game With These Top 8 Tablets</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-picsart-background-removal-tool-a-step-by-step-guide/"><u>[New] Picsart Background Removal Tool A Step-By-Step Guide</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-spectrum-screens-a-new-film-language-for-2024/"><u>[New] Spectrum Screens A New Film Language for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-tailored-strategies-for-free-clock-usage-optimization-for-2024/"><u>[New] Tailored Strategies for FREE Clock Usage Optimization for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-ultimate-digital-boutiques-unique-personalized-present-boxes/"><u>[Updated] 2024 Approved Ultimate Digital Boutiques Unique, Personalized Present Boxes</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-igniting-success-the-youtubers-playbook/"><u>[Updated] Igniting Success The YouTuber's Playbook</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-grasp-the-art-of-steadiness-in-photography/"><u>[Updated] In 2024, Grasp the Art of Steadiness in Photography</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-magic-photo-management-decoded-by-reviews/"><u>[Updated] In 2024, Magic Photo Management Decoded by Reviews</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-the-most-effective-9-microphone-capture-tools-online-2e/"><u>[Updated] In 2024, The Most Effective 9 Microphone Capture Tools Online (2E)</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-tomtom-actioncams-latest-features/"><u>[Updated] In 2024, TomTom ActionCam's Latest Features</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-the-basic-blueprint-for-choosing-gamer-friendly-recordings-and-edits-for-2024/"><u>[Updated] The Basic Blueprint for Choosing Gamer-Friendly Recordings & Edits for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-special-features-virtual-location-on-nokia-c210-drfone-by-drfone-virtual-android/"><u>How To Use Special Features - Virtual Location On Nokia C210? | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-a-deep-dive-into-apples-m1-processor-power/"><u>In 2024, A Deep Dive Into Apple's M1 Processor Power</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-streamlined-techniques-to-log-and-preserve-gotomeetings/"><u>In 2024, Streamlined Techniques to Log and Preserve GoToMeetings</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-the-essential-components-of-podcast-scripting-guide-plus-free-examples/"><u>In 2024, The Essential Components of Podcast Scripting (Guide + Free Examples)</u></a></li>
+<li><a href="https://fox-access.techidaily.com/initiate-impact-a-strategic-blueprint-for-setting-up-a-tech-reviews-channel-for-2024/"><u>Initiate Impact A Strategic Blueprint for Setting Up a Tech Reviews Channel for 2024</u></a></li>
+<li><a href="https://discover-brilliant.techidaily.com/transform-dvds-into-high-quality-mp4-files-with-winx-for-mac-perfect-compatibility-with-iphone-and-ipad/"><u>Transform DVDs Into High-Quality Mp4 Files with WinX for Mac - Perfect Compatibility with iPhone and iPad</u></a></li>
 </ul></div>
 

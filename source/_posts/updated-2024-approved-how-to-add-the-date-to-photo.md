@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  How to Add the Date to Photo\""
-date: 2024-11-08T18:48:01.108Z
-updated: 2024-11-15T18:35:51.138Z
+date: 2024-11-18T23:30:19.910Z
+updated: 2024-11-25T05:28:13.349Z
 tags: 
   - screen-recording
   - ai video
@@ -88,6 +88,10 @@ Step4Go back and take a picture to verify if it works.
 
 Step5You should note that the time stamp option could also appear as Watermark.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Use the inbuilt photo app to edit photos on Android and iPhone
 
 You can edit photos on Android and iOS devices. Click your phone's default camera to edit photos on both platforms.
@@ -148,19 +152,6 @@ VSCO is another editing app you can use for your photo editing. VSCO has an easy
 
 ![vsco](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-4.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1899850">
-					<video width="486" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Key Features**
 
 * Color Correction
@@ -188,6 +179,10 @@ First, to resize an image in the Photos app on a Mac, enter editing mode by clic
 
 ![straighten flip rotate and crop](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-5.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##### Step2Sharpen your images
 
 You can make your photos sharper by simply navigating to the bottom of the Modify menu in the Photos app and selecting Sharpen.
@@ -200,6 +195,10 @@ When retouching your image in the Photos app, select the Adjust tab, then drag t
 
 ![adjust lighting and exposure](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-7.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Use inbuilt photo app on mac to add date stamps
 
 **Adding a date in a photo** can also be done on a Mac pc. Below are the steps to take to **add the date to a photo** with a Mac
@@ -210,13 +209,6 @@ Step2Then select Show Markup Tool.
 
 ![select show markup tool](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-8.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step3Click on the text button.
 
 ![click on the text button](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-9.jpg)
@@ -225,23 +217,9 @@ Step4Proceed to add date and time into the text area manually.
 
 ![add data and time](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-10.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step5When ready, drag and slide the date to the area of the image where you wish to stamp it.
 
 ![place the date and time](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-11.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012429/19272" target="_top" id="2012429">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012429" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012429/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step6Finally, select File>Save to add your date to the picture.
 
@@ -283,6 +261,10 @@ Step7Proceed to click on the Save option.
 
 ![click on save option](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-18.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 4\. Edit Photos Online to add date stamps
 
 **You can add dates to photos online** via several platforms. Several websites make that possible. Let’s look at some of the platforms and the features they provide.
@@ -305,13 +287,6 @@ Canva is a standout online photo editor where you can edit your and **add date t
 
 ![ftor](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-20.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Key Features**
 
 * Portrait Retouching
@@ -326,10 +301,7 @@ PIXLR is another great online platform that can be used to **edit pictures onlin
 ![pixlp](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-21.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068433/7443" target="_top" id="2068433">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068433" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068433/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Key features**
@@ -355,13 +327,6 @@ Hopefully, these steps will be helpful if you ever want to **add a date** or **e
 1. [Canva](#part4-1)  
 2. [Fotor](#part4-2)  
 3. [PIXLR](#part4-3)
-
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1172027/12108" target="_top" id="1172027">
-  <img src="//a.impactradius-go.com/display-ad/12108-1172027" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1172027/12108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 1\. Add Date Stamps Using Third-Party Camera Apps
 
@@ -423,6 +388,10 @@ Why knowing **how to add date to a photo** with your in-built app is important; 
 
 You can make use of other photo editing apps to edit your pictures. Here are three applications that you will find useful to do this.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **Instasize**
 
 Instasize is an app that you will find quite useful. The app was developed for influencers and social media users who wish to produce captivating, imaginative images and films..
@@ -464,6 +433,10 @@ You can download the app on [android](https://play.google.com/store/apps/details
 VSCO is another editing app you can use for your photo editing. VSCO has an easy-to-use UI and many useful functions. The enormous filter library, which can be used to improve your photographs and make them shareable, is its best feature.
 
 ![vsco](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Key Features**
 
@@ -522,6 +495,10 @@ Step4Proceed to add date and time into the text area manually.
 
 ![add data and time](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-10.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step5When ready, drag and slide the date to the area of the image where you wish to stamp it.
 
 ![place the date and time](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-11.jpg)
@@ -550,6 +527,10 @@ Step3Go to the screen's top and click Text.
 
 ![click on text](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-14.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step4To create a text box, click and drag.
 
 ![create a text box](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-15.jpg)
@@ -558,16 +539,13 @@ Step5Enter the date you want.
 
 ![enter date](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-16.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144289/7443" target="_top" id="2144289">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144289" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144289/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step6Select Menu in the upper-left corner.
 
 ![select menu](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-17.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step7Proceed to click on the Save option.
 
@@ -646,20 +624,24 @@ Hopefully, these steps will be helpful if you ever want to **add a date** or **e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-petite-narrative-blueprint/"><u>[New] 2024 Approved Petite Narrative Blueprint</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-streamlining-inshot-cuts-for-professional-edge-for-2024/"><u>[New] Streamlining Inshot Cuts for Professional Edge for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-the-hidden-paths-techniques-to-skip-without-watching-edgenuity-videos/"><u>[New] The Hidden Paths Techniques to Skip Without Watching Edgenuity Videos</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-connect-and-captivate-youtube-twitter-and-facebook-using-zoom/"><u>[Updated] 2024 Approved Connect and Captivate YouTube, Twitter & Facebook Using Zoom</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-joke-makers-haven-get-it-today/"><u>[Updated] 2024 Approved Joke Makers' Haven - Get It Today</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/1715860274631-updated-efficient-chrome-os-snaps-4-techniques-to-try/"><u>[Updated] Efficient Chrome OS Snaps - 4 Techniques to Try!</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-headset-face-off-rift-vive-and-playstations-vr-standards-for-2024/"><u>[Updated] Headset Face-Off Rift, Vive & PlayStation's VR Standards for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-sharing-lifes-moments-with-your-online-audience/"><u>[Updated] Sharing Life's Moments with Your Online Audience</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/1723016402639-apex-legends-voice-chat-trouble-here-are-the-best-solutions/"><u>Apex Legends Voice Chat Trouble? Here Are the Best Solutions</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/apple-m1-explained-the-future-in-your-hands/"><u>Apple M1 Explained The Future in Your Hands</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/best-photo-and-video-display-apps-from-xi-to-x/"><u>Best Photo & Video Display Apps From XI to X</u></a></li>
-<li><a href="https://howto.techidaily.com/how-to-fix-it-oppo-a1x-5g-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix It Oppo A1x 5G Wont Turn On | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-use-google-assistant-on-your-lock-screen-of-samsung-galaxy-a05-phone-by-drfone-android/"><u>How to Use Google Assistant on Your Lock Screen Of Samsung Galaxy A05 Phone</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/innovative-browsing-strategies-with-picture-in-picture-mode-for-2024/"><u>Innovative Browsing Strategies with Picture-In-Picture Mode for 2024</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/sequential-watchlist-for-every-superman-movie-ever-made/"><u>Sequential Watchlist for Every Superman Movie Ever Made!</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-a-step-by-step-metaverse-marketing-plan/"><u>[New] 2024 Approved A Step-by-Step Metaverse Marketing Plan</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-android-advantage-5-unique-playlist-downloaders-reviewed-for-2024/"><u>[New] Android Advantage 5 Unique Playlist Downloaders Reviewed for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-an-in-depth-look-at-basic-and-simplified-hdr-photography/"><u>[New] In 2024, An In-Depth Look at Basic and Simplified HDR Photography</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-the-definitive-guide-to-captivating-podcast-covers/"><u>[New] In 2024, The Definitive Guide to Captivating Podcast Covers</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-the-ultimate-guide-to-digitizing-and-saving-faded-frames-for-2024/"><u>[New] The Ultimate Guide to Digitizing and Saving Faded Frames for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-meme-ing-in-virtual-space-top-funny-vr-imagery-and-how-to-make-it/"><u>[Updated] 2024 Approved Meme-Ing in Virtual Space Top Funny VR Imagery and How to Make It</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-adding-descriptive-titlestexts-via-microsoft-photos-win-11/"><u>[Updated] In 2024, Adding Descriptive Titles/Texts via Microsoft Photos Win 11</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-advanced-color-techniques-incorporating-luts-for-cinematic-flair/"><u>[Updated] In 2024, Advanced Color Techniques Incorporating Luts for Cinematic Flair</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-review-magix-editing-suite-for-2024/"><u>[Updated] Review MAGIX Editing Suite for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-the-ultimate-action-plan-from-ttml-and-xml-to-srt-translation/"><u>[Updated] The Ultimate Action Plan From TTML & XML to SRT Translation</u></a></li>
+<li><a href="https://win-blog.techidaily.com/bypass-common-steamvr-hiccups-with-these-quick-tips-now-resolved/"><u>Bypass Common SteamVR Hiccups with These Quick Tips - Now Resolved!</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/gratitude-archive-complete-collection-freepaid/"><u>Gratitude Archive Complete Collection (Free/Paid)</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-tecno-phantom-v-flip-drfone-by-drfone-virtual-android/"><u>In 2024, Can I use iTools gpx file to catch the rare Pokemon On Tecno Phantom V Flip | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-change-xiaomi-redmi-note-12t-pro-lock-screen-clock-in-seconds-by-drfone-android/"><u>In 2024, How To Change Xiaomi Redmi Note 12T Pro Lock Screen Clock in Seconds</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-samsung-galaxy-m34-to-mac-drfone-by-drfone-android/"><u>In 2024, How to Mirror Samsung Galaxy M34 to Mac? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-itel-p55-location-without-installing-software-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Itel P55 Location without Installing Software? | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/maximizing-color-correction-advanced-techniques-for-lut-applications/"><u>Maximizing Color Correction Advanced Techniques for LUT Applications</u></a></li>
+<li><a href="https://discover-answers.techidaily.com/pc-strategies-for-thriving-in-league-of-legends-wild-rift-the-popular-moba-phenomenon/"><u>PC Strategies for Thriving in 'League of Legends: Wild Rift', The Popular MOBA Phenomenon</u></a></li>
+<li><a href="https://ai-voice.techidaily.com/updated-top-6-mickey-mouse-voice-generators/"><u>Updated Top 6 Mickey Mouse Voice Generators</u></a></li>
 </ul></div>
 

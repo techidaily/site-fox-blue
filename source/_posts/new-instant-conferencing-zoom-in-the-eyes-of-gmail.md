@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Instant Conferencing  Zoom in the Eyes of Gmail\""
-date: 2024-11-12T20:34:35.893Z
-updated: 2024-11-15T18:40:35.877Z
+date: 2024-11-20T00:56:43.776Z
+updated: 2024-11-25T00:52:04.602Z
 tags: 
   - screen-recording
   - ai video
@@ -63,6 +63,10 @@ You will need your account administrator's prior consent if your Gmail account i
 
 ![allow zoom meetings google account](https://images.wondershare.com/filmora/article-images/2022/07/allow-zoom-meetings-google-account.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2\. How to start a meeting from Zoom for Gmail
 
 G Suite and Zoom may be integrated in both ways. Therefore, each meeting you schedule on Zoom will have an invite link that is instantly posted to your Google Calendar. Install it after logging out of all other Google accounts and signing into the one you wish to add it to. Another feature of the Zoom for Gmail add-on is the ability to book a Zoom conference directly from Gmail. The meeting subject will automatically be pulled from the email subject line into the Google Calendar event. Simply login into Gmail in your browser and start a new email message to begin organizing Zoom meetings. Here's how to set up a Zoom meeting on your Google Calendar and invite participants:
@@ -72,19 +76,6 @@ G Suite and Zoom may be integrated in both ways. Therefore, each meeting you sch
 Step1 Install the "Zoom for G-Suite" plugin, that is free, from the official G-Suite store after logging into your Google account.
 
 ![install zoom for gsuite](https://images.wondershare.com/filmora/article-images/2022/07/install-zoom-for-gsuite.jpg)
-
-<!-- affiliate ads begin -->
-<span id="2135471">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 To get install rights if you are using an enterprise account, get in touch with your IT administrator. A lot of rights, including complete access to your whole contact list, are also required by the add-on. Skip this technique and look at Method 2, which does not need the add-on, if that makes you uncomfortable.
 
@@ -100,33 +91,21 @@ Step4 Next, check for the "Add Conferencing" box when creating a new Google Cale
 
 ![add conference google calendar](https://images.wondershare.com/filmora/article-images/2022/07/add-conference-google-calendar.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step5 The Meeting ID, password, and passcode will now be automatically filled in by the add-on in the Calendar event. Additionally, it will provide a link with joining instructions, which should be helpful for anyone who are unfamiliar with Zoom. You may now invite people to the meeting by clicking on the freshly created event in Google Calendar and using the "Add Guests" section. Finally, choose the "envelope" symbol to send guests an email invitation.
 
 ![add guests zoom meeting](https://images.wondershare.com/filmora/article-images/2022/07/add-guests-zoom-meeting.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1982596">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3\. Tips to Use Zoom for Gmail
 
 Two of the most popular productivity tools are Zoom and G Suite, which are utilized by both businesses and individuals. Users can simply book Zoom meetings from inside Google Calendar and invite friends, family, and coworkers to participate thanks to the connectivity between the two.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135419/19272" target="_top" id="2135419">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135419" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135419/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Calendar Link Addition
 
@@ -134,15 +113,16 @@ Without the add-on, you may still include a link to a Zoom meeting in a Google C
 
 ![calendar link addition meeting](https://images.wondershare.com/filmora/article-images/2022/07/calendar-link-addition-meeting.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Create a new meeting by using the Zoom client on your PC (or Android or iOS phone). Then, on the Meetings page, select the "Copy Invitation" option.
 * Open a web browser and log in to Google. After that, enter Google Calendar and manually paste the meeting details into the "Notes" area at the bottom before adding the Zoom invite link. Finally, choose "Save." As previously mentioned, you may now use the email link to add guests and send invitations.
 * After accepting the invitation, the participants will see the meeting link in their Google Calendar and be able to join by clicking the link or the "Join Zoom Meeting" option.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148646/16836" target="_top" id="2148646">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148646" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148646/16836" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Make a Video Recording of the Call
@@ -157,6 +137,10 @@ Use the [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) sc
 
 ![make recording of zoom call](https://images.wondershare.com/filmora/article-images/2022/07/make-recording-of-zoom-call.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Create Meeting Template
 
 With one URL and preserved settings, create recurring meetings. You may set up a recurring meeting with Zoom for weekly meetings, monthly check-ins, and other regularly scheduled calls. The use of this option has two advantages. First of all, you may set all the call preferences you'd like once and have them remain in effect each time you meet. Second, because repeating calls utilize the same join URL each time, you never need to provide attendees with a new one.
@@ -164,10 +148,7 @@ With one URL and preserved settings, create recurring meetings. You may set up a
 ![create zoo mmeeting template](https://images.wondershare.com/filmora/article-images/2022/07/create-zoom-meeting-template.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037351/7443" target="_top" id="2037351">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037351" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037351/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -195,20 +176,20 @@ In a nutshell, so that everyone can arrive on time, you would be able to easily 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-seo-excellence-transforming-podcast-discoverability/"><u>[New] In 2024, SEO Excellence Transforming Podcast Discoverability</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-the-ultimate-guide-to-top-online-tools-for-perfecting-your-video-subtitles/"><u>[New] The Ultimate Guide to Top Online Tools for Perfecting Your Video Subtitles</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-voices-vibrate-on-vinyl-perfecting-podcast-scriptwriting/"><u>[New] Voices Vibrate on Vinyl Perfecting Podcast Scriptwriting</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-crafting-conversational-mastery-step-by-step-guide-to-free-voice-modification-tools/"><u>[Updated] 2024 Approved Crafting Conversational Mastery Step-by-Step Guide to Free Voice Modification Tools</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-tackling-iphone-lens-failures-with-ease/"><u>[Updated] 2024 Approved Tackling iPhone Lens Failures with Ease</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-ultimate-strategies-for-stunning-iphone-nature-photography/"><u>[Updated] 2024 Approved Ultimate Strategies for Stunning iPhone Nature Photography</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-thrifty-aetherspace-vault-massive-files-affordably/"><u>[Updated] In 2024, Thrifty Aetherspace Vault Massive Files Affordably</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-conjuring-chrono-displacement-with-digital-magic/"><u>In 2024, Conjuring Chrono-Displacement with Digital Magic</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/in-2024-creating-a-space-for-feedback-talking-with-your-viewers/"><u>In 2024, Creating a Space for Feedback Talking with Your Viewers</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/in-2024-freeze-your-pc-display-effortlessly/"><u>In 2024, Freeze Your PC Display Effortlessly</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/in-depth-analysis-the-best-livestreaming-video-tech/"><u>In-Depth Analysis The Best Livestreaming Video Tech</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/lock-your-oppo-find-x6-phone-in-style-the-top-5-gesture-lock-screen-apps-by-drfone-android/"><u>Lock Your Oppo Find X6 Phone in Style The Top 5 Gesture Lock Screen Apps</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/reviewers-take-on-the-ergodyne-topo-pad-a-step-towards-endurance-and-comfort-at-work/"><u>Reviewer's Take on the ErgoDyne Topo Pad: A Step Towards Endurance and Comfort at Work</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/the-best-android-sim-unlock-code-generators-unlock-your-tecno-phantom-v-fold-phone-hassle-free-by-drfone-android/"><u>The Best Android SIM Unlock Code Generators Unlock Your Tecno Phantom V Fold Phone Hassle-Free</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/youtube-live-pro-tips-outfitting-with-excellent-webcams-for-2024/"><u>YouTube Live Pro Tips Outfitting with Excellent Webcams for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-leveraging-spotifys-advertising-mechanisms/"><u>[New] 2024 Approved Leveraging Spotify's Advertising Mechanisms</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-free-high-quality-desktop-video-encoding-software/"><u>[New] Free, High-Quality Desktop Video Encoding Software</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-edu-core-definitive-learning-channels-online/"><u>[New] In 2024, Edu-Core Definitive Learning Channels Online</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-ultimate-15-color-grading-plugins-for-action-cam-video/"><u>[New] In 2024, Ultimate 15 Color Grading Plugins for Action Cam Video</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-seamless-video-conferencing-zoom-and-xbox-playground/"><u>[Updated] 2024 Approved Seamless Video Conferencing Zoom & Xbox Playground</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-the-art-of-video-grading-a-practical-handbook/"><u>[Updated] In 2024, The Art of Video Grading A Practical Handbook</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-the-uav-connoisseurs-guide-to-essential-equipment/"><u>[Updated] In 2024, The UAV Connoisseur's Guide to Essential Equipment</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-webcapture-pro-live-chat-videos/"><u>[Updated] In 2024, WebCapture Pro Live Chat Videos</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-your-key-to-creative-advertising-access-all-50-free-youtube-banner-designs/"><u>[Updated] In 2024, Your Key to Creative Advertising Access All 50 FREE YouTube Banner Designs</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-your-ultimate-playbook-to-monetize-youtube-traffic/"><u>[Updated] Your Ultimate Playbook to Monetize Youtube Traffic</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-behind-the-scenes-with-slow-motion-in-reels/"><u>2024 Approved Behind the Scenes with Slow Motion in Reels</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dive-into-a-new-culture-mastering-croatian-here-are-the-top-7-reasons/"><u>Dive Into a New Culture - Mastering Croatian: Here Are The Top 7 Reasons!</u></a></li>
+<li><a href="https://win-able.techidaily.com/fixing-frame-drops-lag-and-stuttering-for-a-smoother-half-life-alyx-experience-on-your-computer/"><u>Fixing Frame Drops, Lag, and Stuttering for a Smoother Half-Life: Alyx Experience on Your Computer</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-the-definitive-list-high-quality-costless-lut-options-explored/"><u>In 2024, The Definitive List High-Quality, Costless LUT Options Explored</u></a></li>
+<li><a href="https://common-error.techidaily.com/mastering-hosted-network-connectivity-in-windows-11-a-comprehensive-guide/"><u>Mastering Hosted Network Connectivity in Windows 11 - A Comprehensive Guide</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Giggles Galore  Crafting Memes in Adobe\""
-date: 2024-11-12T16:29:19.954Z
-updated: 2024-11-15T16:13:38.461Z
+date: 2024-11-23T00:41:41.835Z
+updated: 2024-11-25T00:17:29.149Z
 tags: 
   - screen-recording
   - ai video
@@ -41,22 +41,23 @@ Step1 Initially, you can search for meme in the task bar. After you click on it,
 
 ![create new project adobe express](https://images.wondershare.com/filmora/article-images/2022/07/create-new-project-adobe-express.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step2 Any desired design can be made on the meme and text can be written on any part of the template. You can also upload your own template design.
 
 ![select a size adobe express](https://images.wondershare.com/filmora/article-images/2022/07/select-a-size-adobe-express.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step3 There are a number of actions that can be applied on the template, in the image below you can see taskbars on both the sides of the window. After you are done and satisfied with the design; you can save the project and download it for yourself.
 
 ![video templates adobe express](https://images.wondershare.com/filmora/article-images/2022/07/video-templates-adobe-express.jpg)
 
 Step4 Even if you do not download it, it will be stored in the Adobe cloud and you can retrieve it anywhere using your email login.
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657400/16446" target="_top" id="1657400">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657400" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657400/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 2: Using Photoshop for Meme Making
 
@@ -73,15 +74,16 @@ Step1 Launch a new Photoshop project. Set your image's dimensions to any appropr
 ![open new docs ps](https://images.wondershare.com/filmora/article-images/2022/07/open-new-docs-ps.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151866/7443" target="_top" id="2151866">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151866" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151866/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step2 Download the image you want to use and drag it onto the Photoshop workspace. Select your image in the layer panel after that, then adjust the image's size to fit in the appropriate location. Create the text and place it above the picture. Use the Duplicate Layer option to duplicate the top text rather than writing the bottom content.
 
 ![drag image to workplace ps](https://images.wondershare.com/filmora/article-images/2022/07/drag-image-to-workplace-ps.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step3 The meme can then be enhanced by applying different actions after selection. Any layer can be accessed. By double clicking on a specific layer, you can select blending parameters like outer glow, stroke, drop shadow, etc.
 
@@ -94,10 +96,7 @@ Adobe After Effects is normally used for staging of a film, video game, and tele
 ![create meme in after effects](https://images.wondershare.com/filmora/article-images/2022/07/create-meme-in-after-effects.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151868/7443" target="_top" id="2151868">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151868" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151868/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Steps to Use Adobe After Effects as Meme Maker**
@@ -106,6 +105,10 @@ Step1 Open a brand-new After Effects document. And set your image's dimensions t
 
 ![set image after effects](https://images.wondershare.com/filmora/article-images/2022/07/set-image-after-effects.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step2 If you want to adjust the size of the background layer, you can unlock it by clicking twice. Drag the desired image onto the After Effects workspace, after uploading it.
 
 Step3 Select your image in the layer panel and then change its size to fit in the required spot. Write the text for the top of the image. Instead of typing the bottom content, use the Duplicate Layer option to duplicate the top text and then change it, as required.
@@ -113,10 +116,7 @@ Step3 Select your image in the layer panel and then change its size to fit in th
 ![change image size ae](https://images.wondershare.com/filmora/article-images/2022/07/change-image-size-ae.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/947746/11832" target="_top" id="947746">
-  <img src="//a.impactradius-go.com/display-ad/11832-947746" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947746/11832" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step4 After embellishments, you can save the file in your desired extension: By clicking on the file button and saving it.
@@ -124,10 +124,7 @@ Step4 After embellishments, you can save the file in your desired extension: By 
 ![save meme file ae](https://images.wondershare.com/filmora/article-images/2022/07/save-meme-file-ae.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938750/19272" target="_top" id="1938750">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938750/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 4: Using Adobe Premiere Pro to Create Meme
@@ -138,13 +135,6 @@ It can be used to generate new or edited versions of videos, that can be exporte
 
 ![create meme adobe premiere](https://images.wondershare.com/filmora/article-images/2022/07/create-meme-adobe-premiere.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135348/19272" target="_top" id="2135348">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135348" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135348/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Steps to Use Adobe Premiere Pro as Meme Maker:**
 
 Step1 By clicking on ‘project’, launch a new Premiere Pro project Set the dimensions of your image to a reasonable size.
@@ -152,10 +142,7 @@ Step1 By clicking on ‘project’, launch a new Premiere Pro project Set the di
 ![launch new project pr](https://images.wondershare.com/filmora/article-images/2022/07/launch-new-project-pr.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902289/19272" target="_top" id="1902289">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902289" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902289/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step2 After downloading the selected image, drag it onto the Premiere pro workspace. After choosing your image in the layer panel, adjust its size to make it fit in the designated area.
@@ -165,13 +152,6 @@ Step2 After downloading the selected image, drag it onto the Premiere pro worksp
 Step3 Create the project by clicking on ‘create’ which will complete the work.
 
 ![start creating meme premiere](https://images.wondershare.com/filmora/article-images/2022/07/start-creating-meme-premiere.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118306/7443" target="_top" id="2118306">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118306" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118306/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 5: Adobe Alternative to Create Memes - [Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -249,18 +229,17 @@ There are a number of different tools available on internet for meme making. And
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-list-of-leading-sites-for-buying-youtube-tones/"><u>[New] 2024 Approved List of Leading Sites for Buying YouTube Tones</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-your-guide-to-the-premier-10-youtube-news-channels/"><u>[New] Your Guide to the Premier 10 YouTube News Channels</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-mastering-maximum-payload-heavy-lift-drones/"><u>[Updated] 2024 Approved Mastering Maximum Payload Heavy Lift Drones</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-2024-approved-windows-11-expert-strategies-for-recording-high-quality-sounds/"><u>[Updated] 2024 Approved Windows 11 Expert Strategies for Recording High-Quality Sounds</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-masterful-audio-selection-optimal-mics-for-intense-4k-shooting/"><u>[Updated] In 2024, Masterful Audio Selection Optimal Mics for Intense 4K Shooting</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-plot-puns-on-pop-culture/"><u>[Updated] In 2024, Plot Puns on Pop Culture</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/approved-hack-your-channels-identity-with-these-11-budget-tools/"><u>2024 Approved Hack Your Channel's Identity with These 11 Budget Tools</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/1726223262950-vocwma-movavi/"><u>網上免費VOC音頻改造WMA格式 - Movavi解析器功能比較</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/a-comprehensive-guide-to-windows-11-battery-information-report/"><u>A Comprehensive Guide to Windows 11 Battery Information Report</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/exploring-sonic-wonders-on-iphone/"><u>Exploring Sonic Wonders on iPhone</u></a></li>
-<li><a href="https://extra-support.techidaily.com/jubilant-join-and-disconnect-protocols-for-2024/"><u>Jubilant Join & Disconnect Protocols for 2024</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/quintessential-memes-the-creation-guide/"><u>Quintessential Memes The Creation Guide</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/witwhackers-smilesnapz-hub/"><u>WitWhackers SmileSnapz Hub</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-pushing-boundaries-with-hps-next-gen-4k-display-envy-27/"><u>[New] 2024 Approved Pushing Boundaries with HP's Next Gen 4K Display, Envy 27</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-googles-revolutionary-approach-to-speech-interpretation/"><u>[Updated] 2024 Approved Google's Revolutionary Approach to Speech Interpretation</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-debunking-photoshake-is-it-essential-or-excessive-for-2024/"><u>[Updated] Debunking PhotoShake Is It Essential or Excessive for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/digital-deception-9-concerns-with-ai-psychiatrists/"><u>Digital Deception: 9 Concerns with AI Psychiatrists</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/end-screen-essentials-for-social-media-success-on-youtube/"><u>End-Screen Essentials for Social Media Success on YouTube</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/expert-advice-eliminating-the-fifa-21-crashing-issues-on-desktop-computers/"><u>Expert Advice: Eliminating the FIFA 21 Crashing Issues on Desktop Computers</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/harness-the-potential-of-gratuitous-timer-tools/"><u>Harness the Potential of Gratuitous Timer Tools</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-practical-steps-to-remove-the-cluttered-background-in-figma/"><u>In 2024, Practical Steps to Remove the Cluttered Background in Figma</u></a></li>
+<li><a href="https://fox-access.techidaily.com/light-and-shadow-masterful-edits-that-transform-images-for-2024/"><u>Light & Shadow Masterful Edits That Transform Images for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/transforming-video-conferencing-with-zoom-and-youtube-for-impactful-live-events/"><u>Transforming Video Conferencing with Zoom and YouTube for Impactful Live Events</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/troubleshooting-your-iphones-silent-ringer-issue-a-comprehensive-guide/"><u>Troubleshooting Your iPhone's Silent Ringer Issue: A Comprehensive Guide</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/updated-in-2024-top-15-slow-motion-capcut-templates-to-work-with/"><u>Updated In 2024, Top 15 Slow Motion CapCut Templates to Work With</u></a></li>
 </ul></div>
 

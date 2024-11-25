@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Advances in Syma X8C Flight Autonomy"
-date: 2024-11-09T20:33:55.052Z
-updated: 2024-11-15T18:44:03.197Z
+date: 2024-11-20T18:13:34.236Z
+updated: 2024-11-25T01:53:27.990Z
 tags: 
   - screen-recording
   - ai video
@@ -60,13 +60,6 @@ thumbnail: https://thmb.techidaily.com/524624a8aef372cbe885ba5524fa4cfc7d196c57b
 
  There are loads of pros as well as cons related Syma H8C device but they appear different to various kinds of users. Professionals may be worried about its camera quality whereas beginners will find its controls little complex. But in case if you need something at low price with all acceptable features then Syma H8C is really a good choice for your needs.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087390/7443" target="_top" id="2087390">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087390" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087390/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Complete Review
 
 #### 1. Basic Specs Info
@@ -85,6 +78,10 @@ thumbnail: https://thmb.techidaily.com/524624a8aef372cbe885ba5524fa4cfc7d196c57b
 
 ![syma vs phantom design](https://images.wondershare.com/filmora/article-images/syma-vs-phantom-design.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  If we consider the appearance then it looks close to the Phantom drone but no doubt to say that few variations exists and they make it unique. The overall dimension of this drone unit is 20x20x6.5 whereas maximum weight goes up to 450 grams thus it cannot be called as a tiny drone. When weighted with camera and prop guards, then this unit has overall weight of 600 grams. This dimension and weight makes this drone much stable in air.
 
  This device can also be used without propeller guards because they do not have much role to play in its flights but the added benefit is that removal of prop guards leads to reduced weight and hence flight time gets little improved. The overall length of propeller is about 9” and they are designed of very high quality material.
@@ -102,10 +99,7 @@ thumbnail: https://thmb.techidaily.com/524624a8aef372cbe885ba5524fa4cfc7d196c57b
 ![syma x8c controller](https://images.wondershare.com/filmora/article-images/syma-x8c-controller.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148643/16836" target="_top" id="2148643">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148643" border="0" alt="https://techidaily.com" width="300" height="75"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148643/16836" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Controller or the transmitter of X8C device is small enough that fits perfectly in user’s hands. Construction is completed with ABS plastic material that leads to light weight structure and this controller makes use of 2.4GHz frequency band to send control signals towards drone in air. The best thing to know about Syma X8C is that it can cover the 100 meter range impressively.
@@ -115,25 +109,13 @@ thumbnail: https://thmb.techidaily.com/524624a8aef372cbe885ba5524fa4cfc7d196c57b
 ![syma x8c camera](https://images.wondershare.com/filmora/article-images/syma-x8c-camera.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049387/7443" target="_top" id="2049387">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049387" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049387/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  A drone cannot be complete without a camera mounted on its top; hence Syma has taken care of users need and they developed Syma X8C with a camera that can record everything in air. Although, it is not able to collect video information with HD quality but you will be glad to know that it is detachable and one can also make additional adjustments over its angles to adjust focus. All the recorded videos are stored inside a 4GB MicroSD card. Further, the attached gimbal assists in much stable footage.
 
 <!-- affiliate ads begin -->
-<span id="1975648">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -141,6 +123,10 @@ thumbnail: https://thmb.techidaily.com/524624a8aef372cbe885ba5524fa4cfc7d196c57b
  By considering all above factors, we must say that Syma X8C is a well designed drone unit that can serve with much better results as an entry level aerial shoot recorder. As the price tag keeps it below $100 range so beginners find it most affordable for their learning needs and the gimbal protection leads to highly stable footage that can be shared on social media sites to impress friends. The control mechanisms is rated as highly responsive so will all these satisfactory features it becomes a must buy product for your air flight adventures.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Max Wales
 
@@ -167,22 +153,19 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-proven-strategies-for-inclusion-in-the-apple-catalog/"><u>[New] 2024 Approved Proven Strategies for Inclusion in the Apple Catalog</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-free-lut-strategies-for-enhancing-ar-experiences/"><u>[New] Free LUT Strategies for Enhancing AR Experiences</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-premium-20-free-to-use-pubg-image-arrays-for-2024/"><u>[New] Premium 20 Free-to-Use PUBG Image Arrays for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-essential-tactics-for-dramatizing-success-stories-through-testimonials/"><u>[Updated] Essential Tactics for Dramatizing Success Stories Through Testimonials</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-essential-tips-installing-apple-podcasts-app-successfully/"><u>[Updated] Essential Tips Installing Apple Podcasts App Successfully</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-premier-online-calling-apps-all-free-and-user-friendly/"><u>[Updated] In 2024, Premier Online Calling Apps - All Free & User-Friendly</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-win-11-strategies-to-successfully-save-mov-files/"><u>[Updated] Win 11 Strategies to Successfully Save .mov Files</u></a></li>
-<li><a href="https://howto.techidaily.com/7-solutions-to-fix-chrome-crashes-or-wont-open-on-htc-u23-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Chrome Crashes or Wont Open on HTC U23 | Dr.fone</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/elite-image-processor-upgrade-your-viewing-experience/"><u>Elite Image Processor Upgrade Your Viewing Experience</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/experiencing-the-apple-studio-display-a-stylish-yet-pricey-27-5k-screen-perfect-for-professionals-using-mac-in-depth-review-by-zdnet/"><u>Experiencing the Apple Studio Display: A Stylish, Yet Pricey 27 5K Screen Perfect for Professionals Using Mac - In-Depth Review by ZDNet</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-how-to-reset-the-security-questions-of-your-apple-id-from-your-apple-iphone-14-by-drfone-ios/"><u>In 2024, How To Reset the Security Questions of Your Apple ID From Your Apple iPhone 14</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-top-imei-unlokers-for-your-realme-gt-5-pro-phone-by-drfone-android/"><u>In 2024, Top IMEI Unlokers for Your Realme GT 5 Pro Phone</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/mystic-modulation-is-this-speech-shifting-software-authentic-or-fiction-discover-substitutes-for-2024/"><u>Mystic Modulation Is This Speech-Shifting Software Authentic or Fiction? Discover Substitutes for 2024</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/the-ultimate-guide-to-iphone-call-logging-ensuring-compliance-across-states-according-to-zdnet-experts/"><u>The Ultimate Guide to iPhone Call Logging: Ensuring Compliance Across States, According to ZDNET Experts</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/vanguard-sky-stashers-for-android-users-2024/"><u>Vanguard Sky Stashers for Android Users 2024</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/watching-spider-man-no-way-home-online-step-by-step-guide/"><u>Watching Spider-Man: No Way Home Online - Step by Step Guide</u></a></li>
-<li><a href="https://win-answers.techidaily.com/windows-runs-on-arm-qualcomms-breakthrough-in-desktop-computing/"><u>Windows Runs on ARM: Qualcomm's Breakthrough in Desktop Computing</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-2024-approved-master-downloader-facebook-and-firefox-integration/"><u>[New] 2024 Approved Master Downloader Facebook & FireFox Integration</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-breaking-down-lg-27ud88-uhd-tv-with-usb-type-c-for-2024/"><u>[New] Breaking Down LG 27UD88-UHD TV with USB Type-C for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-efficient-workflow-with-firefoxs-picture-in-picture-for-2024/"><u>[New] Efficient Workflow with Firefox’s Picture-in-Picture for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-expert-strategies-for-fbx-gameplay-capture-for-2024/"><u>[Updated] Expert Strategies for FBX Gameplay Capture for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-pivoting-pictures-a-how-to-on-flipping-videos-for-viral-engagement/"><u>[Updated] In 2024, Pivoting Pictures A How-To on Flipping Videos for Viral Engagement</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-speedy-explorer-windows-10-photography-interface/"><u>[Updated] In 2024, Speedy Explorer - Windows 10 Photography Interface</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-perfect-your-images-with-polarr-a-complete-photography-resource/"><u>[Updated] Perfect Your Images with Polarr A Complete Photography Resource</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-proven-techniques-to-swell-your-social-media-following/"><u>2024 Approved Proven Techniques to Swell Your Social Media Following</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/advanced-typography-animation-suites-for-2024/"><u>Advanced Typography Animation Suites for 2024</u></a></li>
+<li><a href="https://win-blog.techidaily.com/fixes-improve-frame-rate-how-cyberpunk-2077-enhancements-boost-fps/"><u>Fixes Improve Frame Rate: How Cyberpunk 2077 Enhancements Boost FPS</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-change-lock-screen-wallpaper-on-oneplus-ace-2v-by-drfone-android/"><u>How to Change Lock Screen Wallpaper on OnePlus Ace 2V</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/mastering-audio-integration-in-canva-videos-for-2024/"><u>Mastering Audio Integration in Canva Videos for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/0-best-iphone-and-android-apps-to-make-into-videos-for-2024/"><u>The 10 Best iPhone & Android Apps to Make Into Videos for 2024</u></a></li>
+<li><a href="https://win-wonderful.techidaily.com/ubersetzungen-zur-verfugung-wie-sie-bilder-von-ihrer-kamera-per-transfer-auf-das-iphone-hochladen/"><u>Übersetzungen Zur Verfügung: Wie Sie Bilder Von Ihrer Kamera per Transfer Auf Das iPhone Hochladen</u></a></li>
 </ul></div>
 
