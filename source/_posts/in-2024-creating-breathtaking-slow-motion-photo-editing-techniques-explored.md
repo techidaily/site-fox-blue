@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Creating Breathtaking Slow Motion  Photo Editing Techniques Explored\""
-date: 2024-11-19T16:52:10.662Z
-updated: 2024-11-25T06:08:40.157Z
+date: 2024-11-29T16:26:13.027Z
+updated: 2024-12-03T20:10:05.067Z
 tags: 
   - screen-recording
   - ai video
@@ -37,6 +37,10 @@ While the [Photos app in Windows 10](https://www.microsoft.com/en-us/p/microsoft
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1：How to Use Slow Motion in Windows 10
 
 There is no need to spend hundreds of dollars on a video program if you need to perform some basic editing and effects on your videos. For instance, you can add the slow motion effect using the Photos app that comes pre-installed on Windows 10 computers.
@@ -48,7 +52,7 @@ Navigate to the folder where your video file is located and right click on it. Y
 If you do not see the option anywhere on your Photos app, there is a chance you are running an outdated version of Windows 10 on your computer. All you need to do is navigate to Windows Update through your system menu. When all the updates install, you will have the latest Photos app with this feature.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2：Customizing the Slow Motion Effect
@@ -61,18 +65,26 @@ Now you can select the beginning and end point using the bottom slider on the Ph
 
 ![slow motion video microsoft photos](https://images.wondershare.com/filmora/article-images/make-slow-motion-microsoft-photos.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 We recommend that you save your video file under a new name when you are done making your desired changes. It ensures that you still have the original copy of the video saved on your computer or external hard drive.
 
 You can even create multiple versions of the file with the slow motion effect applied in different ways. Then you can watch the videos you just created to decide on the best version.
 
 **You may also like:** [How to Use Story Remix to Edit a Video in Windows 10 Photos >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3: How to Edit in Slow Motion Online
 
 If you are not able to access a Windows computer, you may want a solution that can be used online. The good news is that you can use some [online video speed changers](https://tools.techidaily.com/wondershare/filmora/download/)to add a slow motion effect to your content.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### [EZGif](https://ezgif.com/video-speed)
@@ -87,23 +99,11 @@ Click on the “upload video” button so that it can be added into the database
 
 ![slow motion video microsoft photos](https://images.wondershare.com/filmora/article-images/ezgif-change-videos-speed-import.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 3: Output**
 
 The program will let you adjust the video speed to your liking. Then you will get a URL for the output video, which will have been slowed down according to your settings. There is even an option to keep the audio track at the same speed, but you can slow down the audio at the same rate as the video if you want.
 
 ![slow motion video microsoft photos](https://images.wondershare.com/filmora/article-images/change-video-speed-ezgif-edit.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -136,20 +136,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-mirrorless-4k-cameras-top-10-list-unveiled/"><u>[New] 2024 Approved Mirrorless 4K Cameras Top 10 List Unveiled</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-from-idea-to-recording-a-comprehensive-guide-to-podcast-scripting-for-2024/"><u>[New] From Idea to Recording A Comprehensive Guide to Podcast Scripting for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-maximizing-your-iphones-creative-capabilities/"><u>[New] Maximizing Your iPhone's Creative Capabilities</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-bass-brilliance-new-device-overview/"><u>[Updated] 2024 Approved Bass Brilliance New Device Overview</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-top-10-costless-conversion-apps-for-srt-files-explored/"><u>[Updated] 2024 Approved Top 10 Costless Conversion Apps for SRT Files Explored</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-acid-pro-insights-and-looking-for-alternatives-for-2024/"><u>[Updated] ACID Pro Insights & Looking for Alternatives for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-clear-images-made-easy-picart-backdrop-takedown-technique/"><u>[Updated] Clear Images Made Easy PicArt Backdrop Takedown Technique</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/comprehensive-walkthrough-retrieving-past-versions-of-websites-using-the-wayback-machine/"><u>Comprehensive Walkthrough: Retrieving Past Versions of Websites Using the Wayback Machine</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/do-reviewers-monetize-their-goods-analysis-vlogs/"><u>Do Reviewers Monetize Their Goods Analysis Vlogs?</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/groundbreaking-companies-at-the-vr-content-frontier-for-2024/"><u>Groundbreaking Companies at the VR Content Frontier for 2024</u></a></li>
-<li><a href="https://iphone-transfer.techidaily.com/how-to-move-custom-ringtones-from-apple-iphone-12-to-android-drfone-by-drfone-transfer-from-ios/"><u>How to Move Custom Ringtones from Apple iPhone 12 to Android? | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-does-life360-notify-when-you-log-out-on-samsung-galaxy-f04-drfone-by-drfone-virtual-android/"><u>In 2024, Does Life360 Notify When You Log Out On Samsung Galaxy F04? | Dr.fone</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/minuscule-motifs-musical-characters-tale-for-2024/"><u>Minuscule Motifs Musical Characters’ Tale for 2024</u></a></li>
-<li><a href="https://review-topics.techidaily.com/remove-google-frp-lock-on-honor-magic-vs-2-by-drfone-android-unlock-remove-google-frp/"><u>Remove Google FRP Lock on Honor Magic Vs 2</u></a></li>
-<li><a href="https://common-error.techidaily.com/step-by-step-troubleshooting-tips-for-fixing-windows-error-code-31/"><u>Step-by-Step Troubleshooting Tips for Fixing Windows Error Code 31</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-excellent-global-music-livestreams/"><u>[New] Excellent Global Music Livestreams</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-crafting-compelling-media-with-narrative-overlays/"><u>[New] In 2024, Crafting Compelling Media with Narrative Overlays</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-jest-engineer-online/"><u>[New] In 2024, Jest Engineer Online</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-pro-iphone-methods-for-spherical-footage/"><u>[New] Pro iPhone Methods for Spherical Footage</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-unveiling-social-media-puzzles-how-to-use-facebook-insights-for-2024/"><u>[New] Unveiling Social Media Puzzles How to Use Facebook Insights for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-the-ultimate-performance-of-yis-4k-actioncam/"><u>[Updated] In 2024, The Ultimate Performance of Yi's 4K ActionCam</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-financial-blueprint-of-content-creation-on-youtube-for-2024/"><u>[Updated] The Financial Blueprint of Content Creation on YouTube for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-elusive-story-viewers-mobile-hacks/"><u>2024 Approved Elusive Story Viewers' Mobile Hacks</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/addressing-error-with-file-history-backup-on-windows/"><u>Addressing Error with File History Backup on Windows</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/1721978505404-beware-no-authentic-chatgpt-app-available-on-windows-avoid-illicit-software-replicas/"><u>Beware: No Authentic ChatGPT App Available on Windows – Avoid Illicit Software Replicas</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/efficient-timelapse-recording-via-ipad/"><u>Efficient Timelapse Recording via iPad</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/effortlessly-faster-fb-videos-a-comprehensive-tools-repository-for-2024/"><u>Effortlessly Faster FB Videos A Comprehensive Tools Repository for 2024</u></a></li>
+<li><a href="https://techidaily.com/factory-reset-apple-iphone-se-2020-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>Factory Reset Apple iPhone SE (2020) | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-prime-websites-to-acquire-custom-youtube-ringtones/"><u>In 2024, Prime Websites to Acquire Custom YouTube Ringtones</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-thrifty-sky-surfers-cheapest-drones-on-market/"><u>In 2024, Thrifty Sky Surfers Cheapest Drones on Market</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-top-tips-for-secure-clear-stock-purchases/"><u>In 2024, Top Tips for Secure, Clear Stock Purchases</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/virtual-reality-engineering-in-business-applications-for-2024/"><u>Virtual Reality Engineering in Business Applications for 2024</u></a></li>
 </ul></div>
 

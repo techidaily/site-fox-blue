@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Utilizing Alternate Shots to Elevate Film Quality\""
-date: 2024-11-19T00:54:11.627Z
-updated: 2024-11-24T20:04:29.248Z
+date: 2024-11-26T17:26:01.031Z
+updated: 2024-12-04T08:24:23.974Z
 tags: 
   - screen-recording
   - ai video
@@ -45,12 +45,16 @@ The ideal way to use B roll is to put it behind interviews. This kind of footage
 
 On the other hand, cutaways can show how different people react to what is being said in an interview. After all, transitions are commonly used to switch from one person's experience with a certain topic to another person's experience with the same topic. All of these different kinds of footage give filmmakers and videographers more freedom to tell their stories without relying too much on dialogue or narration.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 3\. What types of b roll are there?
 
 We'll examine the top 5 uses for B rolls across a variety of video genres and discuss how to implement them effectively in your own projects.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1\. Archival b roll footage
@@ -58,7 +62,7 @@ We'll examine the top 5 uses for B rolls across a variety of video genres and di
 Aerial B roll is the solution when you like to show your viewers where your film is being recorded or when you are changing locations and want them to know it. The plane takes off and lands in another city, and then shots of the city, its landmarks, its famous streets, etc. are shown. You have probably seen this type of B roll footage in movies and TV shows. These images aid in putting the viewer in the character's current location. Check out this collection of setting images from the Neighbors television series.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2\. Visual detail b roll footage
@@ -70,7 +74,7 @@ Including archival material in your video allows your audience to experience a p
 B roll footage can be used to tell a story that supports the narrative of your video. For example, in this video interview of Tom DeLonge, the speaker talks about living in a neighborhood. The B rolls show him driving around in his car, skateboarding on the street in the 90's. These add to the story the video creator wants to talk about not seeing people with a disability differently.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 4\. Undirected b roll footage
@@ -89,16 +93,12 @@ A pick-up is a tiny shot added to previously captured material. Re-shoots involv
 
 If flaws were discovered during primary photography, the directors could have requested another take. The producer and director should weigh the cost of rejoining cast and crew against the need for pick-ups or re-shoots to address storyline flaws (or worse) in the final edit.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 7\. A roll vs b roll
 
 Imagine the A roll as part of the video's story. This could be a documentary film, news show, or scripted sketch. Everything else on your editing table must be rearranged to fit it. When the speaker in the following video is directly talking to the camera or interviewer, this is A roll footage. The video's most crucial segments were filmed with primary footage.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -135,22 +135,18 @@ We sincerely hope that this post will be of use to you in making your films more
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-2024-approved-color-depth-explored-windows-hdri-for-editors/"><u>[New] 2024 Approved Color Depth Explored Windows HDRI for Editors</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-high-end-psd-lighting-tweaks/"><u>[New] 2024 Approved High-End PSD Lighting Tweaks</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/new-boosting-zoom-image-resolution-expert-advice/"><u>[New] Boosting Zoom Image Resolution Expert Advice</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-loom-fabricate-crafting-your-video-threads/"><u>[New] In 2024, Loom Fabricate Crafting Your Video Threads</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-perfect-photos-applying-radial-blur-in-ps/"><u>[New] In 2024, Perfect Photos Applying Radial Blur in PS</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-in-depth-scrutiny-the-hero4-black-universe-for-2024/"><u>[New] In-Depth Scrutiny The Hero4 Black Universe for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-revolutionizing-image-capture-with-ios-11-updates-for-2024/"><u>[New] Revolutionizing Image Capture with iOS 11 Updates for 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-from-action-to-archive-top-screenshot-tools-reviewed-for-2024/"><u>[Updated] From Action to Archive Top Screenshot Tools Reviewed for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-sunshine-strategies-to-lighten-up-android-videos/"><u>[Updated] In 2024, Sunshine Strategies to Lighten up Android Videos</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-the-ultimate-checklist-what-makes-dji-phantom-4-special/"><u>[Updated] In 2024, The Ultimate Checklist What Makes DJI Phantom 4 Special?</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-unleash-the-power-of-natural-and-artificentic-lights-on-iphone/"><u>[Updated] Unleash the Power of Natural and Artificentic Lights on iPhone</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-stability-secrets-for-dynamic-photo-shoots/"><u>2024 Approved Stability Secrets for Dynamic Photo Shoots</u></a></li>
-<li><a href="https://discover-hacks.techidaily.com/comprehensive-review-the-three-premier-photo-recovery-tools-for-deleted-images/"><u>Comprehensive Review: The Three Premier Photo Recovery Tools for Deleted Images</u></a></li>
-<li><a href="https://games-able.techidaily.com/joystick-journey-converting-console-commands-to-computer-controls-139-chars/"><u>Joystick Journey: Converting Console Commands to Computer Controls (139 Chars)</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/new-the-best-of-the-best-top-5-ipad-video-editing-apps/"><u>New The Best of the Best Top 5 iPad Video Editing Apps</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/ultimate-tutorial-how-to-easily-convert-dvd-content-into-wma-audio-files-using-windows-1011-software/"><u>Ultimate Tutorial: How to Easily Convert DVD Content Into WMA Audio Files Using Windows 10/11 Software</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/understanding-the-anatomy-of-a-website-the-role-of-pages-in-search-engine-optimization/"><u>Understanding the Anatomy of a Website: The Role of Pages in Search Engine Optimization</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-navigating-video-production-with-captivate/"><u>[New] 2024 Approved Navigating Video Production with Captivate</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-the-free-pass-to-premium-video-editing-tools/"><u>[New] 2024 Approved The Free Pass to Premium Video Editing Tools</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-the-insiders-guide-to-time-lagged-masterpieces-with-your-android-phone/"><u>[New] In 2024, The Insider's Guide to Time-Lagged Masterpieces with Your Android Phone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-premium-no-cost-vectors-and-graphic-hubs-roundup-for-2024/"><u>[New] Premium No-Cost Vectors & Graphic Hubs Roundup for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-top-9-platforms-for-unparalleled-gamers-joy/"><u>[New] Top 9 Platforms for Unparalleled Gamers' Joy</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-pinnacle-studio-25-review/"><u>[Updated] Pinnacle Studio 25 Review</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-unlock-the-art-of-recording-all-your-hulu-content-for-2024/"><u>[Updated] Unlock the Art of Recording All Your Hulu Content for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-comprehensive-overview-of-final-cut-pro-techniques/"><u>2024 Approved Comprehensive Overview of Final Cut Pro Techniques</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-usenet-video-player-direct-streaming-access/"><u>2024 Approved Usenet Video Player Direct Streaming Access</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/creating-user-friendly-youtube-subscribe-icons-for-2024/"><u>Creating User-Friendly YouTube Subscribe Icons for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-the-beginners-besties-essential-gopro-upgrades-list/"><u>In 2024, The Beginner's Besties - Essential GoPro Upgrades List</u></a></li>
+<li><a href="https://os-tips.techidaily.com/step-by-step-guide-recovering-your-safari-bookmarks-from-an-itunes-data-backup/"><u>Step-by-Step Guide: Recovering Your Safari Bookmarks From an iTunes Data Backup</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/tropico-6-analysis-controlling-a-lush-utopia/"><u>Tropico 6 Analysis: Controlling a Lush Utopia</u></a></li>
 </ul></div>
 

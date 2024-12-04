@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Capturing Adrenaline with the Latest Yi Technology"
-date: 2024-08-31T16:58:30.090Z
-updated: 2024-09-01T16:58:30.090Z
+date: 2024-12-02T08:41:41.220Z
+updated: 2024-12-03T16:59:42.955Z
 tags: 
   - screen-recording
   - ai video
@@ -114,11 +114,19 @@ Yi 4K is designed with built in Wi-Fi abilities so that users can make direct co
 
 The future firmware update of Yi 4K+ action camera is supposed to bring so many interesting features into this tiny device. It will be extending support towards live streaming facility and raw images will be soon processed. The most interesting addition will be voice command support that will make control actions much easier during adventurous sports recording needs. This device will be offering impressive high performance service while consuming very low power and all ultra HD videos will deliver crisper details with elegant color distributions.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 Yi 4K+ is first action camera device to support 60fps frame rate at 4K resolution level and it further provides 8MP support to every still while ensuring crisp and deep details. There are several interesting features inside this tiny action cam including USB-C external mic connectivity and many more. However, you may also find few troubles like it cannot go underwater without protective housing. It not even extends support to live streaming and RAW files cannot be processed. But, even after so many downsides, its amazing video quality makes it standout against all competitors. You must order your new action camera soon.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Max Wales
 
@@ -143,8 +151,22 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-aspiring-singers-try-these-leading-chrome-voice-tools-first/"><u>[New] In 2024, Aspiring Singers, Try These Leading Chrome Voice Tools First</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-the-budget-friendly-filmmakers-dream/"><u>[New] In 2024, The Budget-Friendly Filmmaker's Dream</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-link-audio-clips-to-powerpoint-slides-for-2024/"><u>[New] Link Audio Clips to PowerPoint Slides for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-asus-mg28uq-a-gateway-to-unprecedented-4k-gaming-and-more-for-2024/"><u>[Updated] ASUS MG28UQ - A Gateway to Unprecedented 4K Gaming and More for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-free-lut-sets-unlocked-dji-mini-air-2-in-the-spotlight/"><u>[Updated] In 2024, Free LUT Sets Unlocked - DJI Mini, Air 2 in the Spotlight</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-syncing-melodies-with-video-in-premiere-pro/"><u>[Updated] In 2024, Syncing Melodies with Video in Premiere Pro</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-the-ultimate-outro-checklist-for-youtube-success/"><u>[Updated] In 2024, The Ultimate Outro Checklist for YouTube Success</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-add-a-personal-touch-using-branded-graphic-elements-in-your-instagram-content/"><u>2024 Approved Add a Personal Touch Using Branded Graphic Elements in Your Instagram Content</u></a></li>
+<li><a href="https://win-info.techidaily.com/best-free-mobile-apps-on-ios-top-gaming-titles-for-your-iphone/"><u>Best Free Mobile Apps on iOS: Top Gaming Titles for Your iPhone</u></a></li>
+<li><a href="https://win11.techidaily.com/duplicate-dvds-easily-using-1click-dvd-copy-plus-top-alternatives-revealed/"><u>Duplicate DVDs Easily Using 1Click DVD Copy - Plus Top Alternatives Revealed!</u></a></li>
+<li><a href="https://driver-download.techidaily.com/easy-fixes-upgrading-your-audio-technica-driver-system-on-windows-macos-and-linux/"><u>Easy Fixes: Upgrading Your Audio Technica Driver System on Windows, macOS & Linux</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-old-call-logs-from-your-poco-c65-by-fonelab-android-recover-call-logs/"><u>How to recover old call logs from your Poco C65?</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-cricket-apple-iphone-7-plus-for-free-by-drfone-ios/"><u>In 2024, How To Unlock Cricket Apple iPhone 7 Plus for Free</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/mastering-your-digital-dialogue-top-5-strategies-for-personalized-ai-commands/"><u>Mastering Your Digital Dialogue: Top 5 Strategies for Personalized AI Commands</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/the-ultimate-guide-to-infinix-note-30-vip-pattern-lock-screen-everything-you-need-to-know-by-drfone-android/"><u>The Ultimate Guide to Infinix Note 30 VIP Pattern Lock Screen Everything You Need to Know</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

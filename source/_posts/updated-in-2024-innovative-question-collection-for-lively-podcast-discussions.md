@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Innovative Question Collection for Lively Podcast Discussions"
-date: 2024-11-19T18:42:29.279Z
-updated: 2024-11-24T19:06:56.342Z
+date: 2024-11-28T08:45:24.450Z
+updated: 2024-12-04T03:45:54.789Z
 tags: 
   - screen-recording
   - ai video
@@ -35,11 +35,19 @@ The best podcast questions to ask guests differ according to your niche and the 
 
 The best way is to divide your questions into different categories.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Great Icebreaker/Intro Questions
 
 Icebreaker questions are used to begin an interview or meeting. These are personal questions to learn more about one another quickly. For example, the prompt might be "share your name, role, and what you usually do during the weekend." These questions aim to have fun, create points of connection between guests, and build confidence in speaking in front of the group.
 
 ![icebreaker questions](https://images.wondershare.com/filmora/article-images/2022/12/podcast-interview-questions-2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Here are some icebreaker questions that you can ask to start an interview.
 
@@ -54,11 +62,19 @@ Here are some icebreaker questions that you can ask to start an interview.
 9. What is one of your greatest challenges in life?
 10. How did you meet your spouse or partner?
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Leading Question
 
 A leading question suggests a particular answer to the question that the questioner desires. These questions mostly have a yes or no answer. However, if you extract your question from the answer just given by the guest of the podcast, it is also a leading question.
 
 ![leading questions](https://images.wondershare.com/filmora/article-images/2022/12/podcast-interview-questions-3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Some leading questions that you can ask are discussed below.
 
@@ -78,10 +94,6 @@ Some leading questions that you can ask are discussed below.
 14. Can you give an example?
 15. What do you suggest to our audience who are facing the same problems?
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Comparison Questions
 
 In an interview, a comparison question is one where you ask a person what he prefers between these two things. This type of question can also advance the discussion of the topic. Besides, you can get a deeper understanding of what guests think and feel about this podcast episode.
@@ -89,7 +101,7 @@ In an interview, a comparison question is one where you ask a person what he pre
 ![comparison questions](https://images.wondershare.com/filmora/article-images/2022/12/podcast-interview-questions-4.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 You can ask questions from the comparison questions given below.
@@ -125,13 +137,13 @@ When we move on to this type of question, typically, it's time to end the show. 
 9. Where may listeners sign up for your course or purchase your products?
 10. How can listeners contact you online?
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2\. What's a Good Podcast Interview Question?
 
 After discussing the 50 questions you can ask in a podcast, let's see what a good podcast interview question is. A good interview question is comfortable for the guest and engaging for the listeners, so the guest can answer the question wholeheartedly. Therefore, you need to avoid impolite and aggressive asks during podcasting. Besides, try to ask such questions that your guest is not frequently asked. It may reveal new things about him and make your podcast stand out.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3\. Tips on How To Come Up and Ask Better Questions
 
@@ -144,23 +156,15 @@ Asking better questions on a podcast requires preparation beforehand. Here are s
 
 You can get the best information from the person you are interviewing if you do the following:
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Ask WHY?
 
 ![ask why](https://images.wondershare.com/filmora/article-images/2022/12/podcast-interview-questions-5.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 As an interviewer, "why" is your most powerful tool. Guests usually provide surface-level information or opinions. The follow-up question of "why" makes them go further and give deeper details. It will also help your audience understand correctly what the guest wants to say.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### What happened next?
 
@@ -169,10 +173,6 @@ If your guest is overwhelmed by the emotions and has stopped before completing h
 ### What were your feelings when this happened?
 
 Sometimes you want the guest to answer your questions with feelings and emotions. Making your guest answer your questions while drenched in emotions can take your podcast to the next level. Questions like "What were your feelings when this happened?" can take the guest back to the past and make him answer your question with full emotions.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Mirror your guest
 
@@ -241,22 +241,22 @@ Consider the following when picking which of the above questions to use on your 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/eciphering-the-divergent-aspects-of-youtubes-and-dailymentions-for-2024/"><u>[New] Deciphering the Divergent Aspects of YouTubes & DailyMentions for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-elevate-your-ride-with-these-10-sj4000-essentials/"><u>[New] In 2024, Elevate Your Ride with These 10 SJ4000 Essentials</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-filmcrafters-compendium-unpacked-qanda/"><u>[New] In 2024, FilmCrafters' Compendium Unpacked Q&A</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-premier-guidance-leading-ringtone-artisans-iphone/"><u>[New] In 2024, Premier Guidance Leading Ringtone Artisans iPhone</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-smooth-surfaces-from-stability-handheld-tech-for-pros/"><u>[New] In 2024, Smooth Surfaces From Stability Handheld Tech for Pros</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-top-20-iconic-anime-theme-melodies-ever/"><u>[Updated] 2024 Approved Top 20 Iconic Anime Theme Melodies Ever</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-effortless-online-gameplay-meets-virtual-reality-with-xbox-and-zoom-combo/"><u>[Updated] In 2024, Effortless Online Gameplay Meets Virtual Reality with Xbox and Zoom Combo</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-the-ultimate-guide-to-professional-gopro-filming-for-2024/"><u>[Updated] The Ultimate Guide to Professional GoPro Filming for 2024</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/free-online-conversion-change-wmv-files-into-mp4-videos-effortlessly-with-movavi/"><u>Free Online Conversion: Change WMV Files Into MP4 Videos Effortlessly with Movavi</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-google-frp-lock-from-vivo-t2-pro-5g-devices-by-drfone-android/"><u>In 2024, How to Bypass Google FRP Lock from Vivo T2 Pro 5G Devices</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-how-to-fix-when-apple-account-locked-from-iphone-7-plus-by-drfone-ios/"><u>In 2024, How to Fix when Apple Account Locked From iPhone 7 Plus?</u></a></li>
-<li><a href="https://win-able.techidaily.com/overcoming-pc-gameplay-glitches-in-yakuza-6-the-life-song-a-comprehensive-guide/"><u>Overcoming PC Gameplay Glitches in 'Yakuza 6 - The Life Song': A Comprehensive Guide</u></a></li>
-<li><a href="https://fox-where.techidaily.com/resolving-docker-desktops-hypervisor-detection-problem/"><u>Resolving Docker Desktop's Hypervisor Detection Problem</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/revolutionizing-image-capture-with-ios-11-updates/"><u>Revolutionizing Image Capture with iOS 11 Updates</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/samsungs-photo-manipulation-software-a-review/"><u>Samsung's Photo Manipulation Software A Review</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/the-battle-of-ais-assessing-gemini-against-chatgpt-for-ultimate-language-model-supremacy/"><u>The Battle of AIs: Assessing Gemini Against ChatGPT for Ultimate Language Model Supremacy</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-ideal-online-approach-to-learn-finnish-effectively/"><u>The Ideal Online Approach to Learn Finnish Effectively</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/spider-man-no-way-home-the-best-sites-for-legal-viewings/"><u>'Spider-Man: No Way Home': The Best Sites for Legal Viewings</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-drone-shopping-simplified-key-takeaways-for-beginners/"><u>[New] 2024 Approved Drone Shopping Simplified Key Takeaways for Beginners</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-leveraging-audacity-for-unparalleled-professional-recording/"><u>[New] 2024 Approved Leveraging Audacity for Unparalleled Professional Recording</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-how-to-add-radial-blur-effect-to-photos-in-photoshop/"><u>[Updated] 2024 Approved How to Add Radial Blur Effect to Photos in Photoshop</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-view-count-victory-strategies-to-captivate-a-million-users/"><u>[Updated] 2024 Approved View Count Victory Strategies to Captivate a Million Users</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-discover-the-leading-unboxing-yt-channels-for-2024/"><u>[Updated] Discover the Leading Unboxing YT Channels for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-mastering-srt-file-playback-on-both-oses/"><u>[Updated] In 2024, Mastering SRT File Playback on Both OSes</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-ultimate-selection-affordable-hd-cams-for-sports/"><u>[Updated] In 2024, Ultimate Selection Affordable HD Cams for Sports</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-understanding-the-use-of-burst-feature-in-gopros/"><u>[Updated] In 2024, Understanding the Use of Burst Feature in GoPros</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-unveiling-the-art-of-auditory-enhancement-on-youtube/"><u>[Updated] In 2024, Unveiling the Art of Auditory Enhancement on YouTube</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-the-art-of-adding-descriptive-texts-in-tiktok-videos-for-2024/"><u>[Updated] The Art of Adding Descriptive Texts in TikTok Videos for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-unveiling-the-enhanced-samsung-k850u-experience/"><u>[Updated] Unveiling the Enhanced Samsung K850U Experience</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-controlling-comment-visibility-on-youtube-videos/"><u>In 2024, Controlling Comment Visibility on YouTube Videos</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-streamlining-your-video-creation-ootd-on-a-mac/"><u>In 2024, Streamlining Your Video Creation OOTD on a Mac</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-tech-for-everyone-experts-analysis/"><u>In 2024, Tech for Everyone Experts' Analysis</u></a></li>
+<li><a href="https://discover-brilliant.techidaily.com/losung-fur-nicht-abspielbaren-udf-dvd-film-verwenden-sie-winx-dvd-ripper/"><u>Lösung Für Nicht Abspielbaren UDF-DVD-Film - Verwenden Sie WinX DVD Ripper</u></a></li>
+<li><a href="https://windows11.techidaily.com/mending-the-malfunction-of-defrag-in-windows-os/"><u>Mending the Malfunction of Defrag in Windows OS</u></a></li>
 </ul></div>
 

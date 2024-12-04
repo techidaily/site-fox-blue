@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Pioneering Tomorrow  Visionary Developments in VR for 2024\""
-date: 2024-11-20T17:18:11.652Z
-updated: 2024-11-24T16:35:42.925Z
+date: 2024-12-02T01:50:53.709Z
+updated: 2024-12-04T04:55:41.822Z
 tags: 
   - screen-recording
   - ai video
@@ -31,6 +31,10 @@ thumbnail: https://thmb.techidaily.com/b5d7a060863d8900073e79dab85dc7e851c9bee60
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What’s the popular VR platforms and what is developing fast?
 
  Well, the fourth Annual GDC European State of the Industry was held just about a month ago and as always, developers from various parts of this continent took part in it. It was very clear from the developers that they are still launching games keeping the PC and Smart Phones in mind. These are still the most popular platforms where 49 percent of the developers made their latest release on PC/Mac, around 41 percent chose smart phones and tablets to be the best medium.
@@ -41,7 +45,7 @@ thumbnail: https://thmb.techidaily.com/b5d7a060863d8900073e79dab85dc7e851c9bee60
  )
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The VR gaming development is truly rising then
@@ -50,16 +54,12 @@ thumbnail: https://thmb.techidaily.com/b5d7a060863d8900073e79dab85dc7e851c9bee60
 
 ![vr-gaming ](https://images.wondershare.com/filmora/resource/vr-gaming1.jpg )
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  This clears the air that VR is turning to be an emerging platform for the European game developers but, which one is preferred more by the professional game developers – is it the Oculus Rift or HTC Vive or something else for that matter? The survey also includes a detailed report on that as well. Asking about which VR platform they are using – 23.1 percent developers said they are using Rift, Vive is slightly behind with 22 percent developers’ preferences. There is PlayStation VR headset as well with 11.8 percent preferences.
 
  However, despite having such acceptance by the professional game developers, the confidence for the VR games market seems to have dropped a bit – at least the recent survey is showing something like that. Last year, 71.7 percent of the game developers considered VR to be a sustainable long-term market while in this year, it slipped a little with 68.8 percent developers are thinking VR could be a long sustaining gaming market.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## About the European VR game makers and their funding
@@ -69,7 +69,7 @@ thumbnail: https://thmb.techidaily.com/b5d7a060863d8900073e79dab85dc7e851c9bee60
 ![ vr-developer](https://images.wondershare.com/filmora/resource/vr-developer.jpg )
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  We know that crowdsourced funding is also a preferable way to manage funds but, this seems not very convenient for the VR game developers since a very poor percentage (5.2) of the developers replied that they are working on games the fund of which is crowdsourced. While some developers consider this as an awful idea, some mentioned this to be a tricky process.
@@ -79,7 +79,7 @@ thumbnail: https://thmb.techidaily.com/b5d7a060863d8900073e79dab85dc7e851c9bee60
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -107,24 +107,16 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-exclusive-selection-winning-16-free-video-tools/"><u>[New] 2024 Approved Exclusive Selection Winning 16 Free Video Tools</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-in-2024-quick-guide-capturing-your-ppt-slide-show/"><u>[New] In 2024, Quick Guide Capturing Your PPT Slide Show</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-unboxing-the-typhoon-h-yuneecs-drone-expertise/"><u>[New] In 2024, Unboxing the Typhoon H Yuneec's Drone Expertise</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/roven-strategies-for-successful-youtube-shorts/"><u>[New] Proven Strategies for Successful YouTube Shorts</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-top-live-streaming-technologies-for-broadcinas-for-2024/"><u>[New] Top Live Streaming Technologies for Broadcinas for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-why-integrate-hdr-into-your-film-and-video-workflow-for-2024/"><u>[Updated] Why Integrate HDR Into Your Film and Video Workflow for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-pro-videographers-guide-top-15-high-def-recorders/"><u>2024 Approved Pro Videographer's Guide Top 15 High-Def Recorders</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/breath-of-ice-the-winter-olympics-in-china-2022/"><u>Breath of Ice The Winter Olympics in China 2022</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-use-allshare-cast-to-turn-on-screen-mirroring-on-poco-m6-pro-5g-drfone-by-drfone-android/"><u>How To Use Allshare Cast To Turn On Screen Mirroring On Poco M6 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-beginners-vlogging-toolkit-gear-and-software/"><u>In 2024, Beginner's Vlogging Toolkit Gear and Software</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-how-can-we-bypass-honor-90-frp-by-drfone-android/"><u>In 2024, How Can We Bypass Honor 90 FRP?</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-frp-from-vivo-y02t-by-drfone-android/"><u>In 2024, How to Bypass FRP from Vivo Y02T?</u></a></li>
-<li><a href="https://fox-access.techidaily.com/mememakerpro-share-your-giggles-for-2024/"><u>MemeMakerPro Share Your Giggles for 2024</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/resolving-startup-issues-a-comprehensive-guide-on-overcoming-code-1-malfunctions/"><u>Resolving Startup Issues: A Comprehensive Guide on Overcoming 'Code #1' Malfunctions</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/revolutionizing-film-production-how-the-latest-features-of-final-cut-pro-for-ipad-transform-filmmakers-workflow/"><u>Revolutionizing Film Production: How the Latest Features of Final Cut Pro for iPad Transform Filmmakers' Workflow</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/smarter-enhancements-key-factors-in-technology-progress/"><u>Smarter Enhancements Key Factors in Technology Progress</u></a></li>
-<li><a href="https://techidaily.com/what-you-need-to-know-to-improve-your-xiaomi-redmi-note-12-5g-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>What You Need To Know To Improve Your Xiaomi Redmi Note 12 5G Hard Reset | Dr.fone</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/windows-1011/"><u>Windows 10/11用フォトアプリによる動画編集テクニック</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/xsplit-vs-obs-which-is-better-for-live-streaming-in-2024/"><u>Xsplit VS OBS Which Is Better for Live Streaming, In 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-crafting-memes-for-maximum-shareability/"><u>[New] In 2024, Crafting Memes for Maximum Shareability</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-enjoy-uninterrupted-youtube-with-effective-adblocking-methods/"><u>[New] In 2024, Enjoy Uninterrupted YouTube with Effective Adblocking Methods</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/he-beginners-blueprint-for-mobile-youtube-videos/"><u>[New] The Beginner's Blueprint for Mobile YouTube Videos</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-moviemakermag-comprehensive-editor-review/"><u>[Updated] In 2024, MovieMakerMag Comprehensive Editor Review</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-superior-streaming-with-integrated-local-channels-future-edition-for-2024/"><u>[Updated] Superior Streaming with Integrated Local Channels, Future Edition for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-nikons-d500-takes-on-4k-clarity-and-quality/"><u>2024 Approved Nikon's D500 Takes on 4K Clarity and Quality</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/a-comprehensive-guide-to-icloud-unlock-on-apple-iphone-7-online-by-drfone-ios/"><u>A Comprehensive Guide to iCloud Unlock On Apple iPhone 7 Online</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/best-storytelling-channels-for-impactful-yt-watching-for-2024/"><u>Best Storytelling Channels for Impactful YT Watching for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/clockwise-chronicles-apples-video-reversal-method/"><u>Clockwise Chronicles Apple's Video Reversal Method</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-8-ways-to-transfer-photos-from-vivo-t2-pro-5g-to-iphone-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 8 Ways to Transfer Photos from Vivo T2 Pro 5G to iPhone Easily | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/top-3-highest-rated-free-dvd-transcoding-software/"><u>Top 3 Highest-Rated Free DVD Transcoding Software</u></a></li>
 </ul></div>
 

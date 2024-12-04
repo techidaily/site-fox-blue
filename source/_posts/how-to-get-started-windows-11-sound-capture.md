@@ -1,7 +1,7 @@
 ---
 title: "\"How to Get Started  Windows 11 Sound Capture\""
-date: 2024-11-20T20:23:15.798Z
-updated: 2024-11-24T21:03:24.775Z
+date: 2024-12-03T04:19:44.995Z
+updated: 2024-12-04T05:23:18.691Z
 tags: 
   - screen-recording
   - ai video
@@ -41,15 +41,23 @@ Even though there are limited features available in comparison to other audio re
 
 ![record button](https://images.wondershare.com/filmora/article-images/record-button.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ****Step 3:** Click on Stop button to stop the recording. Alternatively, you can use Spacebar or Enter key to stop recording.
 
 ![stop button](https://images.wondershare.com/filmora/article-images/stop-button.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 The recorded audio will be saved automatically in Documents under Sound Recordings folder.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 2\. Audacity
 
@@ -64,7 +72,7 @@ Audacity is a completely free audio recording software for Windows 10\. Audacity
 ![red record button to start recording](https://images.wondershare.com/filmora/article-images/red-record-button-to-start-recording.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ****Step 4:** To stop recording, click on Black Stop button. Go to File > Export As to save the file in desired file format.
@@ -82,10 +90,14 @@ Step 2: Open the app and click on Microphone icon to start recording instantly. 
 ![the recording time](https://images.wondershare.com/filmora/article-images/the-recording-time.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step 3: To stop recording, click on Stop button and save the recording in MP3 file.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 4\. Adobe Audition
 
@@ -121,6 +133,10 @@ Step 2: From Record menu, go to Record Voiceover option.
 
 ![filmora screen recorder](https://images.wondershare.com/filmora/article-images/filmora-record-screen.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step 3: From the pop-up box, select the external microphone. Click on Record button to start recording.
 
 Step 4: When you are done, click on Stop button and export the recorded audio in MP3 format.
@@ -143,36 +159,6 @@ Step 3: From the pop-up box, select the external microphone. Click on Record but
 
 Step 4: When you are done, click on Stop button and export the recorded audio in MP3 format.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-## Conclusion
-
-We have how to record audio on Windows 10 using free as well as premium software. If you want to record your voice right away, you should use Windows Voice Recorder app that comes preinstalled. You can even install Quick Sound Recorder Free app instantly and start recording. For professional-level recording, Audacity and Adobe Audition are perfect. But Wondershare Filmora stands out for audio as well as video recording and editing in Windows 10.
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-For macOS 10.12 or later
-
-Step 1: Launch Filmora and select New Project option.
-
-Step 2: From Record menu, go to Record Voiceover option.
-
-![filmora screen recorder](https://images.wondershare.com/filmora/article-images/filmora-record-screen.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-Step 3: From the pop-up box, select the external microphone. Click on Record button to start recording.
-
-Step 4: When you are done, click on Stop button and export the recorded audio in MP3 format.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 We have how to record audio on Windows 10 using free as well as premium software. If you want to record your voice right away, you should use Windows Voice Recorder app that comes preinstalled. You can even install Quick Sound Recorder Free app instantly and start recording. For professional-level recording, Audacity and Adobe Audition are perfect. But Wondershare Filmora stands out for audio as well as video recording and editing in Windows 10.
@@ -191,9 +177,23 @@ Step 3: From the pop-up box, select the external microphone. Click on Record but
 
 Step 4: When you are done, click on Stop button and export the recorded audio in MP3 format.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
+## Conclusion
+
+We have how to record audio on Windows 10 using free as well as premium software. If you want to record your voice right away, you should use Windows Voice Recorder app that comes preinstalled. You can even install Quick Sound Recorder Free app instantly and start recording. For professional-level recording, Audacity and Adobe Audition are perfect. But Wondershare Filmora stands out for audio as well as video recording and editing in Windows 10.
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+For macOS 10.12 or later
+
+Step 1: Launch Filmora and select New Project option.
+
+Step 2: From Record menu, go to Record Voiceover option.
+
+![filmora screen recorder](https://images.wondershare.com/filmora/article-images/filmora-record-screen.jpg)
+
+Step 3: From the pop-up box, select the external microphone. Click on Record button to start recording.
+
+Step 4: When you are done, click on Stop button and export the recorded audio in MP3 format.
 
 ## Conclusion
 
@@ -223,24 +223,15 @@ We have how to record audio on Windows 10 using free as well as premium software
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-cloud-costs-top-picks-for-value-for-2024/"><u>[New] Cloud Costs Top Picks for Value for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-edge-and-elegance-in-figure-skating-for-2024/"><u>[New] Edge and Elegance in Figure Skating for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-fading-into-silence-the-subtle-approach-in-fl-studio-for-2024/"><u>[New] Fading Into Silence The Subtle Approach in FL Studio for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-top-30-whatsapp-biographies-for-every-astrology-follower/"><u>[New] In 2024, Top 30 WhatsApp Biographies for Every Astrology Follower</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-unleashing-the-power-of-voice-ms-words-speech-recognition-features-for-2024/"><u>[New] Unleashing the Power of Voice MS Word's Speech Recognition Features for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-top-ae-scripting-tools-and-plug-ins/"><u>[Updated] 2024 Approved Top AE Scripting Tools & Plug-Ins</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-how-to-create-endless-video-on-iphone/"><u>[Updated] How-To Create Endless Video on iPhone</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-innovative-5-mobile-photo-editing-tools-background-switcher/"><u>[Updated] Innovative 5 Mobile Photo Editing Tools Background Switcher</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-selective-software-optimal-blu-ray-players-free-to-pay/"><u>[Updated] Selective Software Optimal Blu-Ray Players (Free to Pay)</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-the-foremost-audiovideo-makers-online-guidebook/"><u>[Updated] The Foremost Audio/Video Makers Online Guidebook</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-pro-iphone-photo-illumination-tricks/"><u>2024 Approved Pro Iphone Photo Illumination Tricks</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/2024-approved-which-should-you-use-obs-studio-or-bandicam/"><u>2024 Approved Which Should You Use, OBS Studio or Bandicam?</u></a></li>
-<li><a href="https://voice-adjusting.techidaily.com/5-best-tools-to-help-you-distort-audio-for-2024/"><u>5 Best Tools to Help You Distort Audio for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/building-striking-podcast-branding-logo-design-guide/"><u>Building Striking Podcast Branding Logo Design Guide</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-tecno-spark-10-pro-drfone-by-drfone-virtual-android/"><u>Can I use iTools gpx file to catch the rare Pokemon On Tecno Spark 10 Pro | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/experts-choice-top-10-low-cost-sbd-applications/"><u>Expert's Choice Top 10 Low-Cost SBD Applications</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-can-oppo-a79-5gmirror-share-to-pc-drfone-by-drfone-android/"><u>How Can Oppo A79 5GMirror Share to PC? | Dr.fone</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/is-apple-struggling-to-keep-up-with-demand-for-vision-pro-understanding-present-inventory-shortfalls-and-distribution-hurdles-digital-times/"><u>Is Apple Struggling to Keep Up with Demand for Vision Pro? Understanding Present Inventory Shortfalls & Distribution Hurdles | Digital Times</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ays-to-youtube-stardom-in-video-games-for-2024/"><u>Pathways to YouTube Stardom in Video Games for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-guide-to-lenovos-screen-recording-process/"><u>[New] 2024 Approved Guide to Lenovo's Screen Recording Process</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-masterful-social-media-monitoring-expert-selection-of-analytics-software/"><u>[New] 2024 Approved Masterful Social Media Monitoring Expert Selection of Analytics Software</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-scrutinizing-googles-ar-embellishments-and-others-for-2024/"><u>[New] Scrutinizing Google's AR Embellishments & Others for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-sdr-evolution-into-hdri-the-ultimate-video-enhancers-handbook-for-2024/"><u>[New] SDR Evolution Into HDRI The Ultimate Video Enhancer's Handbook for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-the-art-of-gamers-screen-recording-on-win10-for-2024/"><u>[New] The Art of Gamers' Screen Recording on Win10 for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-the-complete-guide-to-customizing-your-game-characters-sound-identity-free-solution-included/"><u>[Updated] In 2024, The Complete Guide to Customizing Your Game Character's Sound Identity (Free Solution Included)</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-screens-that-make-a-statement-the-ultimate-4k-displays-for-macs/"><u>[Updated] Screens That Make a Statement The Ultimate 4K Displays for Macs</u></a></li>
+<li><a href="https://win-fantastic.techidaily.com/guida-alla-risoluzione-dei-problemi-quando-si-interrompe-la-sincronizzazione-di-icloud-su-mac-con-esempi-pratici/"><u>Guida Alla Risoluzione Dei Problemi Quando Si Interrompe La Sincronizzazione Di iCloud Su Mac Con Esempi Pratici</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-samsung-galaxy-f34-5g-to-mac-drfone-by-drfone-android/"><u>In 2024, How to Mirror Samsung Galaxy F34 5G to Mac? | Dr.fone</u></a></li>
+<li><a href="https://driver-error.techidaily.com/unveiling-the-secret-to-resolving-asus-drivers-in-win10/"><u>Unveiling the Secret to Resolving ASUS Drivers in Win10</u></a></li>
 </ul></div>
 

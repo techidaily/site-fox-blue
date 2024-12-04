@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Enhancing Engagement  Best Practices for B Roll Integration\""
-date: 2024-11-18T23:15:20.816Z
-updated: 2024-11-24T16:07:56.113Z
+date: 2024-11-27T04:49:26.982Z
+updated: 2024-12-04T08:40:28.549Z
 tags: 
   - screen-recording
   - ai video
@@ -27,6 +27,10 @@ Now that we know that, let's dive in!
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. B roll In TV And Movies
 
 Broll is an acronym for "background" or "behind," respectively. It usually refers to extra footage captured with a movie camera while keeping the lighting consistent between scenes in the movie industry. When the filmmaker doesn't want to show any dialogue or action on screen but needs some movement within the frame, it might be utilized as filler.
@@ -38,7 +42,7 @@ B roll can be utilized for establishing shots as well as close-ups of items. It 
 For instance, wider shots are frequently used when someone is giving a speech while seated behind a podium so that we can see both them and their surroundings, such as audience members standing close and applauding or security personnel.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2\. Methods to use b roll
@@ -62,7 +66,7 @@ Aerial B roll is the solution when you like to show your viewers where your film
 Including archival material in your video allows your audience to experience a previously covered or historically significant story as it occurred. Look at this illustration from Netflix's 14 Peaks: Nothing Is Impossible, which was made utilizing old b roll film from the era to help the viewer connect with the narrative.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3\. Storytelling b roll footage
@@ -73,10 +77,6 @@ B roll footage can be used to tell a story that supports the narrative of your v
 
 This particular kind of B roll film is captured without any direction being given to your character, as the name suggests. For the purposes of an interview video, for instance, these can be straightforward close-up views of your character's hands and facial expressions. On the other hand, while you're doing a documentary, you might record your subject participating in everyday activities.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 5\. Atmospheric b roll footage
 
 When you are sharing a narrative that has been told in the past or that has historical significance, incorporating archival material into your video gives your audience the opportunity to see the story as it occurred at the time. This is especially useful when you are discussing a narrative that has been experienced in the past or that has futuristic relevance.
@@ -84,7 +84,7 @@ When you are sharing a narrative that has been told in the past or that has hist
 Have a look at the scenes from the episode "14 Peaks: Nothing Is Impossible" that can be found on Netflix. As a result of the use of archive film footage of b roll from the relevant time period in its production, the audience is able to connect with the narrative on a deeper level.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 6\. Pick-up shots
@@ -94,7 +94,7 @@ A pick-up is a tiny shot added to previously captured material. Re-shoots involv
 If flaws were discovered during primary photography, the directors could have requested another take. The producer and director should weigh the cost of rejoining cast and crew against the need for pick-ups or re-shoots to address storyline flaws (or worse) in the final edit.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 7\. A roll vs b roll
@@ -135,24 +135,24 @@ We sincerely hope that this post will be of use to you in making your films more
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-decisional-balance/"><u>[New] In 2024, Decisional Balance</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-joining-images-harmoniously-on-your-pc/"><u>[New] Joining Images Harmoniously on Your PC</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-photoshop-and-beyond-top-monitors-reviewed-editors-picks/"><u>[New] Photoshop & Beyond Top Monitors Reviewed [Editors' Picks]</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-picsarts-full-spectrum-exploration-for-2024/"><u>[New] PicsArt's Full Spectrum Exploration for 2024</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-quick-pics-windows-11s-fast-photo-viewer-for-2024/"><u>[New] Quick Pics Windows 11'S Fast Photo Viewer for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-spot-real-vs-sham-accounts-in-instagram-life-for-2024/"><u>[New] Spot Real Vs. Sham Accounts in Instagram Life for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-fundamental-narrative-structure/"><u>[Updated] 2024 Approved Fundamental Narrative Structure</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-harmonizing-social-media-a-guide-for-insta-tik-tok-linkage/"><u>[Updated] 2024 Approved Harmonizing Social Media A Guide for Insta-Tik Tok Linkage</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-the-complete-youtubers-guide-to-editing-in-premiere-pro/"><u>[Updated] 2024 Approved The Complete Youtuber's Guide to Editing in Premiere Pro</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-transform-overload-into-order-with-skillful-tiktok-saves-edits/"><u>[Updated] In 2024, Transform Overload Into Order with Skillful TikTok Saves Edits</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-jest-juggler-mummified-memers/"><u>[Updated] Jest Juggler Mummified Memers</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-mastering-live-coverage-10-key-approaches-in-cricket-streaming/"><u>[Updated] Mastering Live Coverage 10 Key Approaches in Cricket Streaming</u></a></li>
-<li><a href="https://solve-helper.techidaily.com/free-online-mp2-and-wmv-converter-by-movavi-convert-videos-quickly/"><u>Free Online MP2 & WMV Converter by Movavi - Convert Videos Quickly</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/get-macx-dvd-ripper-pro-at-an-exclusive-online-deal-save-now/"><u>Get MacX DVD Ripper Pro at an Exclusive Online Deal – Save Now!</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-and-where-to-find-a-shiny-stone-pokemon-for-realme-12plus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How and Where to Find a Shiny Stone Pokémon For Realme 12+ 5G? | Dr.fone</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-google-frp-lock-from-oppo-find-n3-flip-devices-by-drfone-android/"><u>In 2024, How to Bypass Google FRP Lock from Oppo Find N3 Flip Devices</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-proven-ways-in-how-to-hide-location-on-life360-for-oneplus-open-drfone-by-drfone-virtual-android/"><u>In 2024, Proven Ways in How To Hide Location on Life360 For OnePlus Open | Dr.fone</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/premier-pro-templates-of-the-year-free-version-for-2024/"><u>Premier Pro Templates of the Year - Free Version for 2024</u></a></li>
-<li><a href="https://extra-information.techidaily.com/your-guide-to-the-top-hdmi-tvs-21-a-comparison-chart/"><u>Your Guide to the Top HDMI TVs (2.1) A Comparison Chart</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-expert-advice-on-acquiring-royalty-free-high-quality-graphics/"><u>[New] 2024 Approved Expert Advice on Acquiring Royalty-Free, High-Quality Graphics</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-usenet-video-player-direct-streaming-access/"><u>[New] 2024 Approved Usenet Video Player Direct Streaming Access</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-6-excellent-apps-to-capture-and-save-linkedin-videos-successfully/"><u>[New] 6 Excellent Apps to Capture and Save LinkedIn Videos Successfully</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-precision-editing-perfecting-the-art-of-fades-in-pro/"><u>[New] In 2024, Precision Editing Perfecting the Art of Fades in Pro</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-optimizing-income-a-trifecta-methodology-for-youtube-earnings-assessment/"><u>[New] Optimizing Income A Trifecta Methodology for YouTube Earnings Assessment</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-a-step-by-step-approach-to-ad-revenue-in-youtube-videos/"><u>[Updated] 2024 Approved A Step-by-Step Approach to Ad Revenue in YouTube Videos</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-videology-app-analysis-and-ratings/"><u>[Updated] 2024 Approved Videology App Analysis & Ratings</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-beyond-boundaries-the-present-state-and-future-of-vr/"><u>[Updated] In 2024, Beyond Boundaries The Present State and Future of VR</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-step-by-step-journey-to-captivating-hdr-portraits-for-2024/"><u>[Updated] Step-by-Step Journey to Captivating HDR Portraits for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-best-mkv-player-for-pc-and-mobile/"><u>2024 Approved Best Mkv Player for PC and Mobile</u></a></li>
+<li><a href="https://win-answers.techidaily.com/effective-solutions-for-reducing-discords-cpu-consumption/"><u>Effective Solutions for Reducing Discord's CPU Consumption</u></a></li>
+<li><a href="https://techidaily.com/how-to-factory-reset-infinix-hot-30-5g-if-i-forgot-security-code-or-password-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Infinix Hot 30 5G If I Forgot Security Code or Password? | Dr.fone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/inside-the-world-of-electronics-a-toms-hardware-tour/"><u>Inside the World of Electronics - A Tom's Hardware Tour</u></a></li>
+<li><a href="https://games-able.techidaily.com/overcoming-freezing-issues-in-fallout-3-on-windows-10-computers/"><u>Overcoming Freezing Issues in Fallout 3 on Windows 10 Computers</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/supreme-session-naming-service-for-2024/"><u>Supreme Session Naming Service for 2024</u></a></li>
+<li><a href="https://win-blog.techidaily.com/top-7-methods-for-organizing-information-with-excel-a-comprehensive-guide/"><u>Top 7 Methods for Organizing Information with Excel: A Comprehensive Guide</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/unveiling-toms-gear-guide-your-comprehensive-resource-for-hardware-knowledge/"><u>Unveiling Tom's Gear Guide: Your Comprehensive Resource for Hardware Knowledge</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/which-pokemon-can-evolve-with-a-moon-stone-for-oneplus-ace-2-drfone-by-drfone-virtual-android/"><u>Which Pokémon can Evolve with a Moon Stone For OnePlus Ace 2? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/you-can-now-transfer-facebook-posts-and-notes-to-three-popular-services/"><u>You Can Now Transfer Facebook Posts and Notes to Three Popular Services</u></a></li>
 </ul></div>
 

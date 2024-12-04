@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Exploring High Frame Rate Filming with YI"
-date: 2024-08-31T16:57:16.087Z
-updated: 2024-09-01T16:57:16.087Z
+date: 2024-11-30T16:55:04.323Z
+updated: 2024-12-04T01:20:14.137Z
 tags: 
   - screen-recording
   - ai video
@@ -30,6 +30,10 @@ thumbnail: https://thmb.techidaily.com/5f19d12263b1224bd46b49560f2a184a0c0f8c0d5
 
 **You may also like:** [Top 15 Best Action Cameras >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Complete Review for Yi 4k Action Camera
 
 [Check at Amazon](https://www.amazon.com/gp/product/B01FU9ZIMU/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01FU9ZIMU&linkId=8ffea9b2da130000b205cf9367ce3ccf
@@ -40,6 +44,10 @@ thumbnail: https://thmb.techidaily.com/5f19d12263b1224bd46b49560f2a184a0c0f8c0d5
  Let us start with the hardware part. Yi 4k looks almost same as that of GoPro device, even the waterproof case appears somewhat like GoPro product. Some resemblance is found in mobile applications as well as in mounting systems. The front side of Yi 4k is equipped with a lens and LED that provides current camera status indication. The 2.2 inch wide LCD screen is protected with Gorilla Glass whereas on top portion you will find holes for speaker and dual microphone. On the right side, a small flap is covering MicroUSB charging port and the left side is left bare.
 
 ![yi-4k-product](https://images.wondershare.com/filmora/article-images/yi-4k-product.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### Specifications
 
@@ -74,6 +82,10 @@ thumbnail: https://thmb.techidaily.com/5f19d12263b1224bd46b49560f2a184a0c0f8c0d5
  Want to know more about the best accessories for Xiaomi Yi 4K action camera? Check [Best Accessories for YI 4K Action Camera in 2017](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![yi-4k-unboxing-](https://images.wondershare.com/filmora/article-images/yi-4k-unboxing-.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### Features
 
@@ -131,6 +143,10 @@ thumbnail: https://thmb.techidaily.com/5f19d12263b1224bd46b49560f2a184a0c0f8c0d5
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Max Wales
 
 Max Wales is a writer and a lover of all things video.
@@ -154,8 +170,19 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-complete-insights-into-utilizing-the-full-potential-of-macs-preview-features/"><u>[New] 2024 Approved Complete Insights Into Utilizing the Full Potential of Mac's Preview Features</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-chilly-champs-beijings-best-of-the-2022-games/"><u>[New] In 2024, Chilly Champs Beijing's Best of the 2022 Games</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-unlock-efficiency-the-editors-guide-to-speed-control/"><u>[New] In 2024, Unlock Efficiency The Editor's Guide to Speed Control</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-mouthwatering-moves-the-hottest-foods-on-tiktok/"><u>[New] Mouthwatering Moves The Hottest Foods on TikTok</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-the-complete-seo-strategy-for-podcast-growth-for-2024/"><u>[New] The Complete Seo Strategy for Podcast Growth for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-a-quick-guide-to-firefoxs-innovative-pip-mode/"><u>[Updated] In 2024, A Quick Guide to Firefox's Innovative PIP Mode</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-the-quintessential-list-best-tales-from-youtube-in-23-for-2024/"><u>[Updated] The Quintessential List Best Tales From YouTube in '23 for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-viewer-count-chronicles-mastering-the-math-of-monetizing-moments-in-youtube-space/"><u>[Updated] The Viewer Count Chronicles Mastering the Math of Monetizing Moments in YouTube Space</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/best-ways-to-bypass-icloud-activation-lock-on-iphone-14-plusipadipod-by-drfone-ios/"><u>Best Ways to Bypass iCloud Activation Lock on iPhone 14 Plus/iPad/iPod</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/navigating-through-troubled-waters-the-six-most-prevalent-chatgpt-issues-corrected/"><u>Navigating Through Troubled Waters: The Six Most Prevalent ChatGPT Issues Corrected</u></a></li>
+<li><a href="https://fox-http.techidaily.com/rejuvenated-dialogue-ideas-to-hook-listeners/"><u>Rejuvenated Dialogue Ideas to Hook Listeners</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/unseen-content-exposure-a-video-sharing-roadmap-for-2024/"><u>Unseen Content Exposure A Video-Sharing Roadmap for 2024</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->

@@ -1,7 +1,7 @@
 ---
 title: "\"Dive Into Long-Exposure iPhone Photography\""
-date: 2024-11-18T05:13:01.435Z
-updated: 2024-11-25T02:54:26.845Z
+date: 2024-11-29T08:02:26.469Z
+updated: 2024-12-04T02:54:25.119Z
 tags: 
   - screen-recording
   - ai video
@@ -42,10 +42,6 @@ thumbnail: https://thmb.techidaily.com/733caf2abbd8fb995bf457552e00ba90aafeaec9c
 
  When you take long exposure shots using a digital SLR, the physical shutter which captures the image stays open for longer. You can also fiddle with the aperture size, to make it easier to capture these images in different light levels. This process is meticulously replicated by the iPhone's newest Photos app, so if you're already on iOS 11, here's how to use it:
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Users on iOS 11
 
  First of all, make sure Live Photos is switched on. Within the camera app, simply tap the circular button in the middle of the top menu bar to turn it on. Once activated, the button will turn yellow and the 'live' notification will be shown on screen.
@@ -59,7 +55,7 @@ thumbnail: https://thmb.techidaily.com/733caf2abbd8fb995bf457552e00ba90aafeaec9c
 ![long-exposure-effect-iphone](https://images.wondershare.com/filmora/article-images/long-exposure-effect-iphone.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Image resource: iPhoneMod
@@ -85,6 +81,10 @@ thumbnail: https://thmb.techidaily.com/733caf2abbd8fb995bf457552e00ba90aafeaec9c
 
  This feature is one of the most exciting and interesting uses of Live Photos to date, and is well worth checking out if you haven't done so already.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### What should you capture with your long exposure iPhone shots?
 
  Long exposure shots are magical, giving a dreamy, almost ethereal quality to everyday situations. No doubt you'll find your own amazing things to shoot, but to get you started, why not try a long exposure iPhone shot of:
@@ -93,15 +93,15 @@ thumbnail: https://thmb.techidaily.com/733caf2abbd8fb995bf457552e00ba90aafeaec9c
 
 ![flowing-water-long-exposure](https://images.wondershare.com/filmora/article-images/flowing-water-long-exposure.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Image resource: Photography Mad
 
 * **Light trails:** Light is everywhere, and if you take your iPhone camera long exposure trick out of the house at night, you'll find some amazing opportunities to shoot. Cars on the highway, Ferris wheels at the fair and even the stars in the sky can become something amazing with a longer exposure.
 
 ![long-trails-exposure](https://images.wondershare.com/filmora/article-images/long-trails-exposure.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Image resource: WallDevil
 
@@ -109,15 +109,15 @@ thumbnail: https://thmb.techidaily.com/733caf2abbd8fb995bf457552e00ba90aafeaec9c
 
 ![motion-blur-long-exposure](https://images.wondershare.com/filmora/article-images/motion-blur-long-exposure.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Image resource: Digital Photo Secrets
 
 * **Low light photography:** With a longer exposure, things which were previously un-snappable are suddenly within your grasp. Beautiful fountains at night, bridges, buildings… anything which would previously have been little more than a shadow can now become part of your collection, simply by extending the exposure length.
 
 ![low-light-long-exposure](https://images.wondershare.com/filmora/article-images/low-light-long-exposure.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Image resource: Nikonites
 
@@ -132,7 +132,7 @@ thumbnail: https://thmb.techidaily.com/733caf2abbd8fb995bf457552e00ba90aafeaec9c
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Ollie Mattison
@@ -160,21 +160,18 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-2023s-top-8-video-sensations-a-facebook-deep-dive/"><u>[New] 2024 Approved 2023'S Top 8 Video Sensations A Facebook Deep Dive</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-becoming-a-onestream-pro-tips-and-tricks-from-the-pros/"><u>[New] 2024 Approved Becoming a OneStream Pro Tips and Tricks From the Pros</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-dynamic-title-creation-the-game-changer/"><u>[New] 2024 Approved Dynamic Title Creation The Game Changer</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-essential-8-tools-for-quick-subs-to-srt-on-windows-osx-and-more/"><u>[New] 2024 Approved Essential 8 Tools for Quick Subs to SRT on Windows, OSX and More</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-expert-guide-to-android-time-lapse-video-magic/"><u>[New] 2024 Approved Expert Guide to Android Time-Lapse Video Magic</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-capturing-panoramic-views-fisheye-techniques-for-2024/"><u>[New] Capturing Panoramic Views Fisheye Techniques for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-arctic-athleticism-revealed-the-top-of-the-line-in-olympic-snowboard-cross/"><u>[Updated] 2024 Approved Arctic Athleticism Revealed The Top of the Line in Olympic Snowboard Cross</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-your-easy-routine-for-viewing-well-regarded-and-favorited-comments/"><u>[Updated] In 2024, Your Easy Routine for Viewing Well-Regarded and Favorited Comments</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-premium-online-platforms-for-video-intro-creation/"><u>[Updated] Premium Online Platforms for Video Intro Creation</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/2024-approved-best-qpr-index-for-sluggish-video-content/"><u>2024 Approved Best QPR Index for Sluggish Video Content</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-explore-the-richest-historical-content-with-these-top-10-yt-groups/"><u>2024 Approved Explore the Richest Historical Content with These Top 10 YT Groups</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-vegas-pro-2021-a-detailed-gaming-world-survey/"><u>2024 Approved Vegas Pro 2021 A Detailed Gaming World Survey</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/expert-analysis-of-hardware-by-tom-your-guide-to-tech-choices/"><u>Expert Analysis of Hardware by Tom - Your Guide to Tech Choices</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/quick-and-simple-setup-download-drivers-for-brother-mfc-7360n-on-pcs-running-windows-1187/"><u>Quick and Simple Setup: Download Drivers for Brother MFC-7360N on PCs Running Windows 11/8/7</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/the-complete-walkthrough-using-the-chkdsk-utility-in-windows-environments/"><u>The Complete Walkthrough: Using the Chkdsk Utility in Windows Environments</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/updated-unleash-your-creativity-the-best-animation-makers-for-beginners-and-pros-for-2024/"><u>Updated Unleash Your Creativity The Best Animation Makers for Beginners and Pros for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-best-box-customization-havens-on-the-internet/"><u>[Updated] 2024 Approved Best Box-Customization Havens on the Internet</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-changing-frozen-moments-into-sequential-movies/"><u>[Updated] Changing Frozen Moments Into Sequential Movies</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-digital-media-visionaries-comprehensive-top-5-directory-for-2024/"><u>[Updated] Digital Media Visionaries Comprehensive Top 5 Directory for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-a-comprehensive-guide-to-the-12-superior-vlogging-cameras/"><u>[Updated] In 2024, A Comprehensive Guide to the 12 Superior Vlogging Cameras</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-devising-visual-temporal-anomalies-effects/"><u>[Updated] In 2024, Devising Visual Temporal Anomalies Effects</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-master-the-art-of-conducting-virtual-meetings-with-zoom-win10-for-2024/"><u>[Updated] Master the Art of Conducting Virtual Meetings with Zoom (Win10) for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-integrating-multimedia-for-iphone-users/"><u>2024 Approved Integrating Multimedia for iPhone Users</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-making-a-mark-jujutsu-kaisen-on-the-tiktok-scene/"><u>2024 Approved Making a Mark Jujutsu Kaisen on the TikTok Scene</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-smartphone-cinematics-samsungs-guide-to-time-lapse/"><u>2024 Approved Smartphone Cinematics Samsung's Guide to Time-Lapse</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-vibration-victory-clearer-cinematography/"><u>2024 Approved Vibration Victory Clearer Cinematography</u></a></li>
+<li><a href="https://techtrends.techidaily.com/dvd-movies-to-pc-conversion-made-easy-a-comprehensive-tutorial-on-using-vlc-with-screenshots-compatible-with-both-mac-and-windows-systems/"><u>DVD Movies to PC Conversion Made Easy: A Comprehensive Tutorial on Using VLC with Screenshots, Compatible With Both Mac and Windows Systems</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-change-your-xiaomi-redmi-note-13-5g-location-on-twitter-drfone-by-drfone-virtual-android/"><u>How to Change your Xiaomi Redmi Note 13 5G Location on Twitter | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-get-the-apple-id-verification-code-from-iphone-15-in-the-best-ways-by-drfone-ios/"><u>In 2024, How To Get the Apple ID Verification Code From iPhone 15 in the Best Ways</u></a></li>
 </ul></div>
 
