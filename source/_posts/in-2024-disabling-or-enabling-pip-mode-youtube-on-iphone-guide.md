@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Disabling or Enabling PIP Mode  YouTube on iPhone Guide\""
-date: 2024-08-27T12:42:56.451Z
-updated: 2024-08-28T12:42:56.451Z
+date: 2024-12-07T19:34:02.155Z
+updated: 2024-12-11T00:35:51.904Z
 tags: 
   - screen-recording
   - ai video
@@ -22,6 +22,10 @@ Picture in Picture is now available on YouTube on all platforms and devices in t
 
 After opening the video in PIP mode, you can do things around on the screen of your device as the video plays on a floating window. You will be able to resize and drag the window along as you carry along with other activities on your phone or PC.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1\. How to enable Picture in Picture for YouTube on iPhone
 
 To enable PIP on iPhone on YouTube and use it better, you should be a premium YouTube subscriber. Picture in Picture on iPhone depends on the version of your phone. And here, I am going to tell you how to enable PIP on the latest versions of iPhones.
@@ -33,6 +37,10 @@ On iOS 14.5 or 14.6, here is a simple step-by-step guide to enable Picture in Pi
 3. Turn on **Allow Untrusted Shortcuts**. If this option is not available for your device, go to **Screen Time extension** and disable any screen time restrictions. So, you will proceed successfully.
 
 ![enable pip on iphone](https://images.wondershare.com/filmora/article-images/2022/07/picture-in-picture-for-youtube-on-iphone-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 1. If you require a **YouTube PIP** shortcut app on your device to proceed, you can download it from App Store or [the Shortcuts Gallery browser](https://shortcutsgallery.com/shortcuts/youtube-pip/) and then add it to your Shortcut Library.
 2. Open the **YouTube PIP** Shortcut and tap **Get Shortcut** on the App. You will be redirected to the shortcut application on your phone. If you don't have the shortcut application, you can download it from the App Store.
@@ -48,6 +56,10 @@ On iOS 14.5 or 14.6, here is a simple step-by-step guide to enable Picture in Pi
 
 ![scriptable app](https://images.wondershare.com/filmora/article-images/2022/07/picture-in-picture-for-youtube-on-iphone-3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Tap on **View in App Store** on the screen that appears. This will direct you to the App Store.
 2. On the next screen that appears, download [**Scriptable App**](https://apps.apple.com/us/app/scriptable/id1405459188). Get back to the home screen and launch Scriptable App once.
 
@@ -57,7 +69,15 @@ On iOS 14.5 or 14.6, here is a simple step-by-step guide to enable Picture in Pi
 
 ![floating screen](https://images.wondershare.com/filmora/article-images/2022/07/picture-in-picture-for-youtube-on-iphone-5.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 And there you go, now you will be able to watch your videos on a floating screen. This procedure may be pretty tedious, but it is all worth it if you follow keenly to the end. You will do it only once.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2\. How to Disable Picture in Picture for YouTube on iPhone
 
@@ -69,16 +89,10 @@ To use PIP on iPhone effectively, you may sometime need to deactivate it so that
 4. Scroll down. You will see the **Picture-in-Picture**
 5. Tap the switch button to switch it off. And there you are. You have disabled PIP for YouTube on iPhone.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
-<!-- affiliate ads end -->
 ## Part 3\. How to enable Picture in Picture for YouTube on Mac and iPad
 
 Picture in Picture is now a native quality utility feature on many Apps on different platforms. PIP has stayed for some time since it was developed and introduced for third-party utilization. However, YouTube is still left out of this. To enable PIP on Mac, you will need to go a step ahead to do it. Enjoying PIP on an iPad is also not a straightforward thing. All the same, Mac and iPad require very simple instructions to allow you to use Picture in Picture with them.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ### PIP on iPad
 
 To activate PIP on your iPad, you only need your phone settings and a supported browser like Safari. However, you have to update your iPad to the iOS 14 version that fully supports the feature.
@@ -99,12 +113,6 @@ Before you use Picture in Picture in YouTube, you require two Apps on your devic
 
 ![floating window](https://images.wondershare.com/filmora/article-images/2022/07/picture-in-picture-for-youtube-on-iphone-6.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
-<!-- affiliate ads end -->
 ### PIP on Mac
 
 On your Mac, there are two ways to get into Picture in Picture mode. You can use Control Command and Mouse together, or simply the mouse itself/touchpad. And here is how to do it with a Mouse only.
@@ -122,13 +130,6 @@ And with the Control Commands, you can get into PIP on Mac very easily in only t
 
 ![get into pip on mac](https://images.wondershare.com/filmora/article-images/2022/07/picture-in-picture-for-youtube-on-iphone-7.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
-The ultimate burning program for all your needs!</a>
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Conclusion
 
 Picture in Picture is a computer utility feature in the USA. It has not been launched in most parts of the globe. Therefore, these instructions may not work for everyone because they are only supported on devices in the USA. Very soon everyone will be able to enjoy Picture in Picture everywhere as its development attract the world.
@@ -161,4 +162,26 @@ Picture in Picture is a computer utility feature in the USA. It has not been lau
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-inside-the-revamped-sony-bdp-s6700/"><u>[New] 2024 Approved Inside the Revamped Sony BDP-S6700</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-composing-prime-canon-temporal-videos/"><u>[New] Composing Prime Canon Temporal Videos</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-perfecting-your-interview-role-a-comprehensive-guide/"><u>[New] In 2024, Perfecting Your Interview Role A Comprehensive Guide</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-popular-imagery-origins-decoded-for-2024/"><u>[New] Popular Imagery Origins Decoded for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-prime-fareless-streaming-and-recording-software-for-2024/"><u>[New] Prime Fareless Streaming & Recording Software for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-the-slomo-video-app-critique-a-look-at-2024/"><u>[New] The SloMo Video App Critique - A Look at 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-air-and-pro-on-m1-compare-contrast-and-choose-wisely-for-2024/"><u>[Updated] Air & Pro on M1 Compare, Contrast, and Choose Wisely for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-harness-the-web-to-preserve-and-share-live-music-sounds/"><u>[Updated] Harness the Web to Preserve and Share Live Music Sounds</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-the-ring-of-creatives-evaluating-own-and-adversary-arts/"><u>[Updated] In the Ring of Creatives Evaluating Own and Adversary Arts</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-periscope-recording-for-beginners-a-complete-walkthrough-for-2024/"><u>[Updated] Periscope Recording for Beginners A Complete Walkthrough for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/frosted-feats-beijings-ice-showdown-highlights-for-2024/"><u>Frosted Feats Beijing's Ice Showdown Highlights for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/google-play-services-wont-update-12-fixes-are-here-on-motorola-razr-40-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Google Play Services Wont Update? 12 Fixes are Here on Motorola Razr 40 | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/high-fidelity-videos-our-selection-of-the-three-finest-phones/"><u>High Fidelity Videos Our Selection of the Three Finest Phones</u></a></li>
+<li><a href="https://program-issues.techidaily.com/how-to-stop-rainbow-six-extraction-from-crashing-on-your-windows-pc/"><u>How to Stop Rainbow Six Extraction From Crashing on Your Windows PC</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-collaborative-innovation-in-brand-and-media-synergy/"><u>In 2024, Collaborative Innovation in Brand and Media Synergy</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/the-ultimate-windows-mobile-video-playback-guide/"><u>The Ultimate Windows Mobile Video Playback Guide</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/the-veiled-virtuoso-guide-to-silent-commands-win11-edition/"><u>The Veiled Virtuoso Guide to Silent Commands, Win11 Edition</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/unveiling-secrets-sharper-facebook-videos-on-android/"><u>Unveiling Secrets Sharper Facebook Videos on Android</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/win10-upgrade-overcoming-video-quality-decline/"><u>Win10 Upgrade: Overcoming Video Quality Decline</u></a></li>
+</ul></div>
 

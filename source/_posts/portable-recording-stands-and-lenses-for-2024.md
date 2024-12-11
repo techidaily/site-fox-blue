@@ -1,7 +1,7 @@
 ---
 title: "Portable Recording Stands and Lenses for 2024"
-date: 2024-11-26T17:29:48.323Z
-updated: 2024-12-04T01:59:01.209Z
+date: 2024-12-08T23:55:55.275Z
+updated: 2024-12-10T22:03:31.735Z
 tags: 
   - screen-recording
   - ai video
@@ -31,7 +31,7 @@ A smartphone with a great camera is all you need to record great videos, but you
 The best smartphone accessories are lightweight and require as little setup as possible. One of the best things about making videos on your phone is that it allows you to be spontaneous and record life as it happens. A great smartphone accessory will not make it any more complicated to record on the go.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Smartphone Accessories for Making Videos
@@ -51,7 +51,7 @@ Clip-On Lenses are tiny, which makes them convenient for carrying around. Using 
 ![pistol grip](https://images.wondershare.com/filmora/article-images/accessories-pistol-grip.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 It will not matter how clear and sharp your videos are if they are shaky. To avoid the stereotypically shaky ‘cellphone vid’ look you will need to stabilize your phone while you record, and there are a lot of ways you can do that. Mounting your phone on a Pistol Grip is one of them.
@@ -63,7 +63,7 @@ Smartphones mounted on Pistol Grips will record more stable footage while you wa
 ![selfiestick](https://images.wondershare.com/filmora/article-images/accessories-selfiestick.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Selfie Sticks are great for more than just taking selfies; using a selfie stick also helps you record more stable videos. Besides holding a selfie stick the way you normally do, with your hand on the grip, you can use your selfie stick a lot like you would a monopod. Simply place the handle on the floor, extend your selfie stick to the height you want to record at, and hold it still while you film. Your footage will be from one stable height.
@@ -75,7 +75,7 @@ Selfie Sticks make it possible for you to record from a wider variety of angles,
 ![lav mic](https://images.wondershare.com/filmora/article-images/accessories-lav-mic.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 One of the biggest obstacles when shooting smartphone videos is capturing adequate audio. Not all videos need audio – sometimes you just want to use music – but if there is any speaking in your video then your audio becomes just as important as your visual recording. As great as most smartphone cameras are, the microphones that come with them usually lack that same quality. You can improve the quality of your audio recordings using a free program called Audacity, or you can get an external microphone.
@@ -85,7 +85,7 @@ LAV Mics, also called lavalier or lapel mics, are a popular choice because they 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Ollie Mattison
@@ -113,18 +113,19 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-10-must-know-tips-for-nba-stream-quality/"><u>[Updated] 2024 Approved 10 Must-Know Tips for NBA Stream Quality</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-streamline-filming-in-water-proven-7-tips-for-vids/"><u>2024 Approved Streamline Filming in Water Proven 7 Tips for Vids</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-the-essence-of-mixed-reality-explored/"><u>2024 Approved The Essence of Mixed Reality Explored</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-transformative-srt-editing-techniques-for-apple-devices/"><u>2024 Approved Transformative SRT Editing Techniques for Apple Devices</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-unforgettable-visuals-key-elements-in-podcast-logo-creation/"><u>2024 Approved Unforgettable Visuals Key Elements in Podcast Logo Creation</u></a></li>
-<li><a href="https://win-rankings.techidaily.com/best-comprehensive-list-of-microsoft-business-applications-ios-2022-edition/"><u>Best Comprehensive List of Microsoft Business Applications (iOS) - 2022 Edition</u></a></li>
-<li><a href="https://extra-information.techidaily.com/comprehensive-list-of-premier-streaming-services/"><u>Comprehensive List of Premier Streaming Services</u></a></li>
-<li><a href="https://techtrends.techidaily.com/cutting-costs-on-tech-a-step-by-step-tutorial-for-securing-lenovos-student-discounts/"><u>Cutting Costs on Tech: A Step-by-Step Tutorial for Securing Lenovo's Student Discounts</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/how-many-attempts-to-unlock-apple-iphone-11-pro-drfone-by-drfone-ios/"><u>How Many Attempts To Unlock Apple iPhone 11 Pro | Dr.fone</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/humor-hub-iphones-galore/"><u>Humor Hub IPhones Galore</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-the-fast-photography-path-to-crafting-quick-google-collage-pics/"><u>In 2024, The Fast Photography Path to Crafting Quick Google Collage Pics</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-unleash-music-from-the-cloud-youtube-downloader-tips/"><u>In 2024, Unleash Music From the Cloud YouTube Downloader Tips</u></a></li>
-<li><a href="https://article-helps.techidaily.com/insider-writers-on-popular-tiktok-wallpapers-for-2024/"><u>Insider' Writers on Popular TikTok Wallpapers for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-chuckle-chronicles-best-free-top-rated-comic-designs-for-2024/"><u>[New] Chuckle Chronicles Best Free, Top-Rated Comic Designs for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-earning-through-youtube-partnerships/"><u>[New] In 2024, Earning Through YouTube Partnerships</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-a-beginners-manual-to-windows-8-film-creation/"><u>[Updated] 2024 Approved A Beginner's Manual to Windows 8 Film Creation</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-deciphering-the-art-of-reversed-visual-searches-online-fb/"><u>[Updated] 2024 Approved Deciphering the Art of Reversed Visual Searches Online (FB)</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-elite-tech-enhancement-with-top-srt-tweaks/"><u>[Updated] 2024 Approved Elite Tech Enhancement with Top SRT Tweaks</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-video-stability-essentials-for-youtube-creators/"><u>[Updated] In 2024, Video Stability Essentials for YouTube Creators</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-lush-backdrops-a-treasure-chest-of-free-templates-for-cinematographers/"><u>[Updated] Lush Backdrops A Treasure Chest of Free Templates for Cinematographers</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-navigating-the-spectrum-in-hands-on-recognition-technology/"><u>2024 Approved Navigating the Spectrum in Hands-On Recognition Technology</u></a></li>
+<li><a href="https://facebook.techidaily.com/discover-4-game-changing-business-meta-solutions/"><u>Discover 4 Game-Changing Business Meta Solutions</u></a></li>
+<li><a href="https://games-able.techidaily.com/1719165321460-discover-the-best-idevice-gaming-without-internet-or-wi-fi/"><u>Discover the Best iDevice Gaming without Internet or Wi-Fi!</u></a></li>
+<li><a href="https://discover-cloud.techidaily.com/guide-for-replacing-hdd-by-installing-samsung-evo-prise/"><u>Guide for Replacing HDD by Installing Samsung EVO Prise.</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-ace-your-messaging-must-know-advanced-tricks-and-techniques-in-whatsapp/"><u>In 2024, Ace Your Messaging Must-Know Advanced Tricks and Techniques in WhatsApp</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-iconic-image-reimagining-tools-visualmorph-v2/"><u>In 2024, Iconic Image Reimagining Tools VisualMorph V2</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/is-openai-outmaneuvered-by-gpt/"><u>Is OpenAI Outmaneuvered by GPT?</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Fine-Tuning Windows Photos App  Incorporate Filters & Sync Music Streaming\""
-date: 2024-08-27T12:41:35.327Z
-updated: 2024-08-28T12:41:35.327Z
+date: 2024-12-04T18:50:59.096Z
+updated: 2024-12-10T20:48:22.909Z
 tags: 
   - screen-recording
   - ai video
@@ -33,6 +33,10 @@ Having Windows 10 Photos app is an advantage for you. This is not like any other
 
 **You may also like:** [How to Trim Video in Windows 10 Photos Easily >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: How to add filters on Windows 10 Photos App
 
 If you have got Windows 10 Photos app and wish to add filters, though, it is by default a photo viewing app, its editing features are worth to mention. This step by step guide is your perfect savior in that case.
@@ -51,6 +55,10 @@ If you have got Windows 10 Photos app and wish to add filters, though, it is by 
 
 ![ add filters on windows 10 photos app](https://images.wondershare.com/filmora/article-images/edit-filters-microsoft-photos.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 5**: Just select one you like. Preview it and then click Done.
 
 ## Part 2: How to add music on Windows 10 Photos App
@@ -65,15 +73,20 @@ Now that you have learnt how to **_add filters using Windows 10 Photos app._** D
 
 ![ add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/add-music-to-video-photos-app.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 4**: Pick ‘Your music’ so that you can set up a custom track. There are over 20 music you can choose. You can also sync music to video's beat. You can visit ‘Recommended’ section for adding default ones.
 
 ![add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/choose-music-to-video-photos-app.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 5**: Hit the ‘Done’ button.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
-<!-- affiliate ads end -->
 ## Conclusion
 
 From the above article, we conclude that Windows 10 Photos app is an amazing app when it comes to photo editing and screen capturing from a video. While there are numerous options out there, you can **_add filters using Windows 10 Photos app_** in the best way possible. Moreover, this application enables you enable to even add music to videos using Windows 10 Photos app. The advantages of Windows 10 are innumerable, and with the right tools, you can get the best out of it.
@@ -81,8 +94,9 @@ From the above article, we conclude that Windows 10 Photos app is an amazing app
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -106,4 +120,24 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-align-video-content-with-instagram-viewer-preferences/"><u>[New] 2024 Approved Align Video Content with Instagram Viewer Preferences</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-best-comprehensive-recorder-apps-pcmacos/"><u>[New] 2024 Approved Best Comprehensive Recorder Apps - PC/macOS</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-design-mastery-crafting-engaging-audio-visuals-for-2024/"><u>[New] Design Mastery Crafting Engaging Audio Visuals for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-from-novice-to-pro-learning-snapseed-essentials-for-2024/"><u>[New] From Novice to Pro Learning Snapseed Essentials for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-deconstructing-magix-photo-and-video-tools/"><u>[New] In 2024, Deconstructing MAGIX Photo & Video Tools</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-elevate-persuasion-through-30-powerful-video-themes/"><u>[Updated] In 2024, Elevate Persuasion Through 30 Powerful Video Themes</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-magic-voice-transformation-is-this-app-feasible-discover-other-solutions/"><u>[Updated] In 2024, Magic Voice Transformation Is This App Feasible? Discover Other Solutions</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-mastering-whatsapps-call-conversation-strategy/"><u>[Updated] Mastering WhatsApp's Call Conversation Strategy</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-top-audio-respeeders-fast-fix-for-pace-modification-for-2024/"><u>[Updated] Top Audio Respeeders Fast-Fix for Pace Modification for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/a-teachers-journey-through-multimedia-educational-practices/"><u>A Teacher’s Journey Through Multimedia Educational Practices</u></a></li>
+<li><a href="https://location-social.techidaily.com/change-location-on-yik-yak-for-your-motorola-g24-power-to-enjoy-more-fun-drfone-by-drfone-virtual-android/"><u>Change Location on Yik Yak For your Motorola G24 Power to Enjoy More Fun | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/comprehensive-review-of-non-google-augmented-reality-accessories-for-2024/"><u>Comprehensive Review of Non-Google Augmented Reality Accessories for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/e-earnings-gaming-geeks-on-youtube-for-2024/"><u>Future Earnings Gaming Geeks on YouTube for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-3-solutions-to-find-your-infinix-hot-30-5g-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Solutions to Find Your Infinix Hot 30 5G Current Location of a Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/smooth-shooting-secured-choosing-ideal-tripods-and-gimbals-for-2024/"><u>Smooth Shooting Secured Choosing Ideal Tripods & Gimbals for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/top-12-prominent-zte-nubia-z60-ultra-fingerprint-not-working-solutions-by-drfone-android/"><u>Top 12 Prominent ZTE Nubia Z60 Ultra Fingerprint Not Working Solutions</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/troubleshooting-hal-setup-errors-on-windows-10-a-comprehensive-guide/"><u>Troubleshooting HAL Setup Errors on Windows 10 - A Comprehensive Guide</u></a></li>
+</ul></div>
 
