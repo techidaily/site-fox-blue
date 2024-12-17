@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Improve Office Productivity with Speech to Text Conversion in Microsoft Word"
-date: 2024-08-22T18:32:20.942Z
-updated: 2024-08-23T18:32:20.942Z
+date: 2024-12-14T02:47:04.015Z
+updated: 2024-12-17T03:30:56.926Z
 tags: 
   - screen-recording
   - ai video
@@ -44,6 +44,10 @@ Create a new, empty document in Microsoft Word on your device. Name your documen
 
 ![open microsoft word](https://images.wondershare.com/filmora/article-images/2022/07/speech-to-text-in-microsoft-word-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##### Step2Click on the Dictate button
 
 When you first open a new document, go to the top right corner of the Home menu includes a Dictate button and a drop-down menu. It has a microphone symbol above it. Double-check that the language is set to English using the drop-down menu. Choose English or any of the supported languages.
@@ -107,17 +111,19 @@ What's more, now Filmora's STT feature supports direct transcription of bilingua
 ![Wondershare Filmora](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. Evernote Speech-To-Text
 
 Evernote is a widely used note-taking application that also offers a speech-to-text feature. To use this feature on Windows PC, create a new note and "Windows + H" to activate the microphone of your PC. You'll see the microphone icon at the top of the screen. Evernote will then start recording your voice and transcribing it into text in real-time. Once you're done, click the Stop button, and your transcription will be automatically saved. Evernote also offers a variety of other features that make it a great alternative to Microsoft Word, such as the ability to add images, attachments, and more.
 
 ![evernote speech to text](https://images.wondershare.com/filmora/article-images/2022/07/speech-to-text-in-microsoft-word-6.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 To use voice dictation in Evernote on Mac:
 
 * Select text field
@@ -135,9 +141,6 @@ Once you're done, click the Stop button, and your transcription will be automati
 
 ![create a new document](https://images.wondershare.com/filmora/article-images/2022/07/speech-to-text-in-microsoft-word-8.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![click the tools menu](https://images.wondershare.com/filmora/article-images/2022/07/speech-to-text-in-microsoft-word-9.jpg)
 
 ![select the voice typing option](https://images.wondershare.com/filmora/article-images/2022/07/speech-to-text-in-microsoft-word-10.jpg)
@@ -146,30 +149,22 @@ Microsoft Word's speech-to-text feature is an excellent tool for quickly transcr
 
 ## FAQs
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
-<!-- affiliate ads end -->
 ### Can MS Word write what I speak?
 
 Yes, MS Word can write what you speak. With speech recognition software, MS Word can interpret your words and turn them into text. This is a great feature for those who have difficulty typing or want to dictate their thoughts without typing them out. However, there are a few things to keep in mind when using this feature, such as speaking clearly and at a moderate pace.
 
-<!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Why does my speech-to-text not work?
 
 There are several reasons why your speech-to-text is not working. One issue is that your microphone is not turned on. Another possibility could be that there is too much background noise interfering with the recognition process. Finally, it's also possible that you have not enabled speech-to-text in your settings. Try going to your settings and turning on the speech-to-text feature. If that doesn't work, try restarting your device.
 
-<!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Is Microsoft 365 free?
 
 Microsoft 365 is not free, but it does offer a free trial. You can find more information on the Microsoft website.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Does Windows 10 have voice typing?
 
 Yes, Windows 10 includes a voice typing feature that allows you to type by speaking. To use it, open the Start menu and select "Windows Accessories." Then, choose "Voice Typing." A microphone icon will appear on the screen. Click it, and then start speaking. Your words will appear on the screen as you speak them.
@@ -197,8 +192,9 @@ Create a new, empty document in Microsoft Word on your device. Name your documen
 ![open microsoft word](https://images.wondershare.com/filmora/article-images/2022/07/speech-to-text-in-microsoft-word-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##### Step2Click on the Dictate button
 
 When you first open a new document, go to the top right corner of the Home menu includes a Dictate button and a drop-down menu. It has a microphone symbol above it. Double-check that the language is set to English using the drop-down menu. Choose English or any of the supported languages.
@@ -215,9 +211,6 @@ If you've never used Microsoft Word's speech-to-text engine on Windows PC before
 
 ![use speech to text](https://images.wondershare.com/filmora/article-images/2022/07/speech-to-text-in-microsoft-word-4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Follow these steps to activate the microphone in Mac.
 
 To turn voice dictation on or off:
@@ -236,22 +229,20 @@ Microsoft Word's text-to-speech technology does more than simply transcribing yo
 
 ![using punctuation commands](https://images.wondershare.com/filmora/article-images/2022/07/speech-to-text-in-microsoft-word-5.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 We can't go through all of the punctuation instructions here, but we'll mention a few of the most important. For example, the command "period" inserts a period, and "comma" creates a comma, as you may guess. The same rules apply to exclamation marks and colons. In addition, you may use the command "new line" to create a new line, "new paragraph" to start a new paragraph, and "tab" to create a tab space.
 
 If you want to insert symbols, the commands are a bit different. For example, saying "open parenthesis" will automatically insert an opening parenthesis, but you'll need to say "close parenthesis" to get a closing parenthesis. The same goes for brackets, braces, and quotation marks.
 
 Microsoft's speech-to-text program is excellent. We can honestly state that Microsoft has the most refined product when it comes to cost vs performance because the software is integrated directly into Microsoft 365, which many businesses already use. So if your company uses Microsoft 365, you may start utilizing the voice typing technology right now with no additional expenses.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: Alternatives to Microsoft Word STT
 
 There are some great alternative options to Microsoft Word's speech-to-text feature. Here are a few of our favorites:
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ### 1\. Top Recommendation: [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
 
 Wondershare Filmora Speech to Text is quite different with other STT service providers. Other STT platforms/stages require you to use the application to convert speech-to-text, save, and export into other third-party software. However, Wondershare Filmora allows you to directly convert your speech-to-text on an ongoing production. For example, you can convert speech into subtitles during a video production on Wondershare Filmora.
@@ -271,23 +262,25 @@ What's more, now Filmora's STT feature supports direct transcription of bilingua
 ![Wondershare Filmora](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 2\. Evernote Speech-To-Text
 
 Evernote is a widely used note-taking application that also offers a speech-to-text feature. To use this feature on Windows PC, create a new note and "Windows + H" to activate the microphone of your PC. You'll see the microphone icon at the top of the screen. Evernote will then start recording your voice and transcribing it into text in real-time. Once you're done, click the Stop button, and your transcription will be automatically saved. Evernote also offers a variety of other features that make it a great alternative to Microsoft Word, such as the ability to add images, attachments, and more.
 
 ![evernote speech to text](https://images.wondershare.com/filmora/article-images/2022/07/speech-to-text-in-microsoft-word-6.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 To use voice dictation in Evernote on Mac:
 
 * Select text field
 * Press the 'fn' key twice/select Edit > Start Dictation
 * Speak the text you want to transcribe clearly into the computer or device microphone. Your words will appear in the text field.
 * Select Done or hit the 'fn' key again to end.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. Google Doc Speech To Text
 
@@ -297,32 +290,28 @@ Once you're done, click the Stop button, and your transcription will be automati
 
 ![google doc speech to text](https://images.wondershare.com/filmora/article-images/2022/07/speech-to-text-in-microsoft-word-7.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![create a new document](https://images.wondershare.com/filmora/article-images/2022/07/speech-to-text-in-microsoft-word-8.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
-<!-- affiliate ads end -->
 ![click the tools menu](https://images.wondershare.com/filmora/article-images/2022/07/speech-to-text-in-microsoft-word-9.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![select the voice typing option](https://images.wondershare.com/filmora/article-images/2022/07/speech-to-text-in-microsoft-word-10.jpg)
 
 Microsoft Word's speech-to-text feature is an excellent tool for quickly transcribing your voice into text. However, there are some drawbacks. First, it only works with Microsoft Word documents. Second, you need a Microsoft 365 subscription to use it. Third, it can be challenging to use and is often inaccurate. If you're looking for a better alternative to Microsoft Word's speech-to-text feature, we recommend Evernote speech-to-text or Google Docs speech-to-text. Both of these options are free to use and offer more features than Microsoft Word's speech-to-text feature.
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## FAQs
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Can MS Word write what I speak?
 
 Yes, MS Word can write what you speak. With speech recognition software, MS Word can interpret your words and turn them into text. This is a great feature for those who have difficulty typing or want to dictate their thoughts without typing them out. However, there are a few things to keep in mind when using this feature, such as speaking clearly and at a moderate pace.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
-<!-- affiliate ads end -->
 ### Why does my speech-to-text not work?
 
 There are several reasons why your speech-to-text is not working. One issue is that your microphone is not turned on. Another possibility could be that there is too much background noise interfering with the recognition process. Finally, it's also possible that you have not enabled speech-to-text in your settings. Try going to your settings and turning on the speech-to-text feature. If that doesn't work, try restarting your device.
@@ -365,4 +354,16 @@ Microsoft Word's speech-to-text feature is not perfect, but it can be a huge tim
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-dji-spark-review-best-mini-drone-for-taking-selfie-for-2024/"><u>[New] DJI Spark Review Best Mini Drone for Taking Selfie for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-ultimate-collection-highest-ranking-8-4k-players/"><u>[Updated] In 2024, Ultimate Collection Highest Ranking 8 4K Players</u></a></li>
+<li><a href="https://discover-extraordinary.techidaily.com/constructing-a-legacy-tracing-genghis-khans-creation-of-the-mongol-empire-with-yl-software-expert-analysis/"><u>Constructing a Legacy: Tracing Genghis Khan’s Creation of the Mongol Empire with YL Software Expert Analysis</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/enhance-workflow-the-essential-list-of-8-scheduling-apps/"><u>Enhance Workflow The Essential List of 8 Scheduling Apps</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/enhancing-training-regimens-how-combining-whoop-and-apple-watch-benefits-elite-athletes-zdnet/"><u>Enhancing Training Regimens: How Combining Whoop & Apple Watch Benefits Elite Athletes | ZDNET</u></a></li>
+<li><a href="https://win-trending.techidaily.com/expert-guide-diagnosing-and-fixing-graphics-card-issues-tips-from-yl-software/"><u>Expert Guide: Diagnosing & Fixing Graphics Card Issues - Tips From YL Software</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/fundamental-principles-of-powerful-video-product-endorsements-for-2024/"><u>Fundamental Principles of Powerful Video Product Endorsements for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-the-ultimate-list-of-live-streaming-camera-models/"><u>In 2024, The Ultimate List of Live-Streaming Camera Models</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-in-2024-top-5-avchd-video-editing-software/"><u>Updated In 2024, Top 5 AVCHD Video Editing Software</u></a></li>
+</ul></div>
 

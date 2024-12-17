@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Horizon Hopping  Reviewing the GoPro Karma Drone\""
-date: 2024-12-06T23:56:36.534Z
-updated: 2024-12-10T22:19:46.782Z
+date: 2024-12-16T02:10:39.610Z
+updated: 2024-12-16T23:07:02.991Z
 tags: 
   - screen-recording
   - ai video
@@ -42,7 +42,7 @@ thumbnail: https://thmb.techidaily.com/0d605cbff29d9fac95ea636e3f1dc6722b73dcac2
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Pros and cons of GoPro Karma
@@ -61,7 +61,7 @@ thumbnail: https://thmb.techidaily.com/0d605cbff29d9fac95ea636e3f1dc6722b73dcac2
  The overall verdict is that this is a fantastic drone for capturing stunning images but it doesn't have the easy flying mode or the battery life to compete with some of the best drones available at the same price point. Although you might have to sacrifice a bit in image quality when compared to a GoPro camera with some competitors, it's often worth it for value knowing that you can capture the shot and maintain control over your drone.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Detailed review for GoPro Karma
@@ -101,7 +101,7 @@ thumbnail: https://thmb.techidaily.com/0d605cbff29d9fac95ea636e3f1dc6722b73dcac2
 ![gopro karma controller](https://images.wondershare.com/filmora/article-images/gopro-karma-controller.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  One thing that the GoPro Karma did especially well was creating a beautiful controller. The RC controller is relatively small but it feels exactly like playing a videogame with plenty of functions and no need to have a compatible device to use the drone. The other extremely strong point is the camera. Nobody can build a great outdoor camera that is it as resilient as a GoPro with the Hero 5 Black version of this drone capable of shooting in 4K with an astounding video quality, you can catch some amazing video as well as incredible still images on this drone.
@@ -113,7 +113,7 @@ Overall, the GoPro Karma is a fairly strong showing for a drone. Although it can
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Max Wales
@@ -141,21 +141,19 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-how-to-utilize-facebooks-auto-video-functionality/"><u>[New] 2024 Approved How to Utilize Facebook's Auto-Video Functionality</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-complete-examination-the-video-show-app/"><u>[New] Complete Examination The Video Show App</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-exploring-immersive-tech-vr-explained-simply/"><u>[New] Exploring Immersive Tech VR Explained Simply</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-mastering-instagrams-green-screen-magic-for-2024/"><u>[New] Mastering Instagram's Green Screen Magic for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-superior-pcs-for-serious-workers/"><u>[Updated] In 2024, Superior PCs for Serious Workers</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-the-roadmap-to-free-cut-out-imagery/"><u>[Updated] In 2024, The Roadmap to Free Cut-Out Imagery</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-navigate-the-world-of-video-conferencing/"><u>[Updated] Navigate the World of Video Conferencing</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-top-8-sites-with-easy-access-to-free-3d-text-psd-images-for-2024/"><u>[Updated] Top 8 Sites with Easy Access to Free 3D Text PSD Images for 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/8-workable-fixes-to-the-sim-not-provisioned-mm2-error-on-xiaomi-redmi-k70-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Workable Fixes to the SIM not provisioned MM#2 Error on Xiaomi Redmi K70 Pro | Dr.fone</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/drone-tech-present-implementation-and-future-vision/"><u>Drone Tech Present Implementation & Future Vision</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/game-changing-hud-in-action-my-journey-biking-with-photochromic-glasses-reviewed-by-zdnet/"><u>Game-Changing HUD in Action: My Journey Biking with Photochromic Glasses Reviewed by ZDNET</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-apple-id-locked-or-disabled-on-iphone-15-pro-max-7-mehtods-you-cant-miss-by-drfone-ios/"><u>In 2024, Apple ID Locked or Disabled On iPhone 15 Pro Max? 7 Mehtods You Cant-Miss</u></a></li>
-<li><a href="https://app-tips.techidaily.com/navigating-a-world-full-of-edge-devices-future-job-prospects-explained-by-zdnet/"><u>Navigating a World Full of Edge Devices: Future Job Prospects Explained by ZDNet</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/secrets-unveiled-seamlessly-download-your-favorite-vimeo-videos-anywhere-for-2024/"><u>Secrets Unveiled Seamlessly Download Your Favorite Vimeo Videos Anywhere for 2024</u></a></li>
-<li><a href="https://apple-account.techidaily.com/troubleshooting-error-connecting-to-the-apple-id-server-from-iphone-xr-by-drfone-ios/"><u>Troubleshooting Error Connecting to the Apple ID Server From iPhone XR</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/windows-startup-configurations-simplified-guidebook/"><u>Windows Startup Configurations Simplified Guidebook</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-crafting-the-perfect-visual-identity-podcast-covers-unveiled/"><u>[New] 2024 Approved Crafting the Perfect Visual Identity Podcast Covers Unveiled</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-abletons-techniques-for-diminishing-sound-intensity/"><u>[New] Ableton's Techniques for Diminishing Sound Intensity</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-embarking-on-the-journey-with-magix-studio-max-2024-update/"><u>[New] Embarking on the Journey with Magix Studio Max 2024 Update</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-expertise-in-iphone-photography-understanding-dimensions/"><u>[New] In 2024, Expertise in iPhone Photography Understanding Dimensions</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/new-in-2024-the-top-8-ways-to-turn-tiktok-into-a-money-machine/"><u>[New] In 2024, The Top 8 Ways to Turn TikTok Into a Money Machine</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-sync-audio-to-powerpoint-presentations-for-2024/"><u>[New] Sync Audio to PowerPoint Presentations for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-free-backdrops-for-sustainable-cinema/"><u>[Updated] In 2024, Free Backdrops for Sustainable Cinema</u></a></li>
+<li><a href="https://win-blog.techidaily.com/1723010721526-how-to-fix-stability-issues-in-everspace-for-pc-users-solutions-inside/"><u>How to Fix Stability Issues in Everspace ² for PC Users – Solutions Inside!</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-best-drawing-apps-for-iphones/"><u>In 2024, Best Drawing Apps for iPhones</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/overcoming-mute-hurdles-in-facebook-video-streams-pc-troubleshooting-tips-for-202/"><u>Overcoming Mute Hurdles in Facebook Video Streams - PC Troubleshooting Tips for 202</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/premiere-pro-masterclass-essential-templates-for-free/"><u>Premiere Pro Masterclass - Essential Templates for Free</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/remedying-pixelated-youtube-footage-for-2024/"><u>Remedying Pixelated YouTube Footage for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/step-by-step-elevating-your-photos-with-online-cropping/"><u>Step-by-Step Elevating Your Photos with Online Cropping</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-10-telegram-spy-tools-on-infinix-smart-8-pro-for-parents-drfone-by-drfone-virtual-android/"><u>Top 10 Telegram Spy Tools On Infinix Smart 8 Pro for Parents | Dr.fone</u></a></li>
 </ul></div>
 

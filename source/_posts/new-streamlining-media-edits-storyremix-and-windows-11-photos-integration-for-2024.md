@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Streamlining Media Edits  StoryRemix & Windows 11 Photos Integration for 2024\""
-date: 2024-12-03T23:49:16.389Z
-updated: 2024-12-11T00:28:18.373Z
+date: 2024-12-11T22:10:12.497Z
+updated: 2024-12-17T01:25:37.191Z
 tags: 
   - screen-recording
   - ai video
@@ -56,10 +56,6 @@ Go to **Start** menu and open **Windows Photos**. you can see videos and photos 
 
 ![story remix](https://images.wondershare.com/filmora/article-images/story-remix.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2: How to create Story Remix automatically and randomly
 
 In this part of the article, we would elaborate creation of Story Remix in different ways. The content is auto-generated or you can manually create it from scratch. The automatic method has themes, transitions, and soundtracks within.
@@ -72,10 +68,22 @@ How to create a Story Remix project automatically –
 
 ![story remix](https://images.wondershare.com/filmora/article-images/start-remix-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
    1. After the above process gets over, the content gets scanned to automatically create a video adding styles, transitions, and music. The final preview of the project is displayed thereafter.
    2. You can rearrange the content by tapping **Remix it for me** button.
 
 ![story remix](https://images.wondershare.com/filmora/article-images/story-remix-name-video.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: How to create a Story Remix project from scratch
 
@@ -87,12 +95,12 @@ Here is the guide –
 
 ![story remix](https://images.wondershare.com/filmora/article-images/story-remix-random-min.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 1. Hit on **Create video** afterwards.
 2. Now, you can preview, edit or share your video.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 4: How to edit a Story Remix video
 
@@ -117,6 +125,14 @@ Tap the ‘Duration’ button > pick another value or manually set the seconds.
 
 ![story remix](https://images.wondershare.com/filmora/article-images/story-remix-duration-min.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Adding custom text
 
 1. Choose card from timeline, click ‘Text’ and feed the custom text in the box located at right side. You can simply use animated text styles too.
@@ -125,10 +141,6 @@ Tap the ‘Duration’ button > pick another value or manually set the seconds.
 
 ![story remix](https://images.wondershare.com/filmora/article-images/story-remix-text-min.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Adding motion
 
 1. Firstly, choose the content from the timeline and hit on ‘Motion’. Now, select camera motion style from ‘Zoom in center’/’Zoom in right’/’Pan left’/’Tilt up’ etc.
@@ -136,18 +148,14 @@ Tap the ‘Duration’ button > pick another value or manually set the seconds.
 
 ![story remix](https://images.wondershare.com/filmora/article-images/story-remix-motion-min.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Trimming video clips
 
 1. Pick the video from timeline and choose ‘Trim’ button. Mark the trim area and click ‘Play’ to preview.
 2. Hit ‘Done’ in the end.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 5: How to add 3D effects to a Story Remix project
 
@@ -160,11 +168,7 @@ Adding 3D special effects to video clips is one of the lucrative features of Pho
 ![story remix](https://images.wondershare.com/filmora/article-images/story-remix-effects-min.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 6: How to export a Story Remix video
@@ -191,10 +195,6 @@ Why bother for messy and complex video editing tools, when you can get everythin
 If you want to edit video, we recommend [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) .
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
@@ -223,22 +223,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-guidance.techidaily.com/new-how-to-remove-jello-effect-from-an-aerial-video/"><u>[New] How to Remove Jello Effect From an Aerial Video</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-expert-tips-on-closing-distances-in-movies/"><u>[New] In 2024, Expert Tips on Closing Distances in Movies</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-inter-app-playlist-exchange-made-simple-for-2024/"><u>[New] Inter-App Playlist Exchange Made Simple for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-maximizing-video-playback-speed-on-facebook-for-2024/"><u>[New] Maximizing Video Playback Speed on Facebook for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-submerged-splendor-top-underwater-video-techniques-with-gopro-for-2024/"><u>[New] Submerged Splendor Top Underwater Video Techniques with GoPro for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-next-gen-audiovideo-1-players-guide-for-24/"><u>[Updated] 2024 Approved Next Gen Audio/Video #1 Players Guide for '24</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-best-metaverse-tech-the-ultimate-goggles-and-hmds-list/"><u>[Updated] Best Metaverse Tech The Ultimate Goggles and HMDs List</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-essential-techniques-for-insta-photo-cover-highlights/"><u>[Updated] In 2024, Essential Techniques for Insta Photo Cover Highlights</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/efficiently-multi-pinning-destinations-tips-for-organized-google-maps-navigation/"><u>Efficiently Multi-Pinning Destinations: Tips for Organized Google Maps Navigation</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-3-facts-you-need-to-know-about-screen-mirroring-samsung-galaxy-m14-5g-drfone-by-drfone-android/"><u>In 2024, 3 Facts You Need to Know about Screen Mirroring Samsung Galaxy M14 5G | Dr.fone</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-getting-to-know-the-premium-p2715q-a-high-definition-marvel/"><u>In 2024, Getting to Know the Premium P2715Q A High-Definition Marvel</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-top-6-eco-friendly-affordable-4k-home-theaters/"><u>In 2024, Top 6 Eco-Friendly, Affordable 4K Home Theaters</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/mediamover-elite-perfektes-synchronisieren-ihrer-fotos-and-videos-auf-iphoneipad-pcs/"><u>MediaMover Elite - Perfektes Synchronisieren Ihrer Fotos & Videos Auf iPhone/iPad-PCs</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/meilleure-amelioration-de-votre-contenu-video-grace-a-clipchamp-un-outil-dedition-pour-debutants/"><u>Meilleure Amélioration De Votre Contenu Vidéo Grâce À Clipchamp - Un Outil D’édition Pour Débutants</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/solving-windows-sound-problems-no-more-popping-or-hissing/"><u>Solving Windows Sound Problems: No More Popping or Hissing</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/tips-for-producing-high-quality-hdr-photographs-with-lightroom-for-2024/"><u>Tips for Producing High-Quality HDR Photographs with Lightroom for 2024</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/waveforms-and-windows-mac-sound-recording-for-2024/"><u>Waveforms and Windows Mac Sound Recording for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-boost-engagement-in-stories-tips-for-adding-smoothly-animated-text/"><u>[Updated] 2024 Approved Boost Engagement in Stories Tips for Adding Smoothly Animated Text</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-chromebooks-finest-free-video-capturers/"><u>[Updated] Chromebooks' Finest Free Video Capturers</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-excellence-in-offline-speech-recognition-software/"><u>[Updated] Excellence in Offline Speech Recognition Software</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-hunt-for-best-ringtone-deals-on-pixel-phones/"><u>[Updated] Hunt for Best Ringtone Deals on Pixel Phones</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-the-80s-revivalists-handbook-for-dynamic-editing-techniques/"><u>[Updated] In 2024, The 80S Revivalist's Handbook for Dynamic Editing Techniques</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/exploring-the-shades-of-green-in-electric-transportation/"><u>Exploring the Shades of Green in Electric Transportation</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-do-vivo-t2-pro-5g-screen-sharing-drfone-by-drfone-android/"><u>How To Do Vivo T2 Pro 5G Screen Sharing | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-fb-cover-videos-demystified-what-everyone-should-know/"><u>In 2024, FB Cover Videos Demystified What Everyone Should Know</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-renaming-your-podcast-leading-ai-generators-explored/"><u>In 2024, Renaming Your Podcast Leading AI Generators Explored</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/optimal-video-player-windows-ios-android/"><u>Optimal Video Player Windows, iOS, Android</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/pinnacle-of-performance-new-samsung-bdplus-review/"><u>Pinnacle of Performance - New Samsung BD+ Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-efficient-energy-guardian-an-overview-of-apcs-be600m1-backup-system-with-built-in-charging-port/"><u>The Efficient Energy Guardian: An Overview of APC's BE600M1 Backup System with Built-In Charging Port</u></a></li>
+<li><a href="https://blog-min.techidaily.com/ultimate-guide-to-securely-fetching-anime-episodes-from-kissanime-platforms/"><u>Ultimate Guide to Securely Fetching Anime Episodes From KissAnime Platforms</u></a></li>
 </ul></div>
 

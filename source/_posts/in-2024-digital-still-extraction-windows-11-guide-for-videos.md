@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Digital Still Extraction  Windows 11 Guide for Videos\""
-date: 2024-08-22T18:31:39.617Z
-updated: 2024-08-23T18:31:39.617Z
+date: 2024-12-12T18:38:46.432Z
+updated: 2024-12-17T04:31:55.974Z
 tags: 
   - screen-recording
   - ai video
@@ -65,23 +65,21 @@ In case, you are not able to save photos from video on Windows 10 Photos App. Th
 We are explaining the solutions here –
 
 <!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 1\. Check the update
 
 Click on ‘Start’ > ‘Settings’ > ‘Update & Security’ > ‘Windows Updates’ > ‘Check for Updates’ > ‘Update Available’. When update is available, go ahead and follow the prompts to get the update.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 2\. Sign in a different account in Microsoft Store
 
 You got to login with another Microsoft account to access Microsoft Store. It might be your existing Microsoft Store account undergoing some issues. This in turn might be affecting the Photos app from acting properly. Therefore, signing in a different account will help.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 3: Alternative way to save photo from video
 
 When you want to save photo from video Windows 10 Photos but fail to do so, you can look for alternate ways that are fruitful. ‘ScreenShot’ is an online tool that enables you to capture and edit anything popping up on your screen. From webpages, windows, media files, menus, objects, to webcams, you can literally capture anything. It supports Mac, Windows PC, Android devices etc. it supports AVI, FLV, MPEG, WMV, MOV, and MKV files and enables you to add shapes, texts, lines, arrows, and stylish effects while editing the captured images. You can even upload images to cloud or social networking sites like Facebook, Google Plus, Twitter etc. The pictures are saved in JPG, PNG, BMP, GIF, and TIFF format on your computer. Automatic video capture at fixed intervals is also supported.
@@ -95,14 +93,16 @@ Here comes the guide –
 ![save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/screenshot-take-photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 * Once the image is captured, the editing tool bar is visible. It allows you to enhance the image to great extent.
 * Now, hit the ‘Save’ icon and get the image saved on your computer.
 
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Conclusion
 
 We provided you some knowledge on how to save a photo from video Windows 10 Photos. Out of the multiple ways to save photos from videos, you can try what suits you best. If you want to go for a desktop based application, then Windows Photos serves you best. But, when you want to get things done online, you can pick ScreenShot for that matter. Hope you liked our efforts!
@@ -110,13 +110,9 @@ We provided you some knowledge on how to save a photo from video Windows 10 Phot
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
-	Home Use license is dedicated for personal, non-commercial use only. 
-	If Action! is used for commercial gain or to further any commercial purpose, 
-	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
- 
-	company, user or members of the same household. Action! - screen and game recorder</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -140,4 +136,24 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-cutting-edge-platform-for-12-video-live-feeds/"><u>[New] 2024 Approved Cutting-Edge Platform for 12 Video Live Feeds</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-the-ultimate-guide-to-polarr-photo-editor-proficiency/"><u>[New] 2024 Approved The Ultimate Guide to Polarr Photo Editor Proficiency</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-streamlined-aesthetics-incorporating-visual-effects-in-videos-pcmobile/"><u>[New] Streamlined Aesthetics Incorporating Visual Effects in Videos (PC/Mobile)</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-step-by-step-to-adobe-cloud-success-and-non-adobe-options/"><u>[Updated] 2024 Approved Step-by-Step to Adobe Cloud Success & Non-Adobe Options</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-a-look-into-the-future-of-camera-multicam-systems/"><u>[Updated] In 2024, A Look Into the Future of Camera Multicam Systems</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-the-timeless-trove-of-freely-shared-works/"><u>[Updated] The Timeless Trove of Freely Shared Works</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-the-virtual-quest-evaluating-current-progress-and-potential-hurdles/"><u>2024 Approved The Virtual Quest Evaluating Current Progress & Potential Hurdles</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/grit-vs-glory-hitbox-versus-twitch-titans/"><u>Grit vs Glory Hitbox Versus Twitch Titans</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-realme-c67-5g-drfone-by-drfone-virtual-android/"><u>Here are Some Pro Tips for Pokemon Go PvP Battles On Realme C67 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-macs-premier-6-video-cutting-tools-big-sur/"><u>In 2024, Mac's Premier 6 Video Cutting Tools (Big Sur)</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-maximize-earnings-navigating-youtubes-partner-program-updates/"><u>In 2024, Maximize Earnings Navigating YouTube's Partner Program Updates</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/iphone-lens-exploration-key-angles-to-elevate-your-photo-game/"><u>IPhone Lens Exploration Key Angles to Elevate Your Photo Game</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/solutions-to-spy-on-poco-c65-with-and-without-jailbreak-drfone-by-drfone-virtual-android/"><u>Solutions to Spy on Poco C65 with and without jailbreak | Dr.fone</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/toms-tech-reviews-expert-insights-on-the-latest-computer-gear/"><u>Tom's Tech Reviews: Expert Insights on the Latest Computer Gear</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/transform-your-videos-expert-techniques-for-achieving-a-professional-look-for-2024/"><u>Transform Your Videos Expert Techniques for Achieving a Professional Look for 2024</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-2024-approved-final-cut-pro-x-not-responding-heres-how-to-fix-it/"><u>Updated 2024 Approved Final Cut Pro X Not Responding? Heres How to Fix It</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ways-to-trade-pokemon-go-from-far-away-on-realme-12-proplus-5g-drfone-by-drfone-virtual-android/"><u>Ways to trade pokemon go from far away On Realme 12 Pro+ 5G? | Dr.fone</u></a></li>
+</ul></div>
 

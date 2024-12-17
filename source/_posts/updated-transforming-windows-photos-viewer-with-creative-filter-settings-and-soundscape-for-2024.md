@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Transforming Windows Photos Viewer with Creative Filter Settings & Soundscape for 2024"
-date: 2024-12-08T20:40:00.225Z
-updated: 2024-12-10T20:04:19.304Z
+date: 2024-12-14T02:50:06.972Z
+updated: 2024-12-16T17:59:22.273Z
 tags: 
   - screen-recording
   - ai video
@@ -39,7 +39,7 @@ Having Windows 10 Photos app is an advantage for you. This is not like any other
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: How to add filters on Windows 10 Photos App
@@ -54,6 +54,10 @@ If you have got Windows 10 Photos app and wish to add filters, though, it is by 
 
 ![ add filters on windows 10 photos app](https://images.wondershare.com/filmora/article-images/add-filters.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3**: Now, you will be in an video editing page. You can name your video at start or later.
 
 **Step 4**: Click Filters at tool bar. Microsoft Photos has 14 filters you can use, including classic, adventure, sepia and so on.
@@ -61,14 +65,10 @@ If you have got Windows 10 Photos app and wish to add filters, though, it is by 
 ![ add filters on windows 10 photos app](https://images.wondershare.com/filmora/article-images/edit-filters-microsoft-photos.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 5**: Just select one you like. Preview it and then click Done.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2: How to add music on Windows 10 Photos App
 
@@ -82,19 +82,19 @@ Now that you have learnt how to **_add filters using Windows 10 Photos app._** D
 
 ![ add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/add-music-to-video-photos-app.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 4**: Pick ‘Your music’ so that you can set up a custom track. There are over 20 music you can choose. You can also sync music to video's beat. You can visit ‘Recommended’ section for adding default ones.
 
 ![add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/choose-music-to-video-photos-app.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 5**: Hit the ‘Done’ button.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -127,24 +127,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-unveiling-the-mechanism-behind-cross-audio-blending/"><u>[New] In 2024, Unveiling the Mechanism Behind Cross-Audio Blending</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-the-ultimate-4k-aerial-experience-with-xiaomis-drone-for-2024/"><u>[New] The Ultimate 4K Aerial Experience with Xiaomi's Drone for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-top-10-high-definition-gaming-laptops-reviewed-for-2024/"><u>[New] Top 10 High-Definition Gaming Laptops Reviewed for 2024</u></a></li>
-<li><a href="https://tiktok-video-files.techidaily.com/new-wild-wonders-the-ultimate-list-of-strange-and-exciting-tiktok-games-for-2024/"><u>[New] Wild Wonders The Ultimate List of Strange and Exciting TikTok Games for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-cutting-edge-microphones-synergy-with-4k-cameras/"><u>[Updated] 2024 Approved Cutting-Edge Microphones Synergy with 4K Cameras</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-audiovisual-decision-making-is-podcast-or-youtube-more-appealing-for-2024/"><u>[Updated] Audiovisual Decision-Making Is Podcast or YouTube More Appealing for 2024</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-in-2024-dimming-down-beats-a-tutorial-for-premiere-pro-editors/"><u>[Updated] In 2024, Dimming Down Beats A Tutorial for Premiere Pro Editors</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-navigating-the-jaunt-vr-landscape/"><u>[Updated] In 2024, Navigating the Jaunt VR Landscape</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-top-16-best-free-video-players-for-windowsmac-pc/"><u>[Updated] In 2024, Top 16 Best Free Video Players for Windows/Mac PC</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-in-2024-top-3-ultimate-multi-user-video-platforms/"><u>[Updated] In 2024, Top 3 Ultimate Multi-User Video Platforms</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-streamline-multimedia-with-pip-in-apple-browsers-for-2024/"><u>[Updated] Streamline Multimedia with PIP in Apple Browsers for 2024</u></a></li>
-<li><a href="https://win-excellent.techidaily.com/top3/"><u>「おすすめの人気ファイル回復ツールTOP3：最新ランキング発表」</u></a></li>
-<li><a href="https://howto.techidaily.com/9-solutions-to-fix-poco-m6-5g-system-crash-issue-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Solutions to Fix Poco M6 5G System Crash Issue | Dr.fone</u></a></li>
-<li><a href="https://win-dash.techidaily.com/download-logitech-momo-racer-wheel-game-drivers-pc-compatible/"><u>Download Logitech MOMO Racer Wheel Game Drivers - PC Compatible</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-best-anti-tracker-software-for-honor-70-lite-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Best Anti Tracker Software For Honor 70 Lite 5G | Dr.fone</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-grandest-directors-trailers/"><u>In 2024, Grandest Director's Trailers</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/photoshops-stabilization-an-essential-tool-or-overrated-feature/"><u>Photoshop's Stabilization An Essential Tool or Overrated Feature?</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/the-versatility-of-virtual-worlds/"><u>The Versatility of Virtual Worlds</u></a></li>
-<li><a href="https://extra-information.techidaily.com/universal-srt-to-various-subtitle-formats-handbook/"><u>Universal SRT to Various Subtitle Formats Handbook</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-revel-in-history-reactivating-deleted-reddit-articles-for-2024/"><u>[New] Revel in History Reactivating Deleted Reddit Articles for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-maximizing-collaboration-zoom-session-setup-and-management/"><u>[Updated] 2024 Approved Maximizing Collaboration Zoom Session Setup and Management</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-behind-the-scenes-how-to-remove-background-in-picsart-for-2024/"><u>[Updated] Behind the Scenes How to Remove Background in Picsart for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-making-every-gift-discovery-special/"><u>[Updated] Making Every Gift Discovery Special</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-mastering-zooms-video-enhancements-filter-techniques/"><u>[Updated] Mastering Zoom's Video Enhancements Filter Techniques</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/a-comprehensive-guide-to-understanding-and-using-slug-lines/"><u>A Comprehensive Guide to Understanding and Using Slug Lines</u></a></li>
+<li><a href="https://fox-where.techidaily.com/high-definition-alfa-romeo-emblem-wallpaper-premium-automotive-graphics-by-yl-computing/"><u>High-Definition Alfa Romeo Emblem Wallpaper - Premium Automotive Graphics by YL Computing</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/hilarity-in-harmony-great-ringtone-websites/"><u>Hilarity in Harmony Great Ringtone Websites</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/in-2024-streamline-accessibility-a-compreenas-top-free-tts-apps-list-for-mac-users/"><u>In 2024, Streamline Accessibility A Compreenas Top Free TTS Apps List for Mac Users</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/music-enhanced-imagery-web-edition/"><u>Music-Enhanced Imagery Web Edition</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/safe-and-fast-installation-of-sadeheadset-drivers-for-windows-enhance-your-listening-experience-now/"><u>Safe and Fast Installation of SadeHeadset Drivers for Windows: Enhance Your Listening Experience Now!</u></a></li>
+<li><a href="https://win-awesome.techidaily.com/solucao-do-erro-unidade-de-restauracao-nao-pode-ser-criada-em-windows-1011/"><u>Solução Do Erro 'Unidade De Restauração Não Pode Ser Criada Em Windows 10/11'</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/by-step-guide-to-essential-youtube-equipment/"><u>Step-by-Step Guide to Essential YouTube Equipment</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/top-10-password-cracking-tools-for-honor-magic-vs-2-by-drfone-android/"><u>Top 10 Password Cracking Tools For Honor Magic Vs 2</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/top-rated-waterproof-cellphone-protectors-the-ultimate-guide/"><u>Top-Rated Waterproof Cellphone Protectors: The Ultimate Guide</u></a></li>
 </ul></div>
 

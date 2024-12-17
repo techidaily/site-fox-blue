@@ -1,7 +1,7 @@
 ---
 title: "Exploring Virtual Realities' Shortcomings"
-date: 2024-08-27T12:33:37.191Z
-updated: 2024-08-28T12:33:37.191Z
+date: 2024-12-13T01:17:07.136Z
+updated: 2024-12-17T02:37:57.801Z
 tags: 
   - screen-recording
   - ai video
@@ -32,9 +32,17 @@ thumbnail: https://thmb.techidaily.com/85e9c2e32a903b6bf60a65b77968212abbcf7690e
 _[Differences between VR, AR and MR](https://tools.techidaily.com/wondershare/filmora/download/)_
 _[Virtual Reality Technology: Current State and Future Challenges](https://tools.techidaily.com/wondershare/filmora/download/)_
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The equipment used for VR is very expensive
 
  Of course with any early stage technology, there are a host of issues to overcome among the first is cost for consumers to participate. Many systems run between $100 and $600 and we have not yet discussed the cost of purchasing experiences or games.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Low resoultion content, large file size
 
@@ -57,20 +65,23 @@ _[Virtual Reality Technology: Current State and Future Challenges](https://tools
  There is an addictive quality of Virtual Reality environments that should not be ignored. Those who are regular users of these spaces, even in its developmental state find that it can be hard to stay away. Users find themselves in some cases, preferring the virtual world to the real one. If these anecdotal experiences are being reported by a very small sample size what will be the impact on entire cultures that embrace this technology? Considerations of Virtual Reality must extend into the world of human activity and definitions of normal behavior. And as a reminder most of us who love science fiction have a sense of what true Virtual Reality really is. It should be clear that we are a very long way from enjoying the holodeck.
 
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Best Video Editor: [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Benjamin Arango
 
 Benjamin Arango is a writer and a lover of all things video.
@@ -94,4 +105,22 @@ Follow @Benjamin Arango
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-a-step-by-step-approach-to-mastering-lut-utilization/"><u>[New] A Step-by-Step Approach to Mastering LUT Utilization</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-step-by-step-setting-up-unique-youtube-shorts-thumbnails/"><u>[New] In 2024, Step-by-Step Setting Up Unique YouTube Shorts Thumbnails</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-non-competitive-front-row-fun-ranking-the-top-ten-for-2024/"><u>[New] Non-Competitive Front Row Fun Ranking the Top Ten for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-top-tier-digital-workshop-title-maker/"><u>[New] Top-Tier Digital Workshop Title Maker</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-revolutionize-tiktok-experience-with-personalized-numbers-for-2024/"><u>[Updated] Revolutionize TikTok Experience with Personalized Numbers for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-the-smartphone-photographers-handbook-for-2024/"><u>[Updated] The Smartphone Photographer's Handbook for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/five-key-strategies-for-effective-script-narration-for-2024/"><u>Five Key Strategies for Effective Script Narration for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/how-to-unbrick-a-dead-tecno-pova-5-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Unbrick a Dead Tecno Pova 5 | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-customize-with-confidence-google-pixel-tunes/"><u>In 2024, Customize with Confidence Google Pixel Tunes</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-premier-stream-gear-with-superior-360-degree-cameras/"><u>In 2024, Premier Stream Gear with Superior 360-Degree Cameras</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-the-photographers-toolkit-top-text-editors-for-images/"><u>In 2024, The Photographer's Toolkit Top Text Editors for Images</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-transforming-audio-skills-using-audacity-professionally/"><u>In 2024, Transforming Audio Skills Using Audacity Professionally</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-ways-to-stop-parent-tracking-your-oppo-reno-10-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Ways to stop parent tracking your Oppo Reno 10 5G | Dr.fone</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/1723015877178-overcoming-sound-challenges-expert-advice-to-get-your-logitee-g733-mic-working-again/"><u>Overcoming Sound Challenges: Expert Advice to Get Your Logitee G733 Mic Working Again</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/transformative-techniques-applying-luts-for-dynamic-effects-in-after-effects-for-2024/"><u>Transformative Techniques Applying LUTs for Dynamic Effects in After Effects for 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Venture Into Virtual Worlds  A Close Look at LG's 360 Tech for 2024\""
-date: 2024-08-27T12:30:00.302Z
-updated: 2024-08-28T12:30:00.302Z
+date: 2024-12-11T03:09:17.843Z
+updated: 2024-12-17T02:45:43.595Z
 tags: 
   - screen-recording
   - ai video
@@ -26,26 +26,32 @@ thumbnail: https://thmb.techidaily.com/c01f488742f525379e15c90538d56863d27988360
 
  Mar 27, 2024• Proven solutions
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## First Impression of LG 360 VR
 
 ### Design of LG 360 VR
 
  The 360 VR does not look like other headsets present in the market and in this occurrence, this is not a good feature. Certainly, it is tough, maybe terrible even, to make someone look cool while having a VR headset on their head. But with the design of 360 VR, it is quite sure that engineers have made no attempt to resolve this issue. The headset sports a look similar to what common in the 1980s imagined a futuristic invention would look like. It actually looks like a product with a low-cost, NHS-prescribed article for modifying poor vision.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Accessories of LG 360 VR
 
  Since it is connected via USB Type-C connector, so the company provides it with the package. The adjustable lenses and their covers are present. A 3.5 mm jack is also present on the headset for the headphones which are also provided. Well, many other necessary things are also provided with.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Product Packaging of LG 360 VR
 
  Well, the packaging is quite simple as all the other products of LG. It comes in a simple box will all the accessories in it. It is okay to say that the packaging is safe, but should be dealt with care, in the end, it is a delicate product. Everything looks good until it is inside the box.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### How to Set up LG 360 VR headset
 
 * First of all, connect the USB connector of the headset on to your smartphone. It will take a few minutes. When the headset is on, the screen of your phone will become off, and now you can use your phone as a touchpad.
@@ -53,16 +59,10 @@ thumbnail: https://thmb.techidaily.com/c01f488742f525379e15c90538d56863d27988360
 * The LG 360 VR turns off if your phone remains idle without playing any video or application for a minimum of 15 minutes in order to save the battery of your phone.
 * Other than that, the headset will connect to the phone if the battery of your phone is too low or the phone is too hot.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 ### LG 360 VR Performance
 
  When you ponder that it is the LG G5 phone that is actually doing all the work in terms of actually driving the 360 VR's practices, you would at least assume steady performance. We know that the G5 is one of the most influential smartphones present in the market, including an Adreno 530 GPU, Snapdragon 820 and a 4GB RAM. Unfortunately, the first experience with the 360 VR’s performance is unsatisfactory to say the minimum. Having a 920 x 720 resolution per eye, this headset provides a much lower resolution rate as compared to all other virtual reality headsets present in the market. Although using it is a rollercoaster ride through various mixed experiences.
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Key features of the LG 360 VR headset
 
 * It has 1.88 inches IPS LCD display.
@@ -92,6 +92,10 @@ thumbnail: https://thmb.techidaily.com/c01f488742f525379e15c90538d56863d27988360
 * It also does not have any special apps to install
 * You can not experience the VR properly.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Comparison of Samsung Gear VR and LG 360 VR
 
 | |  LG 360 VR  | Samsung Gear VR                         |                                                                         |
@@ -103,9 +107,9 @@ thumbnail: https://thmb.techidaily.com/c01f488742f525379e15c90538d56863d27988360
 | Resolution    | 960x720 pixels at 693ppi                | 1,280x1,440 pixels, at 518-577ppi also depends on phone                 |
 
 <!-- affiliate ads begin -->
-<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
-DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### More about LG 360 VR headset
 
  LG 360 VR is a virtual reality device designed by LG. It was actually released with LG G5 and used to promote this phone. LG 360 VR has an internal built-in display, unlike the Gear VR designed by Samsung, which also provides a unit plugging for power directly to the phone. The headset can be controlled from the smartphone screen by just tapping and swiping. LG, however, designed this device to enjoy the virtual reality experience, but the device is not up to the mark. If you haven’t bought this device yet, it is highly advised not to buy this one. It is not a very good design and its performance is also not very good.
@@ -116,9 +120,6 @@ DbSchema database designer for all databases, schema design in the team, schema 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Benjamin Arango
 
 Benjamin Arango is a writer and a lover of all things video.
@@ -142,4 +143,22 @@ Follow @Benjamin Arango
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-decoding-fraps-video-capturing-techniques/"><u>[New] 2024 Approved Decoding Fraps Video Capturing Techniques</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-simplifying-the-complexity-of-digital-enhancements/"><u>[New] 2024 Approved Simplifying the Complexity of Digital Enhancements</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-speedy-methods-for-shuffling-youtube-lists-on-devices/"><u>[New] In 2024, Speedy Methods for Shuffling YouTube Lists on Devices</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-innovative-ways-to-archive-voice-transcripts-from-whatsapp/"><u>[New] Innovative Ways to Archive Voice Transcripts From WhatsApp</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-mastering-vlc-key-mac-functions-explained/"><u>[New] Mastering VLC Key Mac Functions Explained</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-no-cost-upgrade-excellent-online-beat-detection-for-music-producers/"><u>[New] No Cost Upgrade Excellent Online Beat Detection for Music Producers</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-complete-critique-gopro-hero4-silver-sensor-for-2024/"><u>[Updated] Complete Critique GoPro HERO4 Silver Sensor for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-transforming-viewership-a-proven-guide-to-implementing-youtubes-featured-listings/"><u>[Updated] In 2024, Transforming Viewership A Proven Guide to Implementing Youtube's Featured Listings</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-unlocking-superior-slow-motion-quality-through-fps-selection/"><u>[Updated] In 2024, Unlocking Superior Slow Motion Quality Through FPS Selection</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/effective-fixes-for-overcoming-the-common-steamvr-error-code-308/"><u>Effective Fixes for Overcoming the Common SteamVR Error Code 308</u></a></li>
+<li><a href="https://fox-that.techidaily.com/expert-advice-on-fixing-your-iphones-tethered-internet-connection-issues/"><u>Expert Advice on Fixing Your iPhone's Tethered Internet Connection Issues</u></a></li>
+<li><a href="https://fox-place.techidaily.com/how-to-perform-a-successful-seagate-1tb-drive-rescue-mission-a-step-by-step-tutorial/"><u>How to Perform a Successful Seagate 1TB Drive Rescue Mission: A Step-by-Step Tutorial</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/immersive-education-the-role-of-virtual-reality/"><u>Immersive Education The Role of Virtual Reality</u></a></li>
+<li><a href="https://driver-download.techidaily.com/quick-install-for-acer-wifi-driver-free-downloads-available-now/"><u>Quick Install for Acer WiFi Driver – Free Downloads Available Now</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/resolve-beats-audio-compatibility-issues-in-hp-laptops-with-this-comprehensive-guide-windows-11-8-and-7/"><u>Resolve Beats Audio Compatibility Issues in HP Laptops with This Comprehensive Guide (Windows 11, 8 & 7)</u></a></li>
+</ul></div>
 

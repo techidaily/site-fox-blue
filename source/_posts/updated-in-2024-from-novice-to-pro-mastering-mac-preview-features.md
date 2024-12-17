@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, From Novice to Pro  Mastering Mac Preview Features\""
-date: 2024-12-06T16:08:39.906Z
-updated: 2024-12-10T20:23:31.710Z
+date: 2024-12-13T17:04:34.056Z
+updated: 2024-12-17T00:47:47.474Z
 tags: 
   - screen-recording
   - ai video
@@ -69,10 +69,6 @@ Click the **Hide Markup Tools** icon from the upper-right area to hide **Markup 
 
 **Note:** Throughout this demonstration, the **Markup Toolbar** is kept visible to access the editing tools easily.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### How to Crop in Preview
 
 In order to crop a photo in the **Preview app**:
@@ -122,7 +118,7 @@ Click inside the frame, delete the existing placeholder text, and type a new cap
 Select the text, click the **Text Style** icon from the **Markup Toolbar**, and change font, size, color, etc. using the available options.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### How to Remove Background in Preview
@@ -142,7 +138,7 @@ Once the background portion of the image gets selected (colored in red), without
 **Note:** Usually, not entire background could be selected in a single go, especially when there are multiple objects in the photo. In such a situation, you must repeat the process multiple times to get rid of all the unwanted objects/areas.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### How to Combine Images into One
@@ -161,6 +157,10 @@ Ensure that Preview opens with both the images listed in the sidebar in the left
 
 After removing the background, press **Command** \+ **A** to select all the remaining elements, and then press **Command** \+ **C** to copy them. Next, select the second photo from the sidebar, and press **Command** \+ **V** to paste the object to combine the pictures. Additionally, you can drag the pasted object or move its side handles to reposition or resize it respectively.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### How to Save Images in Different Formats
 
 The **Preview app** has a built-in image converter as well. To convert an image to a different format with Preview, you must:
@@ -172,6 +172,10 @@ After opening an image, click **File** from the menu bar at the top, and click *
 **Step 2: Choose Output Format and Export**
 
 Choose a destination folder in the **Where** field, select your preferred format from the **Format** drop-down list, and click **Save** to convert the image.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Part 2: FAQs About Preview App on Mac
 
@@ -207,10 +211,6 @@ Choose a destination folder in the **Where** field, select your preferred format
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -236,18 +236,14 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-comparative-analysis-luminances-hdr-prowess/"><u>[New] 2024 Approved Comparative Analysis Luminance's HDR Prowess</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-top-8-sites-with-easy-access-to-free-3d-text-psd-images/"><u>[New] 2024 Approved Top 8 Sites with Easy Access to Free 3D Text PSD Images</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-efficient-writing-techniques-for-impactful-ad-creation/"><u>[New] Efficient Writing Techniques for Impactful Ad Creation</u></a></li>
-<li><a href="https://article-files.techidaily.com/new-the-ultra-hd-spectacle-sw320-monitor-review-edition-for-2024/"><u>[New] The Ultra HD Spectacle Sw320 Monitor Review Edition for 2024</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-deciphering-streamer-dominance-twitch-vs-youtube-showdown/"><u>[Updated] Deciphering Streamer Dominance Twitch vs YouTube Showdown</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-from-cloudy-to-crisp-how-to-remove-background-in-picsart-for-2024/"><u>[Updated] From Cloudy to Crisp How to Remove Background in Picsart for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-how-asmrists-can-help-your-evening-routine-for-2024/"><u>[Updated] How ASMRists Can Help Your Evening Routine for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-the-ultimate-guide-to-audiofreexer-extraction-for-2-point-zero-two-four-for-2024/"><u>[Updated] The Ultimate Guide to AudioFreexer Extraction for 2 Point Zero Two Four for 2024</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/1723016288442-discord-not-working-heres-how-to-get-your-voice-back-in-conversations/"><u>Discord Not Working? Here's How to Get Your Voice Back in Conversations</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-digital-puppetry-and-storytelling-movies-maker-edition/"><u>In 2024, Digital Puppetry and Storytelling Movies Maker Edition</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-stable-shooting-ideal-gimbals-and-handhelds-reviewed/"><u>In 2024, Stable Shooting Ideal Gimbals & Handhelds Reviewed</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/screenshots-of-success-decoding-post-viewer-demographics/"><u>Screenshots of Success Decoding Post Viewer Demographics</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/tracking-data-used-by-each-windows-app/"><u>Tracking Data Used by Each Window's App</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-expressive-faces-with-motion-blur-in-picsart/"><u>[New] Expressive Faces with Motion Blur in Picsart</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-fingerprint-of-motion-tracking-systems-for-2024/"><u>[New] Fingerprint of Motion Tracking Systems for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-memorable-moments-downloading-tweets-emotive-graphics/"><u>[New] In 2024, Memorable Moments Downloading Tweets’ Emotive Graphics</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-stabilizing-shaky-images-a-realistic-benefit-or-hype-for-2024/"><u>[New] Stabilizing Shaky Images A Realistic Benefit or Hype for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-perfecting-video-speed-for-engaging-instagram-stories/"><u>[Updated] 2024 Approved Perfecting Video Speed for Engaging Instagram Stories</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-explore-virtual-worlds-pcs-1-list-of-vr-360-game-streamers-for-2024/"><u>[Updated] Explore Virtual Worlds PC's #1 List of VR 360 Game Streamers for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-xiaomi-redmi-note-12-proplus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Simple and Effective Ways to Change Your Country on YouTube App Of your Xiaomi Redmi Note 12 Pro+ 5G | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/latest-guide-on-ipad-23-and-apple-iphone-xs-max-icloud-activation-lock-bypass-by-drfone-ios/"><u>Latest Guide on iPad 2/3 and Apple iPhone XS Max iCloud Activation Lock Bypass</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/king-youtubes-financial-framework-shifts/"><u>Unpacking YouTube’s Financial Framework Shifts</u></a></li>
 </ul></div>
 

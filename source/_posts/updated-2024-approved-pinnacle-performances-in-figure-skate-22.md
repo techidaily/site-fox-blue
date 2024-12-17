@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Pinnacle Performances in Figure Skate '22\""
-date: 2024-08-22T18:32:39.434Z
-updated: 2024-08-23T18:32:39.434Z
+date: 2024-12-11T16:15:52.107Z
+updated: 2024-12-16T18:01:49.810Z
 tags: 
   - screen-recording
   - ai video
@@ -34,13 +34,25 @@ Nathan Chen of the United States reacts to winning the gold medal at the 2022 Be
 
 ![nathan chen skating gold medal](https://images.wondershare.com/filmora/article-images/nathan-chen-skating-gold-medal.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Yuma Kagiyama of Japan reacts to become second to Nathan Chen of the United States. He receives a combined score of 310.05 points and wins the silver medal at the 2022 Beijing Winter Olympics.
 
 ![yuma kagiyama](https://images.wondershare.com/filmora/article-images/yuma-kagiyama.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Shoma Uno of Japan won the bronze medal with a combined score of 293 points and he has become the second Japanese to win a medal at the 2022 Beijing Winter Olympics.
 
 ![shoma uno](https://images.wondershare.com/filmora/article-images/shoma-uno.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Nathan Chen successful triumph has been four years in the making and it is a perfect combination of seven perfect skating minutes. Back at 2018 Olympics, he botched and ended with disappointment. Therefore, Olympics Games Beijing2022 has been redemption for America's best male skater.
 
@@ -50,11 +62,19 @@ Even though Nathan Chen finished first for men's short program of the team event
 
 ![russian olympic committee athletes](https://images.wondershare.com/filmora/article-images/russian-olympic-committee-athletes.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Russian Olympic Committee athletes won the gold medal at team event by a margin of 9 points with the combined score of 74\. United States won the silver medal with a combined score of 65 points.
 
 ![japan won the bronze medal](https://images.wondershare.com/filmora/article-images/japan-won-the-bronze-medal.jpg)
 
 Japan won the bronze medal with 63 points falling short by 2 points 2 behind the United States. The figure skating competition is held at the Capital Indoor Stadium in Beijing.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2\. Create a Video for Showing the Highlights of Figure Skating
 
@@ -88,9 +108,6 @@ Step 5: Select individual or multiple slides and add Transitions, Effects, Title
 
 Step 6: When everything is done, click on Export to save the video and share anywhere you want.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Conclusion
 
 Figure skating is undoubtedly one of the most followed sport events in the Winter Olympics. Naturally, there is a huge demand for figure skating highlights across the Winter Olympics fans and followers. We have provided figure skating highlights 2022 and we have illustrated the steps to create a highlight video of figure skating easily.
@@ -112,4 +129,19 @@ Figure skating is undoubtedly one of the most followed sport events in the Winte
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-determining-view-counts-direct-effect-on-creator-revenue/"><u>[New] 2024 Approved Determining View Count's Direct Effect on Creator Revenue</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-accelerate-engagement-implementing-the-top-12-video-growth-strategies/"><u>[New] In 2024, Accelerate Engagement - Implementing the Top 12 Video Growth Strategies</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-beat-to-visuals-an-iphone-guide-for-music-videos/"><u>[Updated] 2024 Approved Beat to Visuals An iPhone Guide for Music Videos</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-exploring-open-source-options-is-vlc-bound-to-beat-mpc-for-2024/"><u>[Updated] Exploring Open-Source Options Is VLC Bound to Beat MPC for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-mastering-the-art-of-buying-cutting-edge-360cams/"><u>[Updated] In 2024, Mastering the Art of Buying Cutting-Edge 360Cams</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-mastering-aerial-footage-a-guide-to-drone-video-editing/"><u>[Updated] Mastering Aerial Footage A Guide to Drone Video Editing</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-propel-your-workflow-final-cut-pros-must-have-tools/"><u>[Updated] Propel Your Workflow Final Cut Pro’s Must-Have Tools</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-synergizing-social-media-exporting-fb-videos-to-whatsapp/"><u>[Updated] Synergizing Social Media Exporting FB Videos to WhatsApp</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/crafting-perfect-memos-through-sound-waves-for-2024/"><u>Crafting Perfect Memos Through Sound Waves for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/error-0x802n-2400d-winning-the-battle-against-windows-update-failures-strategies-discussed/"><u>Error 0X802n-2400D: Winning the Battle Against Windows Update Failures [STRATEGIES DISCUSSED]</u></a></li>
+<li><a href="https://win-answers.techidaily.com/the-ultimate-solution-for-preventing-microsoft-edge-from-crashes-on-your-windows-11-pc/"><u>The Ultimate Solution for Preventing Microsoft Edge From Crashes on Your Windows 11 PC</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/upgrade-your-arvr-gear-without-breaking-the-bank-top-cheaper-xr-glasses-that-outperform-apple-and-meta/"><u>Upgrade Your AR/VR Gear Without Breaking the Bank - Top Cheaper XR Glasses That Outperform Apple and Meta</u></a></li>
+</ul></div>
 

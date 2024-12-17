@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Amplify Your Media  Integrating Text Into Windows Video Files via Photos\""
-date: 2024-08-22T18:32:53.214Z
-updated: 2024-08-23T18:32:53.214Z
+date: 2024-12-14T04:17:16.167Z
+updated: 2024-12-16T17:32:10.261Z
 tags: 
   - screen-recording
   - ai video
@@ -42,10 +42,18 @@ Do you wish to add titles/text to video on Photos in Windows 10 for your video p
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/add-text-photos-app.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * You may also add the image from the project library to the storyboard if you cannot find the image in the preset categories
 * Resize the image if black parts appear by clicking on resize and then, remove black parts
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/resize-photos-app.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * To add titles/text to video on Photos in Windows 10 that perfectly match the background, type out the title in the text box at the top right corner
 * Select the best-animated text fonts to suit the background. There are different layouts for each of the font style. Preview the animation by using Playback Control. If the text is not animating, you may try to increase the duration to 3-4 seconds that works well
@@ -62,11 +70,19 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/effects-photos.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Some of the effects might not have the option to move or anchor but if you choose the one that does allow moving of texts, you get an option to attach once you select it
 * Pin the slider in Attach to a point at the On position
 * To add the 3D moving image, drag the blue anchor to the object you’d like to attach and wait as it process
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/attach-effects-photos-min.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * To increase or decrease the length of animation time, adjust the slider
 
@@ -74,9 +90,6 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 
 * Start experiment by rotating the wheels, dragging the handles to resize, and anchoring for linking up the animation at different points within the video
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## Conclusion
 
 To add titles/text to video on Photos in Windows 10 and to make the text move with the Windows 10 Photos app, follow the above steps and get going easily. The steps are really simple and you just need to understand and apply the steps for successfully adding texts to your videos.
@@ -84,8 +97,9 @@ To add titles/text to video on Photos in Windows 10 and to make the text move wi
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -109,4 +123,26 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-digital-time-machine-tracking-back-through-facebooks-history-device-based/"><u>[New] 2024 Approved Digital Time Machine Tracking Back Through Facebook's History (Device-Based)</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-discover-revolutionary-iphone-apps-for-virtual-reality-gaming-for-2024/"><u>[New] Discover Revolutionary IPhone Apps for Virtual Reality Gaming for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-exploring-free-animation-methods-onlineoffline/"><u>[New] Exploring Free Animation Methods Online/Offline</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-how-to-organize-a-virtual-gathering-using-zoom-on-android-for-2024/"><u>[New] How to Organize a Virtual Gathering Using Zoom on Android for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-breakthrough-techniques-for-online-audio-archiving-and-editing/"><u>[New] In 2024, Breakthrough Techniques for Online Audio Archiving & Editing</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-dji-unmanned-aircraft-series-basic-high-end-4k-pro/"><u>[New] In 2024, DJI Unmanned Aircraft Series Basic, High-End, 4K Pro</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-mastering-video-production-with-powerdirector-24-for-2024/"><u>[New] Mastering Video Production with PowerDirector '24 for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-securing-top-quality-pixel-ringtones-where-to-go-for-2024/"><u>[New] Securing Top Quality Pixel Ringtones Where to Go for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-windowcut-film-maker/"><u>[Updated] 2024 Approved WindowCut Film Maker</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-assemble-movies-into-efficient-watchlists/"><u>[Updated] In 2024, Assemble Movies Into Efficient Watchlists</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-elevating-your-videos-status-on-youtube/"><u>[Updated] In 2024, Elevating Your Video's Status on YouTube</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/ai-recommendations-unleashed-picking-watches-with-the-help-of-chatgpt/"><u>AI Recommendations Unleashed: Picking Watches with the Help of ChatGPT</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-videos-from-tecno-spark-20-to-ipad-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Videos from Tecno Spark 20 to iPad | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-navigating-the-world-of-lut-filters-for-obs-mastery/"><u>In 2024, Navigating the World of LUT Filters for OBS Mastery</u></a></li>
+<li><a href="https://fox-access.techidaily.com/liberating-your-media-experience-free-movplay-software/"><u>Liberating Your Media Experience Free MOV/PLAY Software</u></a></li>
+<li><a href="https://fox-tls.techidaily.com/substitutes-for-carbon-copy-cloner-on-windows-111087-a-comprehensive-guide/"><u>Substitutes for Carbon Copy Cloner on Windows 11/10/8/7: A Comprehensive Guide</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/uncovering-inshots-edge-in-the-editing-world/"><u>Uncovering InShot's Edge in the Editing World</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/understanding-wi-fi-conversations-a-complete-guide-to-wi-fi-calling-explained/"><u>Understanding Wi-Fi Conversations: A Complete Guide to Wi-Fi Calling Explained</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-2024-approved-adobe-premiere-pro-vs-sony-vegas-pro-a-side-by-side-comparison/"><u>Updated 2024 Approved Adobe Premiere Pro vs Sony Vegas Pro A Side-by-Side Comparison</u></a></li>
+</ul></div>
 

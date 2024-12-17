@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Quick Fixes  Adding Descriptive Texts to Videos via Photos App (Windows 11) for 2024\""
-date: 2024-08-27T12:29:11.341Z
-updated: 2024-08-28T12:29:11.341Z
+date: 2024-12-12T23:53:32.870Z
+updated: 2024-12-17T02:00:19.083Z
 tags: 
   - screen-recording
   - ai video
@@ -42,6 +42,10 @@ Do you wish to add titles/text to video on Photos in Windows 10 for your video p
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/add-text-photos-app.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * You may also add the image from the project library to the storyboard if you cannot find the image in the preset categories
 * Resize the image if black parts appear by clicking on resize and then, remove black parts
 
@@ -50,6 +54,10 @@ Do you wish to add titles/text to video on Photos in Windows 10 for your video p
 * To add titles/text to video on Photos in Windows 10 that perfectly match the background, type out the title in the text box at the top right corner
 * Select the best-animated text fonts to suit the background. There are different layouts for each of the font style. Preview the animation by using Playback Control. If the text is not animating, you may try to increase the duration to 3-4 seconds that works well
 * For addition of credits, try to use the Classic text style. Put each of the credits in a new line and do give credits to yourself as well
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: How to Make Text Move in Windows 10 Photos App
 
@@ -62,11 +70,19 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/effects-photos.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Some of the effects might not have the option to move or anchor but if you choose the one that does allow moving of texts, you get an option to attach once you select it
 * Pin the slider in Attach to a point at the On position
 * To add the 3D moving image, drag the blue anchor to the object you’d like to attach and wait as it process
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/attach-effects-photos-min.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * To increase or decrease the length of animation time, adjust the slider
 
@@ -74,9 +90,6 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 
 * Start experiment by rotating the wheels, dragging the handles to resize, and anchoring for linking up the animation at different points within the video
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## Conclusion
 
 To add titles/text to video on Photos in Windows 10 and to make the text move with the Windows 10 Photos app, follow the above steps and get going easily. The steps are really simple and you just need to understand and apply the steps for successfully adding texts to your videos.
@@ -84,8 +97,9 @@ To add titles/text to video on Photos in Windows 10 and to make the text move wi
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -109,4 +123,20 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-embarking-on-the-journey-with-magix-studio-max-2024-update/"><u>[New] Embarking on the Journey with Magix Studio Max 2024 Update</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-building-blocks-for-successful-channel-branding-and-growth/"><u>[New] In 2024, Building Blocks for Successful Channel Branding and Growth</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-engineering-echoing-edits/"><u>[New] In 2024, Engineering Echoing Edits</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-top-rated-desktop-video-recorders-for-pcmac/"><u>[New] In 2024, Top-Rated Desktop Video Recorders for PC/Mac</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-visual-storytelling-through-photomosaics-for-2024/"><u>[New] Visual Storytelling Through Photomosaics for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-sharpen-up-discover-the-best-online-photo-fixers/"><u>[Updated] 2024 Approved Sharpen Up! Discover the Best Online Photo Fixers</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-free-backdrops-for-sustainable-cinema/"><u>[Updated] In 2024, Free Backdrops for Sustainable Cinema</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-learn-to-sound-unique-how-to-alter-vocal-identity-on-the-battlefield-free-for-2024/"><u>[Updated] Learn to Sound Unique How to Alter Vocal Identity on the Battlefield (Free) for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/forgot-pattern-lock-heres-how-you-can-unlock-sony-xperia-5-v-pattern-lock-screen-by-drfone-android/"><u>Forgot Pattern Lock? Heres How You Can Unlock Sony Xperia 5 V Pattern Lock Screen</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/how-to-fix-blurred-images-in-your-printouts-expert-advice-from-yl-computing/"><u>How to Fix Blurred Images in Your Printouts: Expert Advice From YL Computing</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-apple-iphone-13-mini-to-other-iphone-without-icloud-drfone-by-drfone-transfer-from-ios/"><u>In 2024, How to Transfer Photos from Apple iPhone 13 mini to other iPhone without iCloud | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/undeleted-lost-videos-from-razr-40-ultra-by-fonelab-android-recover-video/"><u>Undeleted lost videos from Razr 40 Ultra</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/vida-unveiled-a-gateway-to-professional-video-craftsmanship/"><u>Vida Unveiled A Gateway to Professional Video Craftsmanship</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, The Secrets Behind Top Performers in Online Forums Like Reddit"
-date: 2024-12-07T21:01:35.990Z
-updated: 2024-12-10T16:53:16.399Z
+date: 2024-12-13T00:45:08.778Z
+updated: 2024-12-16T20:16:12.879Z
 tags: 
   - screen-recording
   - ai video
@@ -29,17 +29,9 @@ This guide covers everything from what to post to how to post and crucial factor
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Post on Reddit?
 
 First, let's go over the technical part of the process- How to post on Reddit, both on Desktop and mobile?
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### How to Post on Desktop
 
@@ -51,9 +43,17 @@ Step1 Go to reddit.com and click on "Create Post"
 
 ![post on reddit](https://images.wondershare.com/filmora/article-images/2023/01/create-reddit-post.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step2 Then, choose a community to post in. This is also known as a subreddit
 
 ![select subreddit to post](https://images.wondershare.com/filmora/article-images/2023/01/choose-community.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step3 Next, type in your title and write your message below
 
@@ -62,7 +62,7 @@ Step4 If you want to add images or videos, select "Images & Video" and upload yo
 ![reddit images and videos](https://images.wondershare.com/filmora/article-images/2023/01/images-and-videos.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step5 The next section is titled "Link". Here, you can add a website you want your post to lead to
@@ -74,7 +74,7 @@ When you're done creating your post, scroll down and click "Post." It will immed
 If nothing is violating the [subreddit's guidelines](#%5FSubreddits), the mods will let it sit there without removing it.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### How to Post on Mobile App
@@ -94,10 +94,6 @@ Step3 Click on Next from the top-right corner of the screen
 Step4 Choose the subreddit (community) you want to post your message in
 
 ![select a subreddit to post](https://images.wondershare.com/filmora/article-images/2023/01/reddit-subreddit.PNG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step5 Check if everything looks good, add the appropriate tags
 
@@ -120,7 +116,7 @@ Some important rules to follow:
 * Most subreddits have their own rules and guidelines within. This is usually displayed on the right-hand side of the page.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Reddiquettes
@@ -130,6 +126,10 @@ Simply put, etiquettes refer to Reddit etiquette. They are the dos and don'ts of
 The goal behind this is to make Reddit a safer and more enjoyable platform to use. However, if you do not follow proper reddiquette, you will usually see the adverse effects in your Karma points. In other words, your Reddit Karma will decrease.
 
 And we all know that the opinion of users without sufficient Karma isn't as valued as those who have a lot of it. So, if you want to be a valued and influential member of Reddit, follow proper reddiquette.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Karma
 
@@ -193,20 +193,24 @@ The only way to get good and learn how to post on Reddit is with practice. So, u
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-chilly-competition-unveiling-highlights-of-2022s-snowboard-cross-showdown/"><u>[New] 2024 Approved Chilly Competition Unveiling Highlights of 2022'S Snowboard Cross Showdown</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-ouroboros-creator-suite/"><u>[New] 2024 Approved Ouroboros Creator Suite</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-interactive-design-best-practices-for-srgb-and-rgb/"><u>[New] Interactive Design Best Practices for Srgb and Rgb</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-iphone-photo-perfection-implement-these-10-composition-tenets/"><u>[New] IPhone Photo Perfection Implement These 10 Composition Tenets</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-key-concepts-of-interactive-storytelling/"><u>[New] Key Concepts of Interactive Storytelling</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-the-blueprint-to-dominate-with-your-spotify-ad-campaign/"><u>[New] The Blueprint to Dominate With Your Spotify Ad Campaign</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-apex-4k-video-recorders-our-top-18-selection-for-2024/"><u>[Updated] Apex 4K Video Recorders Our Top 18 Selection for 2024</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-in-2024-super-camcorders-ranking-15-best-on-the-market/"><u>[Updated] In 2024, Super Camcorders Ranking #15 Best on the Market</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-quantum-hdr-explained-the-ultimate-resource/"><u>[Updated] Quantum HDR Explained The Ultimate Resource</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/best-websites-for-downloading-skype-ringtone-for-2024/"><u>Best Websites For Downloading Skype Ringtone for 2024</u></a></li>
-<li><a href="https://games-able.techidaily.com/counter-strike-2-mastery-a-mac-users-journey/"><u>Counter-Strike 2 Mastery: A Mac User's Journey</u></a></li>
-<li><a href="https://win-able.techidaily.com/defeat-pc-bugs-how-to-ensure-smooth-running-of-stardew-valley-without-crashing/"><u>Defeat PC Bugs! How to Ensure Smooth Running of Stardew Valley Without Crashing</u></a></li>
-<li><a href="https://win-answers.techidaily.com/how-bungies-latest-patch-cleared-the-destiny-2-broccoli-crash-for-good/"><u>How Bungie's Latest Patch Cleared the Destiny 2 'Broccoli Crash' For Good</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-the-complete-guide-to-reversed-videos-on-instagram/"><u>In 2024, The Complete Guide to Reversed Videos on Instagram</u></a></li>
-<li><a href="https://win-answers.techidaily.com/successfully-fixed-launch-issues-for-steam-on-your-windows-10-machine/"><u>Successfully Fixed? Launch Issues for Steam on Your Windows 10 Machine</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-enhancing-visuals-with-paradox-creation/"><u>[New] 2024 Approved Enhancing Visuals with Paradox Creation</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-original-cinematic-footage-assessment-and-substitutes/"><u>[New] 2024 Approved Original Cinematic Footage Assessment & Substitutes</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-crafting-cinematic-projects-utilizing-movie-maker-on-windows-8-pcs/"><u>[New] In 2024, Crafting Cinematic Projects Utilizing Movie Maker on Windows 8 PCs</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-integrated-approach-to-post-videos-on-twittertumblr/"><u>[New] In 2024, Integrated Approach to Post Videos on Twitter/Tumblr</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-pinterest-vids-at-a-seconds-notice-free-online-downloader-top-5/"><u>[New] In 2024, Pinterest Vids at a Second's Notice – Free Online Downloader Top 5</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-spherical-shot-setup-systems/"><u>[New] In 2024, Spherical Shot Setup Systems</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-pixelpower-boost-your-phone-pics-for-free/"><u>[New] PixelPower Boost Your Phone Pics for Free</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-sharpen-up-discover-the-best-online-photo-fixers-for-2024/"><u>[New] Sharpen Up! Discover the Best Online Photo Fixers for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-the-art-of-iphone-cinematography-transforming-fast-motion-into-sluggish-sequences/"><u>[New] The Art of iPhone Cinematography Transforming Fast Motion Into Sluggish Sequences</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-cutting-edge-android-imagery-tweaker/"><u>[Updated] In 2024, Cutting-Edge Android Imagery Tweaker</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-the-hidden-history-in-your-browser-how-to-tackle/"><u>[Updated] In 2024, The Hidden History in Your Browser How to Tackle?</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-superior-routes-converting-pinners-videos-into-music-files/"><u>2024 Approved Superior Routes Converting Pinners' Videos Into Music Files</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/capacity-of-64128gb-in-video-storage-an-overview-for-2024/"><u>Capacity of 64/128GB in Video Storage - An Overview for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/childhood-nutrition-savvy-with-mondly-kids-google-plays-best-of-2017/"><u>Childhood Nutrition Savvy with Mondly Kids - Google Play’s Best of 2017</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/delete-gmail-account-withwithout-password-on-infinix-hot-30-5g-by-drfone-android/"><u>Delete Gmail Account With/Without Password On Infinix Hot 30 5G</u></a></li>
+<li><a href="https://extra-information.techidaily.com/expert-iphone-camera-settings-simplified/"><u>Expert iPhone Camera Settings Simplified</u></a></li>
+<li><a href="https://discover-exclusive.techidaily.com/icloud-storage-troubles-top-8-solutions-for-iphone-backup-errors-due-to-insufficient-space/"><u>ICloud Storage Troubles? Top 8 Solutions for iPhone Backup Errors Due to Insufficient Space</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/is-the-outlook-app-running-slow-on-windows-try-these-fixes/"><u>Is the Outlook App Running Slow on Windows? Try These Fixes</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/making-your-twitter-videos-dance-convert-them-into-expressive-animated-gifs/"><u>Making Your Twitter Videos Dance Convert Them Into Expressive Animated GIFs</u></a></li>
 </ul></div>
 

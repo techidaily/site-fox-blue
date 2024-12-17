@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Rapid Races Recap  Olympic 2022 Short-Track Sprints\""
-date: 2024-12-06T16:04:26.181Z
-updated: 2024-12-10T16:11:20.095Z
+date: 2024-12-15T23:49:27.422Z
+updated: 2024-12-16T16:02:11.503Z
 tags: 
   - screen-recording
   - ai video
@@ -37,17 +37,21 @@ Short track speed skating Korea Hwang Dae-heon wins the gold medal.
 
 ![dae heon wins the gold medal](https://images.wondershare.com/filmora/article-images/dae-heon-wins-the-gold-medal.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Canada’s Steven Dubois wins the silver medal.
 
 ![steven dubois wins the silver medal](https://images.wondershare.com/filmora/article-images/steven-dubois-wins-the-silver-medal.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Russia’s Semen Elistratov wins the bronze medal.
 
 ![elistratovb wins the bronze medal](https://images.wondershare.com/filmora/article-images/elistratov-wins-the-bronze-medal.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Hwang Dae-heon beats Steven Dubois by the tightest margin of 0.035 seconds.
 
@@ -58,28 +62,28 @@ Ren Ziwei shoved Hungarian Shaolin Sandor Liu during the event. The Hungarian na
 ![ren ziwei shoved hungarian](https://images.wondershare.com/filmora/article-images/ren-ziwei-shoved-hungarian.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Ren Ziwei was disqualified for arm blocking Liu. Ren Ziwei has won in 1000 meter short track speed skating previously.
 
 ![ren ziwei was disqualified](https://images.wondershare.com/filmora/article-images/ren-ziwei-was-disqualified.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The last leg of competition among skaters before reaching the finishing line at men’s short track speed skating 1500m event.
 
 ![the last leg of competition](https://images.wondershare.com/filmora/article-images/the-last-leg-of-competition.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Gold medalist Hwang Dae-heon of South Korea poses for the cameras during the awarding ceremony in short track speed skating Olympics 2022.
 
 ![gold medalist hwang](https://images.wondershare.com/filmora/article-images/gold-medalist-hwang.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2\. How to create a video to combine the highlights of short track speed skating 2022?
 
@@ -112,10 +116,6 @@ For macOS 10.12 or later
 Step 1: Download and install Filmora on your computer. Launch the application and click on New Project.
 
 ![filmora screen recorder](https://images.wondershare.com/filmora/article-images/filmora-record-screen.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step 2: Go to File > Project Settings and set the aspect ratio and resolution as well as frame rate as required.
 
@@ -150,18 +150,22 @@ South Korean skater Hwang Dae-heon has won the gold medal in men’s short track
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-add-cinematic-shake-to-images-using-ps/"><u>[New] 2024 Approved Add Cinematic Shake to Images Using PS</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-compendium-classification-of-camera-types-for-videos-for-2024/"><u>[New] Compendium Classification of Camera Types for Videos for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-exploring-freexaudio-technology-review-for-2024/"><u>[New] Exploring FreexAudio Technology Review for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-ignite-your-brands-success-with-a-10-step-blueprint-for-smm-dominance-for-2024/"><u>[New] Ignite Your Brand's Success with a 10-Step Blueprint for SMM Dominance for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-entering-vr-top-10-must-try-mobile-gaming-hits/"><u>[New] In 2024, Entering VR Top 10 Must-Try Mobile Gaming Hits</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-todays-vr-an-inside-look/"><u>[New] Today’s VR An Inside Look</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-the-future-of-action-photography-tomtoms-bandit-review/"><u>[Updated] 2024 Approved The Future of Action Photography TomTom's Bandit Review</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-innovateimages-ai-next-level-editing-excellence/"><u>[Updated] In 2024, InnovateImages AI Next-Level Editing Excellence</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-essential-media-makers-software-linux-edition/"><u>2024 Approved Essential Media Makers' Software Linux Edition</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-why-testimonial-videos-are-essential-for-brands-today/"><u>2024 Approved Why Testimonial Videos Are Essential for Brands Today</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-fake-android-location-without-rooting-for-your-xiaomi-13-ultra-drfone-by-drfone-virtual/"><u>In 2024, Fake Android Location without Rooting For Your Xiaomi 13 Ultra | Dr.fone</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/quick-start-initiate-your-new-echo-dot-into-setup-mode/"><u>Quick Start: Initiate Your New Echo Dot Into Setup Mode</u></a></li>
-<li><a href="https://techtrends.techidaily.com/solving-the-dilemma-a-step-by-step-guide-on-restoring-power-to-your-malfunctioning-roku-television/"><u>Solving the Dilemma: A Step-by-Step Guide on Restoring Power to Your Malfunctioning Roku Television</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-audio-interpretation-software-zero-cost-version/"><u>[New] In 2024, Audio Interpretation Software – Zero Cost Version</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-pushing-the-boundaries-of-fb-video-speed-for-2024/"><u>[New] Pushing the Boundaries of FB Video Speed for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-video-recording-extraordinaire-top-3-smartphones-of-the-year/"><u>[Updated] 2024 Approved Video Recording Extraordinaire Top 3 Smartphones of the Year</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-how-to-edit-blur-or-remove-photo-background/"><u>[Updated] How to Edit, Blur or Remove Photo Background?</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-unveiling-sms-secrets-top-whatsapp-tricks-revealed/"><u>[Updated] In 2024, Unveiling SMS Secrets Top WhatsApp Tricks Revealed</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-snapshot-sharpening-affinitys-bg-exclusion/"><u>[Updated] Snapshot Sharpening - Affinity's Bg Exclusion</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-be-inspired-today-the-essentials-of-stunning-photos-on-ig/"><u>2024 Approved Be Inspired Today! The Essentials of Stunning Photos on IG</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-revamping-video-meeting-banners-for-teammates/"><u>2024 Approved Revamping Video Meeting Banners for Teammates</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-velocity-victories-olympics-year-2022/"><u>2024 Approved Velocity Victories Olympics, Year 2022</u></a></li>
+<li><a href="https://howto.techidaily.com/4-solutions-to-fix-unfortunately-your-app-has-stopped-error-on-oppo-a59-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Solutions to Fix Unfortunately Your App Has Stopped Error on Oppo A59 5G | Dr.fone</u></a></li>
+<li><a href="https://article-helps.techidaily.com/elevating-your-drone-racing-game-and-discovering-elite-fpv-uavs/"><u>Elevating Your Drone Racing Game & Discovering Elite FPV UAVs</u></a></li>
+<li><a href="https://win-answers.techidaily.com/expert-tips-to-stop-tales-of-arise-crashes-and-enjoy-smooth-gameplay/"><u>Expert Tips to Stop 'Tales of Arise' Crashes and Enjoy Smooth Gameplay</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/how-to-smoothly-implement-postponed-update-options-for-windows-11-systems/"><u>How to Smoothly Implement Postponed Update Options for Windows 11 Systems</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-framing-your-story-with-effective-titles/"><u>In 2024, Framing Your Story with Effective Titles</u></a></li>
+<li><a href="https://games-able.techidaily.com/investing-in-fortnite-vip-packs-through-playstation-5/"><u>Investing in Fortnite VIP Packs Through PlayStation 5</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/the-ultimate-compendium-for-professionals-in-vivacut-video-editing-for-2024/"><u>The Ultimate Compendium for Professionals in VivaCut Video Editing for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/unleash-full-screen-flexibility-with-pip-on-iphone-youtube-app-for-2024/"><u>Unleash Full Screen Flexibility with PIP on iPhone YouTube App for 2024</u></a></li>
 </ul></div>
 

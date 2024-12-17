@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Effective Strategies to Craft Influential Patient Stories on Film"
-date: 2024-12-03T20:03:57.508Z
-updated: 2024-12-10T18:47:23.076Z
+date: 2024-12-10T01:41:59.688Z
+updated: 2024-12-16T23:34:52.943Z
 tags: 
   - screen-recording
   - ai video
@@ -26,16 +26,12 @@ If you want to learn how to create video testimonials that convert, then this po
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Identify Your Perfect Customer
 
 ![identify your perfect customer](https://images.wondershare.com/filmora/article-images/2022/07/identify-your-perfect-customer.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 The first key tactic to creating a perfect testimonial video is identifying your perfect customer. The more you know about the type of person who will benefit the most from using your product or service, the better you can tailor your video content to speak directly to them.
 
@@ -44,9 +40,17 @@ It may seem like a daunting task, but there are several ways you can go about de
 * If possible, talk with current customers and ask them what they love about their experience with your business.
 * If that's not an option for some reason (maybe there aren't any current customers), consider hiring a research firm or marketing agency that specializes in surveying potential customers and asking questions like "What would encourage you to buy from us?" or "How could we improve our service?" With this information in hand, it should be easier than ever before!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Ask Authentic Questions
 
 ![ask authentic questions](https://images.wondershare.com/filmora/article-images/2022/07/ask-authentic-questions.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Open-ended questions are the best way to engage customers and get them to speak naturally.
 * Make your question relevant to the customer and your product or service.
@@ -58,7 +62,7 @@ It may seem like a daunting task, but there are several ways you can go about de
 ![include strong opinion](https://images.wondershare.com/filmora/article-images/2022/07/include-strong-opinion.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Use the word “I”.
@@ -77,13 +81,13 @@ When asking someone for their thoughts on a topic or issue, there's always going
 
 Asking open-ended questions allows people greater freedom when responding—and while this may sound like an ideal situation when creating content, it often results in less-than-ideal responses when creating content at scale since you won't always get exactly what you want out of every shot.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Lighting, Sound, and Video Quality Matter
 
 ![lighting sound video quality](https://images.wondershare.com/filmora/article-images/2022/07/lighting-sound-video-quality.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lighting, sound, and video quality matter.
 
@@ -100,10 +104,6 @@ If someone says "I love this product," but then shows their eyes darting around 
 ## Beware of Skeptics and Negative Nellies
 
 ![beware skeptics](https://images.wondershare.com/filmora/article-images/2022/07/beware-skeptics.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 You might have skeptics and negative nellies in your audience. They're the ones who are less likely to buy, but more likely to be negative about everything.
 
@@ -143,20 +143,22 @@ If you're looking to boost your sales with testimonial videos, then you need to 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-upscaling-your-youtube-visuals/"><u>[New] 2024 Approved Upscaling Your YouTube Visuals</u></a></li>
-<li><a href="https://extra-information.techidaily.com/new-a-comprehensive-list-top-rated-srt-translation-services/"><u>[New] A Comprehensive List Top-Rated SRT Translation Services</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-in-2024-simple-steps-to-modify-screen-capture-on-macos/"><u>[New] In 2024, Simple Steps to Modify Screen Capture on macOS</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-myvidhub-testing-a-quest-for-more-features-for-2024/"><u>[New] MyVidHub Testing A Quest for More Features for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-reducing-sound-levels-gradually-with-easy-steps-in-lumafusion-for-2024/"><u>[New] Reducing Sound Levels Gradually with Easy Steps in Lumafusion for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-all-you-need-to-know-about-downloading-wm6/"><u>[Updated] All You Need to Know About Downloading WM6</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-gopro-showdown-full-review-and-ratings/"><u>[Updated] In 2024, GoPro Showdown Full Review and Ratings</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-sensory-cinema-the-vr-experience-for-2024/"><u>[Updated] Sensory Cinema The VR Experience for 2024</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/affordable-alexa-and-ultra-hd-insignia-ns-43df710na19-fire-tv-edition-a-comprehensive-review/"><u>Affordable Alexa & Ultra HD Insignia NS-43DF710NA19 Fire TV Edition - A Comprehensive Review</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/apple-music-and-video-harmony-explained-for-2024/"><u>Apple Music and Video Harmony Explained for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/camera-powerhouse-selecting-the-10-best-4k-phones-for-2024/"><u>Camera Powerhouse Selecting the 10 Best 4K Phones for 2024</u></a></li>
-<li><a href="https://win11.techidaily.com/changing-windows-11-registry-access-settings/"><u>Changing Windows 11 Registry Access Settings</u></a></li>
-<li><a href="https://win-dash.techidaily.com/complimentary-logitech-camcorder-drivers-for-windows-operating-system-download/"><u>Complimentary Logitech Camcorder Drivers for Windows Operating System Download</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/empowering-professional-growth-with-these-6-reasons-to-use-chatgpt/"><u>Empowering Professional Growth with These 6 Reasons to Use ChatGPT</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/ultimate-list-of-no-cost-split-screen-editing-software-navigating-options-for-seamless-onlineoffline-workflows/"><u>Ultimate List of No-Cost Split-Screen Editing Software: Navigating Options for Seamless Online/Offline Workflows</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-expert-tips-for-optimizing-azure-speech-to-text-functionality/"><u>[New] 2024 Approved Expert Tips for Optimizing Azure Speech to Text Functionality</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-the-ultimate-guide-to-attractive-unboxing-videos-on-ig/"><u>[New] 2024 Approved The Ultimate Guide to Attractive Unboxing Videos on IG</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-the-ultimate-hdr-conversion-playbook-starting-with-sdr/"><u>[New] 2024 Approved The Ultimate HDR Conversion Playbook - Starting with SDR</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-mastering-netflixs-innovative-split-screen-tech-for-2024/"><u>[New] Mastering Netflix's Innovative Split Screen Tech for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-audience-enhancement-with-audition-fades-for-2024/"><u>[Updated] Audience Enhancement with Audition Fades for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-in-depth-guide-to-frozen-pleasure-viewing-tools/"><u>[Updated] In 2024, In-Depth Guide to Frozen Pleasure Viewing Tools</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-the-ultimate-selection-of-frames-for-professional-ig-artistry-for-2024/"><u>[Updated] The Ultimate Selection of Frames for Professional IG Artistry for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-hero5-mastery-a-comprehensive-guide-to-photo-and-video-excellence/"><u>2024 Approved Hero5 Mastery A Comprehensive Guide to Photo and Video Excellence</u></a></li>
+<li><a href="https://solve-outstanding.techidaily.com/1726029531386-4k/"><u>4K解像度削減ガイド：ハイコンプレス動画制作の方法</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/alight-motion-comprehensive-review-2023/"><u>Alight Motion Comprehensive Review 2023</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/illusions-manipulating-past-and-future-events/"><u>Illusions Manipulating Past & Future Events</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-free-green-screens-for-cinematic-artists/"><u>In 2024, Free Green Screens for Cinematic Artists</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-speedy-streams-ios-media-on-your-pc/"><u>In 2024, Speedy Streams IOS Media on Your PC</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-vr-headset-hq-the-top-pc-vr-devices-of-2023/"><u>In 2024, VR Headset HQ The Top PC VR Devices of 2023</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/sharing-sites-guide-for-instagram-story-and-post-links-for-2024/"><u>Sharing Sites Guide for Instagram Story and Post Links for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/top-12-prominent-realme-11-5g-fingerprint-not-working-solutions-by-drfone-android/"><u>Top 12 Prominent Realme 11 5G Fingerprint Not Working Solutions</u></a></li>
+<li><a href="https://win-data.techidaily.com/yl-computings-stunning-animated-character-designs-for-high-quality-folder-icons/"><u>YL Computing's Stunning Animated Character Designs for High-Quality Folder Icons</u></a></li>
 </ul></div>
 

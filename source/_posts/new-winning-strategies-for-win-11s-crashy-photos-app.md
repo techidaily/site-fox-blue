@@ -1,7 +1,7 @@
 ---
 title: "[New] Winning Strategies for Win 11'S Crashy Photos App"
-date: 2024-08-22T18:32:27.679Z
-updated: 2024-08-23T18:32:27.679Z
+date: 2024-12-13T16:31:04.986Z
+updated: 2024-12-16T19:11:01.680Z
 tags: 
   - screen-recording
   - ai video
@@ -57,9 +57,9 @@ Here is how to troubleshoot –
 2. Now, the troubleshooter will troubleshoot every app within the Windows Store Applications and fix them in a jiffy.
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Solution 2: Restore Default Libraries
 
 Restoring the default libraries would resolve the Windows 10 Photos App crash issues. Resetting the Photo App to its default source to a valid network, path fixes the case.
@@ -72,8 +72,9 @@ Restoring the default libraries would resolve the Windows 10 Photos App crash is
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/windows-10-photos-app-crashes-restore.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 1. Lastly, click on ‘Apply’ followed by ‘OK’ and the issue will be resolved.
 
 ### Solution 3: Reset it
@@ -86,9 +87,6 @@ Here is how can you reset it –
 2. Hit ‘Advanced Options’ and click ‘Reset’ button thereafter.
 3. Now, you got to restart your Windows system, so that Windows 10 Photos App crashing problem can be easily resolved.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Solution 4: Repair Photos App package
 
 A corrupted Photos App package might wreak havoc in your photo viewing, as the app doesn’t buzz follow your commands. The least you can do here is repair the package to fix minor glitches within and get it going.
@@ -101,8 +99,9 @@ Let’s fix the issue by repairing the Photos App package installed on your comp
 4. Now, the Windows 10 Photos App won’t crash.
 
 <!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Solution 5: Reinstall Windows 10 Photos app
 
 Alternatively, if nothing works out in your favor, you can always fix Windows 10 Photos App crash issue by reinstalling Windows 10 Photos App. A corrupted Photos App might create disturbance for you, so reinstalling would get a fresh and bug free version on your system from the Microsoft Store.
@@ -121,13 +120,15 @@ From the above article, we have concluded that experiencing Windows 10 Photos Ap
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -151,4 +152,20 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-from-obscurity-to-fame-elevate-your-tiktok-unboxing-videos/"><u>[New] From Obscurity to Fame Elevate Your TikTok Unboxing Videos</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-wise-owls-ultimate-general-knowledge-hubs/"><u>[New] In 2024, Wise Owls' Ultimate General Knowledge Hubs</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-instantize-image-movement-with-photoshop/"><u>[New] Instantize Image Movement with Photoshop</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-2024-approved-elevating-your-standards-a-path-to-superior-interview-skills/"><u>[Updated] 2024 Approved Elevating Your Standards A Path to Superior Interview Skills</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-embrace-the-thrill-how-to-engage-in-tiktok-livestreams/"><u>[Updated] 2024 Approved Embrace the Thrill How to Engage in TikTok Livestreams</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-breakdown-of-successful-podcast-writing-techniques-examples-included/"><u>[Updated] Breakdown of Successful Podcast Writing Techniques (Examples Included)</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-trailblazing-8-content-hubs-expanding-fastest/"><u>2024 Approved Trailblazing 8 Content Hubs Expanding Fastest</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/elevating-listeners-a-comprehensive-guide-to-podcast-seo-for-2024/"><u>Elevating Listeners A Comprehensive Guide to Podcast SEO for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/fundamental-narrative-structure/"><u>Fundamental Narrative Structure</u></a></li>
+<li><a href="https://fox-access.techidaily.com/in-2024-leading-lists-compelling-google-cardboard-vr-game-selections/"><u>In 2024, Leading Lists Compelling Google Cardboard VR Game Selections</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/innovative-ai-names-for-podcasts-the-ultimate-guide/"><u>Innovative AI Names for Podcasts – The Ultimate Guide</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/shing-potential-growth-in-youtube-traffic/"><u>Unleashing Potential Growth in YouTube Traffic</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/your-shorts-are-back-on-youtube-for-2024/"><u>Your Shorts Are Back on YouTube for 2024</u></a></li>
+</ul></div>
 

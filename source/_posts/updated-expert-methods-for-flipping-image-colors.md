@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Expert Methods for Flipping Image Colors"
-date: 2024-12-03T19:01:34.444Z
-updated: 2024-12-10T23:51:01.712Z
+date: 2024-12-13T02:39:45.160Z
+updated: 2024-12-17T00:50:13.183Z
 tags: 
   - screen-recording
   - ai video
@@ -28,10 +28,6 @@ thumbnail: https://thmb.techidaily.com/d0ad864c2a74122a666dad56374980e063d684e4d
 
 During the age of analog photography, the image negative was one of the most important artifacts for photographers, because it enabled them to reproduce a picture as many times as they wanted. Years later photographers invert colors in photos for mostly aesthetical reasons since only a small number of photographers still take photos with analog cameras. Regardless of the type of camera you’re using, inverting colors in a photo is a straightforward process that doesn’t require too much effort. In this article, we are going to take you through some of the best options on Mac and PC computers, as well as Android phones and iPhones that let you invert colors in just a few easy steps. So, let’s dive in.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Make Image Negative of a Digital Photo?
 
 The Invert option is commonly used to invert a scanned film negative to color, but this doesn’t’ mean that you can’t use this effect in very different contexts. However, the extensive and unselective use of this effect can ruin a perfect photo. Here’s how you can invert colors in your photos.
@@ -45,7 +41,7 @@ The Invert option is commonly used to invert a scanned film negative to color, b
 ![ Invert image color](https://images.wondershare.com/filmora/article-images/ms-paint-invert-color.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Open the photo you’d like to invert with MS Paint, and then choose the **Select All option** from the **Select Menu**. **Right-click** on the picture and click on the **Invert Color** option. The colors in the image will be automatically inverted, so you can then head over to the **Save As submenu** in the **File menu** to select the file format of the new photo.
@@ -62,12 +58,16 @@ Besides creating image negatives, the Preview app lets you convert image files a
 
 ![ Invert image color](https://images.wondershare.com/filmora/article-images/mac-preview-invert-color-original.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Clicking on the **Adjust Color feature** will bring up the color adjustment panel that contains **Black Level and White Level** sliders. To invert the colors in the photo you have to drag the **Black Level slider to the right** and the **White Level Slider to the left.**
 
 ![ Invert image color](https://images.wondershare.com/filmora/article-images/mac-preview-invert-color.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 You can experiment with the values you assign to each of these sliders in order to get a more visually pleasing result.
@@ -79,6 +79,10 @@ You can experiment with the values you assign to each of these sliders in order 
 **Compatibility:** Online platform
 
 ![ Covert color](https://images.wondershare.com/filmora/article-images/pinetools-invert-image-colors.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 The platform’s homepage contains a number of categories of tools such as **Colors, Numbers, Text and Lists or Images**. Clicking on the **Images category** will grant you the access to all photo editing tools PineTools offers, so you just have to click on the **Invert Colors** options to start the process of inverting a photo online. Once the **Invert Colors window** loads, you can click on the **Choose File button** to select a photo you’d like to invert. When the upload is completed, simply click on the **Invert button** located near the bottom of the screen and the platform will automatically invert the colors in your photo. To save the watermark-free image with inverted colors you just have to click on **PNG, JPEG or WEBP file** formats that are displayed above the preview of the picture.
 
@@ -99,10 +103,6 @@ In addition to a rich selection of effects you can apply to images, tjshome also
 **Compatibility:** macOS, Windows
 
 ![ Covert color](https://images.wondershare.com/filmora/article-images/ps-convert-color.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 After you open a photo in Adobe Photoshop, you can invert it in just a few clicks. **Expand the Image menu** and the go-to **Adjustments submenu** where you can find the **Invert option**. Alternatively, you can use the **CTRL+I** shortcut if you are a PC user or a **Command+I** if you are using a Mac computer. Moreover, Photoshop lets you **mask parts of a photo** which enables you to precisely define an area of an image you’d like to invert. Other photo editing tools like **Curves, Brightness/Contrast or Photo Filter** can make an image with inverted colors look more convincing. Keep in mind that working with multiple layers requires a lot of patience because failing to mask an object properly can produce some unwanted side issues.
 
@@ -139,7 +139,7 @@ Inverting colors in a photo is not a complicated process, but finding creative w
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Ollie Mattison
@@ -167,24 +167,24 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-converting-live-streamed-youtubes-into-animated-gif-formats/"><u>[New] 2024 Approved Converting Live Streamed YouTubes Into Animated GIF Formats</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-launchpad-logic-the-complete-framework-for-founders-of-a-reviews-channel/"><u>[New] 2024 Approved Launchpad Logic The Complete Framework for Founders of a Reviews Channel</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-analyzing-toolwiz-a-photographers-digital-arsenal/"><u>[New] In 2024, Analyzing Toolwiz A Photographer’s Digital Arsenal</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-investigating-the-innovation-in-burst-mode-filming-techniques/"><u>[New] Investigating the Innovation in Burst Mode Filming Techniques</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-blurred-lines-the-art-of-anonymizing-youtube-content/"><u>[Updated] 2024 Approved Blurred Lines The Art of Anonymizing YouTube Content</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-2024-approved-craft-the-perfect-livestream-on-youtube-and-twitch-with-obs/"><u>[Updated] 2024 Approved Craft the Perfect Livestream on YouTube & Twitch with OBS</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-from-novice-to-expert-creating-your-avatar-with-confidence/"><u>[Updated] 2024 Approved From Novice to Expert Creating Your Avatar with Confidence</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-bring-life-to-film-projects-3-inexpensive-techniques-for-iphones-music-integration-for-2024/"><u>[Updated] Bring Life to Film Projects 3 Inexpensive Techniques for iPhones Music Integration for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-guide-to-podcast-cover-design-10-core-insights-for-2024/"><u>[Updated] Guide to Podcast Cover Design 10 Core Insights for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-unlocking-success-with-effective-video-praise-techniques/"><u>[Updated] Unlocking Success with Effective Video Praise Techniques</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-screen-aspect-formulas-and-alterations-online/"><u>2024 Approved Screen Aspect Formulas and Alterations Online</u></a></li>
-<li><a href="https://win-blog.techidaily.com/apex-legends-players-manual-cracking-down-on-error-code-leaf-for-a-smoother-gameplay-experience/"><u>Apex Legends Player's Manual: Cracking Down on Error Code Leaf for a Smoother Gameplay Experience</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-full-examination-samsungs-complete-360-camera-experience/"><u>In 2024, Full Examination Samsung's Complete 360° Camera Experience</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/iphone-hdr-photography-for-enthusiasts-for-2024/"><u>IPhone HDR Photography for Enthusiasts for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/old-salt-lexicon-a-pirates-speaking-guide/"><u>Old Salt Lexicon: A Pirate’s Speaking Guide</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/speedy-explorer-windows-10-photography-interface/"><u>Speedy Explorer - Windows 10 Photography Interface</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/step-by-step-guide-to-applying-luts-for-vivid-imagery-in-obs-videos/"><u>Step-by-Step Guide to Applying LUTs for Vivid Imagery in OBS Videos</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/top-12-prominent-vivo-v29-pro-fingerprint-not-working-solutions-by-drfone-android/"><u>Top 12 Prominent Vivo V29 Pro Fingerprint Not Working Solutions</u></a></li>
-<li><a href="https://win-help.techidaily.com/windows-2023/"><u>Windows 系统自拷贝还原器：2023年度免费最佳选择 - 下载方法</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-maximizing-value-from-youtube-comment-threads/"><u>[New] 2024 Approved Maximizing Value From YouTube Comment Threads</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-aerial-capture-face-off-dji-mavic-2-vs-hero6-black/"><u>[New] In 2024, Aerial Capture Face-Off DJi Mavic 2 vs Hero6 Black</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-innovation-at-the-heart-the-evolution-of-magix-music-maker/"><u>[New] In 2024, Innovation at the Heart The Evolution of Magix Music Maker</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-instant-signature-background-erasure-techniques/"><u>[New] Instant Signature Background Erasure Techniques</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/47867040-new-your-marketing-journey-begins-here-experience-the-full-spectrum-of-over-50-free-ads/"><u>[New] Your Marketing Journey Begins Here - Experience the Full Spectrum of Over 50 FREE Ads!</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-the-ultimate-blueprint-for-your-mobile-youtube-businesspersonal-platform/"><u>[Updated] 2024 Approved The Ultimate Blueprint for Your Mobile YouTube Business/Personal Platform</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-from-playground-to-pro-how-mavic-air-challenges-the-spark-dominance-for-2024/"><u>[Updated] From Playground to Pro How Mavic Air Challenges the Spark Dominance for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-duality-of-delivery-engaging-audiences-through-alternative-perspectives-for-reaction-videos/"><u>[Updated] In 2024, Duality of Delivery Engaging Audiences Through Alternative Perspectives for Reaction Videos</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-incorporate-engaging-text-in-videos-at-no-extra-cost/"><u>[Updated] Incorporate Engaging Text in Videos at No Extra Cost</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-quick-path-to-virtual-self-building-metaverse-profiles/"><u>[Updated] Quick Path to Virtual Self Building Metaverse Profiles</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-reducing-noise-amplitude-gently-using-lumafusion/"><u>[Updated] Reducing Noise Amplitude Gently Using Lumafusion</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-ultimate-guide-top-8-convertors-for-sub-to-srt-harmony/"><u>[Updated] Ultimate Guide Top 8 Convertors for Sub to Srt Harmony</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-unearth-17-methods-a-complete-guide-to-tracking-internet-radio/"><u>[Updated] Unearth 17 Methods A Complete Guide to Tracking Internet Radio</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-your-oppo-a18-location-on-life360-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>How to Change Your Oppo A18 Location on life360 Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-exit-android-factory-mode-on-samsung-galaxy-m34-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Exit Android Factory Mode On Samsung Galaxy M34? | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/instant-guide-restoring-the-old-school-windows-photo-viewer-on-win-11-for-2024/"><u>Instant Guide Restoring the Old-School Windows Photo Viewer on Win 11 for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/streamlining-console-experience-with-computer-playback-tech-for-2024/"><u>Streamlining Console Experience with Computer Playback Tech for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/the-chatbot-revolution-creating-from-create-a-gpt-foundations/"><u>The ChatBot Revolution: Creating From Create a GPT Foundations</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshooting-intensive-cpu-utilization-from-wudfhostexe-in-win11/"><u>Troubleshooting Intensive CPU Utilization From wudfhost.exe in Win11</u></a></li>
 </ul></div>
 
