@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Uncover Clarity  A Detailed Guide to Purging Backgrounds with Affinity\""
-date: 2024-12-15T21:50:40.565Z
-updated: 2024-12-17T02:12:34.640Z
+date: 2024-12-20T19:58:46.753Z
+updated: 2024-12-25T17:05:11.195Z
 tags: 
   - screen-recording
   - ai video
@@ -27,16 +27,12 @@ No matter you are a professional content creator or a newbie, we'll be discussin
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Remove Affinity Photo to Remove Image's Background
 
 Affinity Photo is a simple and easy-to-use editing software, and you can remove a background in it under two scenarios: remove a white or a busy background.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### How to Erase a White Background in Affinity Designer
@@ -49,6 +45,10 @@ Now access the **Pixel Persona** section in the left corner of the software scre
 
 ![accessing the pixel persona in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/accessing-the-pixel-persona-in-affinity-designer.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step2 Go to the **"Layers"** tab in the right pane, right-click your layer, and disable **"Lock."** Now right-click on your layer again, and select **"Rasterize"** to enable editing of specific parts of the image.
 
 ![unlocking the image layer in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/unlocking-the-image-layer-in-affinity-designer.png)
@@ -58,7 +58,7 @@ Step3 To make a selection around your subject, first enable the **"Snap To Edges
 ![enabling snap to edges and soft edges in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/enabling-snap-to-edges-and-soft-edges-in-affinity-designer.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Set your brush size using your keyboard's **left** and **right bracket** keys. Now, manually make a selection around your subject and white edges in the image as precisely as possible.
@@ -68,10 +68,6 @@ Step4 Next, zoom in on your subject. Press & hold the ALT key on your keyboard, 
 Click the **"Refine"** option in the toolbar to open the **"Refine Selection"** menu. A red mask will be applied to your subject, giving you an idea of how your image will look once you remove the background. Zoom in and if any details are excluded, paint them over. Once you are satisfied, click **"Apply"** to save your changes.
 
 ![refining the outline around the image to remove background in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/refining-the-outline-around-the-image-to-remove-background-in-affinity-designer.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step5 In the last step, press the **"Delete"** key on your keyboard to remove the background, or click **"Edit"** and choose the **"Cut"** option.
 
@@ -130,6 +126,10 @@ Editing experts recommend Wondershare PixCut as the best alternative to many edi
 * Paid and customized accounts for premium benefits.
 * Customized categories that include e-commerce, car dealership, social media, graphic designing, personal, and marketing use.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 This article discusses **removing a background in Affinity Photo**, whether the image has a white or a busy BG.
@@ -149,7 +149,7 @@ Therefore, we recommend using [Wondershare PixCut](https://pixcut.wondershare.co
 ![wondershare pixcut for removing image background](https://images.wondershare.com/filmora/article-images/2023/03/wondershare-pixcut-for-removing-image-background.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Editing experts recommend Wondershare PixCut as the best alternative to many editing problems. An AI-powered automatic editing tool, this software has quicker solutions for you when it comes to removing an image's background. Some of its many benefits are:
@@ -202,20 +202,17 @@ Hopefully, this article and video can help you create ideal images!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-tips-for-unlocking-youtube-video-comments/"><u>[New] 2024 Approved Tips for Unlocking YouTube Video Comments</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-essential-free-windowsmac-video-players-ranked-for-2024/"><u>[New] Essential Free Windows/Mac Video Players Ranked for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/rime-16-video-openers-to-surge-your-traffic/"><u>[New] Prime 16 Video Openers to Surge Your Traffic</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-leading-likes-best-insta-stories-filter/"><u>[Updated] 2024 Approved Leading Likes Best Insta Stories Filter</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-tomtom-adventurecam-2023-a-game-changer/"><u>[Updated] 2024 Approved TomTom AdventureCam 2023 A Game-Changer?</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-best-camcorder-tech-for-shooting-sports-for-2024/"><u>[Updated] Best Camcorder Tech for Shooting Sports for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-core-tenets-of-narrative-construction-for-2024/"><u>[Updated] Core Tenets of Narrative Construction for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-enhance-visual-appeal-adding-borders-in-social-media-vids/"><u>[Updated] Enhance Visual Appeal Adding Borders in Social Media Vids</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-journey-into-the-metaverse-constructing-an-authentic-avatar-for-2024/"><u>[Updated] Journey Into the Metaverse Constructing an Authentic Avatar for 2024</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-simplified-techniques-for-high-quality-webcam-videos-for-2024/"><u>[Updated] Simplified Techniques for High-Quality Webcam Videos for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-experience-ultimate-quality-leading-4k-converters/"><u>In 2024, Experience Ultimate Quality Leading 4K Converters</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/mastering-iphone-a-comprehensive-guide-to-utilizing-google-lens-features/"><u>Mastering iPhone: A Comprehensive Guide to Utilizing Google Lens Features</u></a></li>
-<li><a href="https://driver-install.techidaily.com/rejuvenating-your-windows-devices-auditory-experience/"><u>Rejuvenating Your Windows Device's Auditory Experience</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/securely-save-your-windows-8-screenshots-for-2024/"><u>Securely Save Your Windows 8 Screenshots for 2024</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/updated-2024-approved-fcpx-hacks-smooth-skin-without-breaking-the-bank-or-using-plugins/"><u>Updated 2024 Approved FCPX Hacks Smooth Skin without Breaking the Bank (or Using Plugins)</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-youtube-journey-starter-pack-8-essential-online-courses/"><u>[Updated] 2024 Approved YouTube Journey Starter Pack 8 Essential Online Courses</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-voting-victories-spotlight-on-reddits-hottest-threads-top-10/"><u>[Updated] In 2024, Voting Victories Spotlight on Reddit's Hottest Threads (Top 10)</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-navigating-android-for-immersive-vr-experiences/"><u>[Updated] Navigating Android for Immersive VR Experiences</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-the-ultimate-reference-to-gesture-and-movement-capture-for-2024/"><u>[Updated] The Ultimate Reference to Gesture and Movement Capture for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-mastering-stealth-watch-instagram-stories-without-profile-links-pc-android-ios/"><u>2024 Approved Mastering Stealth Watch Instagram Stories Without Profile Links [PC, Android, iOS]</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-metacores-finest-vr-headsets-and-eyewear-guide/"><u>2024 Approved Metacore's Finest VR Headsets and Eyewear Guide</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-navigating-windows-10-like-a-tech-wizard/"><u>2024 Approved Navigating Windows 10 Like a Tech Wizard</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/firefoxs-social-media-edge-top-downloader-extensions-and-addons-for-fb-content/"><u>FireFox's Social Media Edge Top Downloader Extensions and Addons for FB Content</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-no-gps-signal-heres-every-possible-solution-on-oppo-a1x-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go No GPS Signal? Heres Every Possible Solution On Oppo A1x 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/revolutionizing-image-capture-with-ios-11-updates/"><u>Revolutionizing Image Capture with iOS 11 Updates</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/samsungs-photo-manipulation-software-a-review/"><u>Samsung's Photo Manipulation Software A Review</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/the-inner-workings-of-an-ai-prompt-injection-assault-on-tech-systems/"><u>The Inner Workings of an AI Prompt Injection Assault on Tech Systems</u></a></li>
 </ul></div>
 

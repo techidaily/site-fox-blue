@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  From Basic to Advanced Usage  Maximize Your Experience with Mac's Preview\""
-date: 2024-12-14T22:25:06.397Z
-updated: 2024-12-16T18:25:02.685Z
+date: 2024-12-23T21:31:36.917Z
+updated: 2024-12-25T20:13:52.811Z
 tags: 
   - screen-recording
   - ai video
@@ -35,10 +35,6 @@ That said, the sections below explain **how to use Preview on Mac** for elementa
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: How to Use Preview to Edit Images \[Complete Guide\]
 
 Being the default image editor for Mac, Apple tried to make the **Preview app** as simple as possible. Therefore, modifying the photos in the program isn’t much complicated as compared to its competitors from different vendors.
@@ -58,10 +54,6 @@ As mentioned earlier, the **Preview app** is a default photo viewer on Mac that 
 
 * Use the tools present on the standard toolbar at the top of the interface
 * Alternatively, click **Tools** from the top, and choose your preferred editing option from the menu
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### How to Show Markup Tools in Preview on Mac
 
@@ -93,6 +85,10 @@ Drag the mouse pointer over the area of the photo you want to keep. If need be, 
 
 Keeping the area of interest on the photo selected, click **Crop** from the **Markup Toolbar** at the top to crop the image.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### How to Rotate Image in Preview
 
 Rotating an image in the **Preview app** is fairly simple. To do so:
@@ -106,7 +102,7 @@ Use the method explained above to open the photo in Preview.
 Click the **Rotate Left** icon from the upper-right area of the standard toolbar to rotate the image anticlockwise. Alternatively, you can also click **Tools** from the top, and choose your preferred rotation direction or flipping orientation from the menu that comes down next.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### How to Add Text to Image in Preview
@@ -125,6 +121,10 @@ Click inside the frame, delete the existing placeholder text, and type a new cap
 
 Select the text, click the **Text Style** icon from the **Markup Toolbar**, and change font, size, color, etc. using the available options.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### How to Remove Background in Preview
 
 As it is with some of the advanced image manipulation programs, even the **Preview app** allows you to remove background from a photo, and that too pretty easily. To get this done:
@@ -140,6 +140,10 @@ Once the background portion of the image gets selected (colored in red), without
 **Note:** Removing background requires the image to be in PNG format. If the photo you are working on is JPG, Preview prompts with a confirmation box asking your permission to convert the photo from JPG to PNG. You must allow this conversion in order to proceed with the background removal process.
 
 **Note:** Usually, not entire background could be selected in a single go, especially when there are multiple objects in the photo. In such a situation, you must repeat the process multiple times to get rid of all the unwanted objects/areas.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### How to Combine Images into One
 
@@ -157,10 +161,6 @@ Ensure that Preview opens with both the images listed in the sidebar in the left
 
 After removing the background, press **Command** \+ **A** to select all the remaining elements, and then press **Command** \+ **C** to copy them. Next, select the second photo from the sidebar, and press **Command** \+ **V** to paste the object to combine the pictures. Additionally, you can drag the pasted object or move its side handles to reposition or resize it respectively.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### How to Save Images in Different Formats
 
 The **Preview app** has a built-in image converter as well. To convert an image to a different format with Preview, you must:
@@ -172,6 +172,10 @@ After opening an image, click **File** from the menu bar at the top, and click *
 **Step 2: Choose Output Format and Export**
 
 Choose a destination folder in the **Where** field, select your preferred format from the **Format** drop-down list, and click **Save** to convert the image.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Part 2: FAQs About Preview App on Mac
 
@@ -207,10 +211,6 @@ Choose a destination folder in the **Where** field, select your preferred format
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -236,18 +236,16 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-zero-pay-zone-how-to-watch-record-and-edit-soccer-for-free/"><u>[New] 2024 Approved Zero Pay Zone How To Watch, Record, and Edit Soccer for Free</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-add-personal-touch-to-videos-with-text-labels-using-photos-app-windows-11-for-2024/"><u>[New] Add Personal Touch to Videos with Text Labels Using Photos App (Windows 11) for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-primeplex-all-in-one-channel-hub-with-homeside-views-for-2024/"><u>[New] PrimePlex All-in-One Channel Hub with Homeside Views for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-startups-best-friends-the-8-products-every-entrepreneur-should-collect/"><u>[New] Startup's Best Friends The 8 Products Every Entrepreneur Should Collect</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-explore-the-best-ai-naming-software-for-podcasters-for-2024/"><u>[Updated] Explore the Best AI Naming Software for Podcasters for 2024</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/2024-approved-how-to-step-into-a-tiktok-event-like-a-pro/"><u>2024 Approved How to Step Into a TikTok Event Like a Pro</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138544978-9781401928650-colors-numbers/"><u>Colors & Numbers | Free Book</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/elite-6-platforms-paving-the-way-for-biz-success/"><u>Elite 6 Platforms Paving the Way for Biz Success</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/enhancing-shortcut-integration-incorporating-wordpad-triggers-in-windows-11/"><u>Enhancing Shortcut Integration: Incorporating WordPad Triggers in Windows 11</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/game-of-thrones-ringtones-premier-download-websites-ranked/"><u>Game of Thrones Ringtones Premier Download Websites Ranked</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-ultimate-guide-from-honor-magic-6-pro-frp-bypass-by-drfone-android/"><u>In 2024, Ultimate Guide from Honor Magic 6 Pro FRP Bypass</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/the-art-of-recording-facebook-lives-discover-4-key-strategies/"><u>The Art of Recording Facebook Lives Discover 4 Key Strategies</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/the-ultimate-guide-to-metaverse-headset-selection-for-2024/"><u>The Ultimate Guide to Metaverse Headset Selection for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-audiophiles-guide-to-the-renewed-lg-bp550/"><u>[Updated] 2024 Approved Audiophile's Guide to the Renewed LG BP550</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-boosting-engagement-the-key-to-creating-top-facebook-covers-for-2024/"><u>[Updated] Boosting Engagement The Key to Creating Top Facebook Covers for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-frame-it-right-selecting-the-perfect-borders-for-social-media-photos-for-2024/"><u>[Updated] Frame It Right Selecting the Perfect Borders for Social Media Photos for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-fusing-frequencies-smoothly-with-logic-pro-x-methods-for-2024/"><u>[Updated] Fusing Frequencies Smoothly with Logic Pro X Methods for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-grasping-core-principles-in-narrative-designs/"><u>[Updated] Grasping Core Principles in Narrative Designs</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-bridging-content-and-commerce-a-youtubers-guide-to-sponsorship/"><u>[Updated] In 2024, Bridging Content and Commerce A Youtuber's Guide to Sponsorship</u></a></li>
+<li><a href="https://howto.techidaily.com/calls-on-honor-100-go-straight-to-voicemail-12-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Calls on Honor 100 Go Straight to Voicemail? 12 Fixes | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-review-how-the-poweradd-pilot-pro2-revolutionizes-charging-across-all-devices-especially-laptops/"><u>Expert Review: How the POWERADD Pilot Pro2 Revolutionizes Charging Across All Devices, Especially Laptops</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/giggle-generation-top-ten-templates-for-viral-effect-for-2024/"><u>Giggle Generation Top Ten Templates for Viral Effect for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/latest-toshiba-driver-downloads-compatible-with-all-windows-versions/"><u>Latest Toshiba Driver Downloads: Compatible with All Windows Versions</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/seamless-transition-from-windows-to-linux-mint-a-step-by-step-guide-for-enhanced-performance/"><u>Seamless Transition From Windows to Linux Mint: A Step-by-Step Guide for Enhanced Performance</u></a></li>
 </ul></div>
 

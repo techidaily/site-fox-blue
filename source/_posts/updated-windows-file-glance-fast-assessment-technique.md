@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Window's File Glance  Fast Assessment Technique\""
-date: 2024-08-22T18:29:10.872Z
-updated: 2024-08-23T18:29:10.872Z
+date: 2024-12-20T17:30:33.888Z
+updated: 2024-12-25T17:46:59.513Z
 tags: 
   - screen-recording
   - ai video
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/2bedac5967dc2670719be619f6173feb9adb05006
 
 Windows operating system comes with an inbuilt file preview feature embedded in Explorer. This feature lets you preview documents and images before uploading them on apps like Skype, Facebook, and more. But what happens if you want to preview videos, audio, spreadsheets, ZIP, and more? In that case, install **QuickLook for Windows**. So, what exactly is **QuickLook for Windows 10,** and where can you get this app? For answers and more, read to the end.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: Download Quick Look App on Microsoft Store
 
 If your computer is always handling documents, spreadsheets, PDFs, presentations, images, and other files, it’s probably time to install **QuickLook for Mac** and Windows. This intelligent program lets you quickly preview files without opening them on separate apps. Just think of it as the “file viewer” feature on Windows File Explorer, which allows you to view files before loading online or opening them on local apps. Of course, this can help you know which app can open the file and if it’s the correct file to open.
@@ -31,6 +35,10 @@ Below is how to install and use QuickLook by Paddy Xu:
 Step1 Open Microsoft Store and search for QuickLook. Make sure you select the option published by Paddy Xu.
 
 ![search for quicklook for windows on Microsoft store](https://images.wondershare.com/filmora/article-images/2022/09/quicklook-for-windows-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step2 Once you find QuickLook, click “Get it” to download and install the app in your Windows operating system. At around 60MB, installing this preview app should be quick and easy.
 
@@ -54,17 +62,22 @@ Step2 Scroll down and download the .msi file. After downloading the installation
 
 ![install the quicklook for windows msi](https://images.wondershare.com/filmora/article-images/2022/09/quicklook-for-windows-4.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step3 Now go back to the QuickLook GitHub home page and click [plugin](https://github.com/QL-Win/QuickLook/wiki/Available-Plugins). Then, download the plugins to add additional preview capabilities to Microsoft QuickLook. For example, install the FontViewer, FFmpeg, and OfficeViewer plugins by clicking the respective “Link” buttons.
 
 ![install quicklook for windows plugins](https://images.wondershare.com/filmora/article-images/2022/09/quicklook-for-windows-5.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step4 After a successful installation, find the file you want to preview and select it. Then, tap the space bar to preview the files. And remember, browse ZIP files to view all content.
 
 **Pro tip**: We recommend installing the QuickLook OfficeViewer plugin to rip open your Office files and view the content inside. This method is recommended if you haven’t installed Microsoft Office on your PC. However, you might notice that the OfficeViewer plugin isn’t supported on your Windows PC. So to install OfficeViewer, select the file and click the space bar to preview it on QuickLook. Then, tap the “Click here to install this plugin” button. Now restart QuickLook and view all your office documents without opening them on their respective programs.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 3: Should We Expect Built-in Quick Look on Windows in the Future?
 
 Mac users have enjoyed the powerful QuickLook capabilities for at least 15 years. But are we going to see QuickLook coming to Windows 10/11 anytime soon? According to sources, plans are already underway to add this feature to Microsoft Windows and rename it Peek. After selecting a file on Explorer, simply tap the Shift + Space bar to preview the content. Like the macOS version, you can preview PDFs, Excels, Words, images, videos, audio, and pretty much anything.
@@ -74,8 +87,9 @@ Meanwhile, it’s expected that QuickLook will come with a small preview screen.
 In other related news, Microsoft will be answering the prayers of their loyal patrons to get tabbed browsing. This is another feature similar to what you currently have on macOS, where you can open new tabs for numerous file locations. In return, this makes moving and copying files more straightforward. This easy-to-navigate addition will definitely make Microsoft Windows users more productive than before.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 4: Frequently Asked Questions
 
 #### 1\. Which digital file formats are compatible with QuickLook?
@@ -90,9 +104,6 @@ Unfortunately, Microsoft QuickLook doesn’t offer native support for E-books. B
 
 Now this is one of the primary advantages of using the Mac QuickLook. You can trim video and audio clips, rotate photos, and use markups directly on the program. We hope that the Windows version will add these convenient features as well.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Conclusion
 
 This guidepost is another testament that your PC has massive hidden abilities. With QuickLook for Windows, you can preview any document, image, or media file with a single click. And don’t forget to install the QuickLook plugins from GitHub to unlock the program’s full potential.
@@ -125,4 +136,24 @@ This guidepost is another testament that your PC has massive hidden abilities. W
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-the-art-of-captivating-6-powerful-video-genres-for-2024/"><u>[New] The Art of Captivating 6 Powerful Video Genres for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-complete-breakdown-the-dji-inspire-1-uav/"><u>[Updated] 2024 Approved Complete Breakdown The DJI Inspire 1 UAV</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-free-photo-enhancer-online-and-app-for-mobile-phone-for-2024/"><u>[Updated] Free Photo Enhancer Online and App for Mobile Phone for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-acoustiquest-investigating-soundscape/"><u>[Updated] In 2024, AcoustiQuest Investigating Soundscape</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-uncover-clarity-a-detailed-guide-to-purging-backgrounds-with-affinity/"><u>[Updated] In 2024, Uncover Clarity A Detailed Guide to Purging Backgrounds with Affinity</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-the-artistic-eye-with-toolwiz-an-in-depth-look-at-the-photosapp-2023-edition-for-2024/"><u>[Updated] The Artistic Eye with Toolwiz An In-Depth Look at the PhotosApp, 2023 Edition for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-unleash-the-beats-try-these-free-web-scanners-for-2024/"><u>[Updated] Unleash the Beats Try These Free Web Scanners for 2024</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/2024-approved-jujutsu-kaisen-in-action-making-memorable-tiktok-videos/"><u>2024 Approved Jujutsu Kaisen in Action Making Memorable TikTok Videos</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-streamlined-strategy-for-igtv-and-instagram-story-integration/"><u>2024 Approved Streamlined Strategy for IGTV & Instagram Story Integration</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-the-ultimate-guide-to-in-frame-multimedia-experience-on-mac/"><u>2024 Approved The Ultimate Guide to In-Frame Multimedia Experience on Mac</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/explore-the-finest-15-video-cameras-for-vlogging-success-for-2024/"><u>Explore the Finest 15 Video Cameras for Vlogging Success for 2024</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-make-the-most-of-your-iphone-se-2020-lock-screen-with-notifications-drfone-by-drfone-ios/"><u>How to Make the Most of Your iPhone SE (2020) Lock Screen with Notifications? | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-from-black-and-white-to-richness-embracing-hdrs-power/"><u>In 2024, From Black and White to Richness Embracing HDR's Power</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-skype-recording-techniques-for-pc-mac-users/"><u>In 2024, Skype Recording Techniques for PC, Mac Users</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/say-goodbye-to-charger-woes-the-game-changing-20-anker-power-bank-reviewed-on-zdnet/"><u>Say Goodbye to Charger Woes: The Game-Changing $20 Anker Power Bank Reviewed on ZDNet</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/unleash-clarity-in-depth-tutorial-on-video-enhancer-22-for-2024/"><u>Unleash Clarity In-Depth Tutorial on Video Enhancer 2.2 for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/unlock-your-audio-cues-with-ease-windows-and-os-x-guide-to-srt/"><u>Unlock Your Audio Cues with Ease Windows & OS X Guide to SRT</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Harmonizing Sounds  First Lessons on Fades with Audition\""
-date: 2024-12-12T02:22:00.359Z
-updated: 2024-12-17T04:21:46.862Z
+date: 2024-12-20T21:26:10.156Z
+updated: 2024-12-25T19:12:08.988Z
 tags: 
   - screen-recording
   - ai video
@@ -27,10 +27,6 @@ Effects can be implemented at the same time by choosing them from the Effects me
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1\. Steps to Adobe Audition Fade In
 
 The multitrack view includes a comprehensive set of non-destructive editing tools and audio mixing. The changes you make in this mode have no effect on your original audio files. You can make multiple modifications to multitrack clips immediately, making it simple to quickly adjust a mix.
@@ -40,7 +36,7 @@ Consider adjusting the level of a clip to create it more audible. In audio trans
 ![start adobe audition audio edit](https://images.wondershare.com/filmora/article-images/2022/08/start-adobe-audition-audio-edit_.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 If you have audio that starts quite abruptly and you'd like to add a fade, Audition makes this very easy. Here are some steps to follow:
@@ -78,16 +74,16 @@ You can also split audio, adjust audio, replace the original audio of a video, a
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### **Steps to use [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) to fade audio:**
 
 * First, do the installation of Filmora software from the home screen and set the default procedure for a successful installation, and then open it. Now, to your timeline, add your desired audio file, and then, opt for double-clicking on the same for opening the Audio editing menu.
 * Drag the sliders and set fade-in along with fade-out effects.
 
 ![set effects](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * There is an alternative to this. You may opt for the selection of fade icons that is on the left and/or right side of the waveform portion so you are able to fade in and/or fade out faster.
 * At the starting point of an audio clip, opt for dragging the fade-in maker that is to the right side. Then, opt for the application of the fade-in effect.
@@ -96,7 +92,7 @@ You can also split audio, adjust audio, replace the original audio of a video, a
 ## Part 3\. Related FAQs
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1\. How do you fade in multitrack in Audition?
@@ -104,7 +100,7 @@ You can also split audio, adjust audio, replace the original audio of a video, a
 If you want to fade in and fade out two clips at the same time, then controlling just one track or multiple tracks will allow you to do fades on multiple audios inside the multitrack in Adobe Audition.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2\. How do you do a master fade in Audition?
@@ -116,7 +112,7 @@ Select the option of amplifying the effects i.e., amplitude and compression. Do 
 Fade-in and fade-out options are available in the top-left and right corners of the waveform. Right-clicking in the project panel will produce no ability to work in the audition. That option is called grey out. Whatever you want to look for won't work in this view.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -136,6 +132,10 @@ Adobe Audition has always been a powerful platform for audio editing. But as eve
 
 ![set effects](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * There is an alternative to this. You may opt for the selection of fade icons that is on the left and/or right side of the waveform portion so you are able to fade in and/or fade out faster.
 * At the starting point of an audio clip, opt for dragging the fade-in maker that is to the right side. Then, opt for the application of the fade-in effect.
 * Now, opt for the clip's end, and then, opt for dragging the fade-out maker i.e. to the left side. This is for the addition of a fade-out effect. There is one thing to keep in mind if you drag it further, the fade effect lasts for a longer time.
@@ -147,7 +147,7 @@ Adobe Audition has always been a powerful platform for audio editing. But as eve
 If you want to fade in and fade out two clips at the same time, then controlling just one track or multiple tracks will allow you to do fades on multiple audios inside the multitrack in Adobe Audition.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2\. How do you do a master fade in Audition?
@@ -190,24 +190,20 @@ Adobe Audition has always been a powerful platform for audio editing. But as eve
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-a-world-in-motion-discover-14-text-animation-creations/"><u>[New] 2024 Approved A World in Motion Discover 14 Text Animation Creations</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-comparing-m1-laptop-performance-in-air-vs-pro/"><u>[New] Comparing M1 Laptop Performance in Air Vs. Pro</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-faster-than-ever-revolutionary-methods-to-speed-up-fb-videos-for-2024/"><u>[New] Faster Than Ever Revolutionary Methods to Speed Up FB Videos for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-10plus-best-instagram-video-editor-for-pc-online-android/"><u>[New] In 2024, 10+ Best Instagram Video Editor for PC, Online, Android</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-journey-through-hdr-with-asuss-top-4k-professional-monitor/"><u>[New] Journey Through HDR with ASUS's Top 4K Professional Monitor</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-professional-secrets-to-flawless-photo-cropping-online/"><u>[New] Professional Secrets to Flawless Photo Cropping Online</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-find-the-perfect-skype-tone-from-these-sites/"><u>[Updated] 2024 Approved Find the Perfect Skype Tone From These Sites</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-vuze-media-player-open-source-multimedia-hub/"><u>[Updated] 2024 Approved Vuze Media Player Open Source Multimedia Hub</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-flash-frame-filmmaking-script-for-2024/"><u>[Updated] Flash Frame Filmmaking Script for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-horizontalvertical-selecting-facebook-video-format/"><u>[Updated] Horizontal/Vertical Selecting Facebook Video Format</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-mastering-the-art-of-invisible-viewership-on-instagram-live/"><u>[Updated] Mastering the Art of Invisible Viewership on Instagram Live</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-unleashing-the-future-of-action-recording-with-intova-for-2024/"><u>[Updated] Unleashing the Future of Action Recording With Intova for 2024</u></a></li>
-<li><a href="https://techtrends.techidaily.com/a-step-by-step-guide-engaging-in-twitter-conversations-successfully/"><u>A Step-by-Step Guide: Engaging in Twitter Conversations Successfully</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ing-a-director-top-film-tips-and-tricks-on-youtube/"><u>Becoming a Director Top Film Tips & Tricks on YouTube</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/encompassing-views-vs-enhanced-visual-depth/"><u>Encompassing Views vs Enhanced Visual Depth</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-excellence-in-4k-leading-blu-ray-players-compared/"><u>In 2024, Excellence in 4K Leading Blu-Ray Players Compared</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-my-spouse-from-spying-on-my-xiaomi-mix-fold-3-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop My Spouse from Spying on My Xiaomi Mix Fold 3 | Dr.fone</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/updated-2024-approved-best-mac-mkv-cutters-top-picks/"><u>Updated 2024 Approved Best Mac MKV Cutters Top Picks</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/windows-update-fresh-start-procedure/"><u>Windows Update Fresh Start Procedure</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-color-depth-from-rgb-to-srgb/"><u>[New] 2024 Approved Color Depth From Rgb to Srgb</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-avoiding-miscommunication-on-google-meet-best-practices-for-2024/"><u>[New] Avoiding Miscommunication on Google Meet Best Practices for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-vibing-mix-melodies-into-status-updates/"><u>[New] In 2024, Vibing Mix Melodies Into Status Updates</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-microsoft-unveils-hololens-the-augmented-reality-evolution/"><u>[Updated] 2024 Approved Microsoft Unveils HoloLens The Augmented Reality Evolution</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-elevating-visuals-with-acoustic-elements/"><u>[Updated] Elevating Visuals with Acoustic Elements</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-choosing-the-right-horizon-smart-strategies-for-buying-an-impressive-4k-display/"><u>[Updated] In 2024, Choosing the Right Horizon Smart Strategies for Buying an Impressive 4K Display</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-comprehensive-exploration-of-vsco-image-processing/"><u>[Updated] In 2024, Comprehensive Exploration of VSCO Image Processing</u></a></li>
+<li><a href="https://fox-search.techidaily.com/discover-top-rated-registries-near-you-with-our-easy-locator-tool/"><u>Discover Top-Rated Registries Near You with Our Easy Locator Tool</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/elite-cgi-green-screen-tutorial-for-kinemaster-enthusiasts/"><u>Elite CGI Green Screen Tutorial for Kinemaster Enthusiasts</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/enhance-your-digital-images-on-macos-and-linux-using-darktable-the-top-freely-available-raw-photo-processing-tool/"><u>Enhance Your Digital Images on macOS and Linux Using Darktable, the Top Freely Available RAW Photo Processing Tool</u></a></li>
+<li><a href="https://win-answers.techidaily.com/five-simple-steps-to-correct-microsoft-words-common-execution-error/"><u>Five Simple Steps to Correct Microsoft Word's Common Execution Error</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-reset-a-locked-tecno-spark-10-4g-phone-by-drfone-android/"><u>How to Reset a Locked Tecno Spark 10 4G Phone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-xiaomi-14-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Can Life360 Track Or See Text Messages? What Can You Do with Life360 On Xiaomi 14 Pro? | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-social-synergy-from-insta-to-the-world-of-tiktok/"><u>In 2024, Social Synergy From Insta to the World of TikTok</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-the-social-media-elite-playbook-cultivate-your-stardom-in-9-easy-steps/"><u>In 2024, The Social Media Elite Playbook Cultivate Your Stardom in 9 Easy Steps</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Perfecting Your Project's Proportions with Aspect Ratio"
-date: 2024-08-22T18:24:14.243Z
-updated: 2024-08-23T18:24:14.243Z
+date: 2024-12-19T22:41:59.584Z
+updated: 2024-12-25T16:12:32.617Z
 tags: 
   - screen-recording
   - ai video
@@ -24,6 +24,10 @@ If you want to learn more about video aspect ratios, how to apply them to differ
 
 With that said, let's dive right into it!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. What is a video aspect ratio?
 
 Aspect ratio is a digital image projection attribute describing the distance between the width and the height of an image. The dimensions are also defined as shapes such as a square which is 4:3\. A rectangle represents the 16:9 standard high definition aspect ratio, and inverted what you see on phones, that will be 9:16\. 9 refers to the width and 16 to the height.
@@ -32,16 +36,13 @@ Aspect ratio is a digital image projection attribute describing the distance bet
 
 There is no same aspect ratio that is used across all social media platforms. Depending on which social media platform you are planning to upload, you have to make sure you have the correct aspect ratio for your target audience. The optimal viewing experience is what matters.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
-<!-- affiliate ads end -->
 ### 16:9 Widescreen
 
 This aspect ratio is recognized as the worldwide reference format for film, mobile devides, DSLR cameras, streaming platforms, social media platforms, and many more. It is known as landscape viewing which include 720p, 1080p HD and 4K resolution.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 4:3 Standard
 
@@ -56,8 +57,9 @@ The 9:16 aspect ratio has become the mainstream resolution for smartphones for e
 The 21:9 resolution is designed for filming ultra-wide screen movies that gives the viewer a theater-like feeling. It's mostly used to display films and movies in anamorphic formats. Just like on ultra-wide monitors, it allows the video to be shown across the entire screen, giving you a cinema-like experience. This resolution contributes to a broader viewing experience in any shape or form.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 3\. Which aspect ratio should I choose?
 
 Depending on your project, broadcast location and filming options, here you can find an overview of which platforms are using which resolutions and how you can use that to improve your filming and viewer experience.
@@ -74,9 +76,6 @@ Facebook is one of the most used website across the world on both computer and t
 
 9:16 for Facebook stories
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
-<!-- affiliate ads end -->
 ### YouTube
 
 To this day, it's safe to say that YouTube is the leading platform in the video industry. Not only because of how long they have been around, but also about how much content is uploaded every minute and how many users it has each month. To give the viewers the best experience, here are the top aspect ratios we recommend when posting content onto your YouTube channel.
@@ -89,9 +88,6 @@ To this day, it's safe to say that YouTube is the leading platform in the video 
 
 21:9 for cinematic videos/shortfilms
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Instagram
 
 When talking about Instagram, which is very similar to Facebook, use these aspect ratios to ensure that your quality will be the best of the best.
@@ -120,24 +116,26 @@ Before Musical.ly users were migrated to a new platform called TikTok in 2018, i
 
 1:1; 16:9 or 9:16 for TikTok advertisements
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 4\. How to adjust the aspect ratio of a video?
 
 A very important point we'd like to mention is that we don't recommend changing the aspect ratio after filming, because it could harm the video quality and we think it's best to choose the aspect ratio on your phone or camera before filming, besides that we have some great tips for optimizing your video for the watching experience below.
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Black bars
 
 When editing your video, adding black bars is not changing the aspect ratio as you are just adding black bars to the screen. What we do recommend is cropping the video until you get the desired result. Adding black bars won't automatically make the platform adjust the video and it will affect the viewer experience.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Cropping
 
 Cropping your video will allow you to remove a section from your video, which works perfect for unwanted objects or people. While cropping the video, you are forced to pick the essential part of your video and disregard the rest of the video and to remove distraction from the frame.
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Conclusion
 
 Having your video tested on multiple devices will allow you to see a preview of what the viewer will see and make necessary changes if needed. When your video looks perfect, you can be sure that it will give a seamless experience across all platforms, without the fear of losing video quality.
@@ -172,4 +170,21 @@ Having your video tested on multiple devices will allow you to see a preview of 
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-action-replay-gopro-hero5-black-meets-hero4-silver-edition/"><u>[New] 2024 Approved Action Replay GoPro Hero5 Black Meets Hero4 Silver Edition</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-heartfelt-outro-samples-your-budget-our-designs/"><u>[New] 2024 Approved Heartfelt Outro Samples Your Budget, Our Designs</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-gnasher-no-cost-and-paid-alternatives-to-lightroom-for-2024/"><u>[New] Gnasher No-Cost & Paid Alternatives to Lightroom for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-secrets-revealed-streamlined-importation-on-windows-10-os-for-2024/"><u>[New] Secrets Revealed Streamlined Importation on Windows 10 OS for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-2024-approved-how-to-easily-and-quickly-draw-on-photos-app-in-windows-10/"><u>[Updated] 2024 Approved How to Easily and Quickly Draw on Photos App in Windows 10</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-do-reviewers-receive-payments-online/"><u>[Updated] In 2024, Do Reviewers Receive Payments Online?</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-duplex-monitoring-transcription/"><u>[Updated] In 2024, Duplex Monitoring Transcription</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-the-new-face-of-sony-updates-to-s6500-blu-rayhd-player/"><u>[Updated] The New Face of Sony Updates to S6500 Blu-Ray/HD Player</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-the-next-step-after-vlc-top-media-players-reviewed/"><u>2024 Approved The Next Step After VLC - Top Media Players Reviewed</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/cultivating-a-brighter-home-with-outdoor-help/"><u>Cultivating a Brighter Home with Outdoor Help</u></a></li>
+<li><a href="https://win-fantastic.techidaily.com/how-to-fix-issues-with-your-pcs-audio-hardware-expert-tips-from-yl-computing/"><u>How to Fix Issues with Your PC's Audio Hardware: Expert Tips From YL Computing</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-symphonic-streams-exclusive-sites-for-downloadable-tones/"><u>In 2024, Symphonic Streams Exclusive Sites for Downloadable Tones</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/the-best-ispoofer-alternative-to-try-on-infinix-note-30-pro-drfone-by-drfone-virtual-android/"><u>The Best iSpoofer Alternative to Try On Infinix Note 30 Pro | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/top-ranked-5-backdrop-change-apps-for-iphones-x-8-7-for-2024/"><u>Top-Ranked 5 Backdrop Change Apps for iPhones (X, 8, 7) for 2024</u></a></li>
+</ul></div>
 

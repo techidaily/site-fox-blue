@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Effective Strategies to Craft Influential Patient Stories on Film\""
-date: 2024-12-13T21:28:38.087Z
-updated: 2024-12-16T22:17:48.687Z
+date: 2024-12-23T17:26:49.231Z
+updated: 2024-12-25T19:29:37.676Z
 tags: 
   - screen-recording
   - ai video
@@ -29,6 +29,10 @@ If you want to learn how to create video testimonials that convert, then this po
 
 ![identify your perfect customer](https://images.wondershare.com/filmora/article-images/2022/07/identify-your-perfect-customer.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The first key tactic to creating a perfect testimonial video is identifying your perfect customer. The more you know about the type of person who will benefit the most from using your product or service, the better you can tailor your video content to speak directly to them.
 
 It may seem like a daunting task, but there are several ways you can go about defining who this person is:
@@ -46,7 +50,7 @@ It may seem like a daunting task, but there are several ways you can go about de
 * If there's no good reason for asking a question then don't! For example: "How was your experience with our website?"
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Include Strong Opinions
@@ -54,7 +58,7 @@ It may seem like a daunting task, but there are several ways you can go about de
 ![include strong opinion](https://images.wondershare.com/filmora/article-images/2022/07/include-strong-opinion.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Use the word “I”.
@@ -68,7 +72,7 @@ It may seem like a daunting task, but there are several ways you can go about de
 ![keep video short and sweet](https://images.wondershare.com/filmora/article-images/2022/07/keep-video-short-and-sweet.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 When creating your video testimonial, you want to keep it short and sweet. After all, that's the point of using video testimonials in the first place! Make sure you have a tight script with a few specific questions written down. You should also plan out how you're going to arrange these questions into a flow.
@@ -86,16 +90,12 @@ Lighting, sound, and video quality matter.
 This is a given. If you want your testimonial videos to be effective and believable, they need to be properly lit, recorded with good audio quality, and captured in high resolution. While these may seem like obvious must-haves for any video production project—and they are—it's important to remember that there are many factors at play when it comes to how your audience will perceive the final product.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Really Listen to Your Prospects
 
 ![listen to your prospects](https://images.wondershare.com/filmora/article-images/2022/07/listen-to-your-prospects.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 When you're listening to your customers, don't just take notes on what they say. Also, look at their body language and eye movement. This can tell you a lot about whether they are telling the truth or not, and it will give you an idea of what may be going on in their head.
 
@@ -143,16 +143,18 @@ If you're looking to boost your sales with testimonial videos, then you need to 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-the-impact-of-testimonial-videos-today/"><u>[New] 2024 Approved The Impact of Testimonial Videos Today</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-sneak-peek-to-secrecy-how-to-create-hidden-stories-for-2024/"><u>[New] Sneak Peek to Secrecy How to Create Hidden Stories for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-the-complete-guide-to-drone-racing-plus-high-speed-fpv-drones-for-2024/"><u>[New] The Complete Guide to Drone Racing + High-Speed FPV Drones for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-charting-your-course-in-youtubing-dodge-these-top-8-common-missteps/"><u>[Updated] 2024 Approved Charting Your Course in YouTubing Dodge These Top 8 Common Missteps</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-noble-tunes-archiver-android-edition/"><u>[Updated] In 2024, Noble Tunes Archiver, Android Edition</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-leading-websites-for-superior-vector-images-for-2024/"><u>[Updated] Leading Websites for Superior Vector Images for 2024</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/3-ways-to-erase-iphone-6-plus-when-its-locked-within-seconds-drfone-by-drfone-ios/"><u>3 Ways to Erase iPhone 6 Plus When Its Locked Within Seconds | Dr.fone</u></a></li>
-<li><a href="https://win11.techidaily.com/explore-versatility-the-best-10-uses-for-windows-powertoys-tools/"><u>Explore Versatility: The Best 10 Uses for Windows PowerToys Tools</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-reset-a-vivo-s17e-phone-that-is-locked-by-drfone-android/"><u>How to Reset a Vivo S17e Phone that is Locked?</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-unleashing-potential-with-the-powerful-polaroid-xs-100i/"><u>In 2024, Unleashing Potential with the Powerful Polaroid XS 100I</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/legal-compliant-recording-your-pathway-to-secure-skype-call-management-for-2024/"><u>Legal-Compliant Recording Your Pathway to Secure Skype Call Management for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-echoed-calls-recorder-iphone-model-2024/"><u>[New] Echoed Calls Recorder - iPhone Model 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-unwavering-pictures-vivid-videos/"><u>[New] In 2024, Unwavering Pictures, Vivid Videos</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-mac-users-speak-out-the-real-impact-of-screenflow-software-for-2024/"><u>[New] Mac Users Speak Out The Real Impact of ScreenFlow Software for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-how-to-choose-between-portable-and-plugged-in-virtual-reality-whats-your-preference-wireless-or-connected/"><u>[Updated] 2024 Approved How to Choose Between Portable and Plugged-In Virtual Reality What's Your Preference, Wireless or Connected?</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-leading-video-tech-best-cameras-s-musical-scenes/"><u>[Updated] 2024 Approved Leading Video Tech Best Cameras 'S Musical Scenes</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-enhancing-aerial-video-the-best-gimbals-reviewed-for-2024/"><u>[Updated] Enhancing Aerial Video The Best Gimbals Reviewed for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/clear-and-bright-optimizing-visuals-in-zoom-calls/"><u>Clear and Bright Optimizing Visuals in Zoom Calls</u></a></li>
+<li><a href="https://howto.techidaily.com/google-play-services-wont-update-12-fixes-are-here-on-oneplus-open-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Google Play Services Wont Update? 12 Fixes are Here on OnePlus Open | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-change-netflix-location-to-get-more-country-version-on-vivo-y78plus-drfone-by-drfone-virtual-android/"><u>How to Change Netflix Location to Get More Country Version On Vivo Y78+ | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-10-top-inspirational-movies-for-personal-power-boosts/"><u>In 2024, 10 Top Inspirational Movies for Personal Power Boosts</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/in-2024-boosting-video-visibility-by-sending-imovie-content-to-vimeo/"><u>In 2024, Boosting Video Visibility by Sending iMovie Content to Vimeo</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/passfab-apple-iphone-6-plus-backup-unlocker-top-4-alternatives-drfone-by-drfone-ios/"><u>PassFab Apple iPhone 6 Plus Backup Unlocker Top 4 Alternatives | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/step-by-step-guide-to-youtube-video-enhancement-with-wmm-for-2024/"><u>Step-by-Step Guide to YouTube Video Enhancement with WMM for 2024</u></a></li>
 </ul></div>
 

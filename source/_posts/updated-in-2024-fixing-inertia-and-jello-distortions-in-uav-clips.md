@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Fixing Inertia and Jello Distortions in UAV Clips"
-date: 2024-12-15T23:10:48.564Z
-updated: 2024-12-17T01:36:10.571Z
+date: 2024-12-22T20:23:42.438Z
+updated: 2024-12-25T16:01:32.396Z
 tags: 
   - screen-recording
   - ai video
@@ -34,7 +34,7 @@ When we talk about flight FPV quadcopters then Jello Effect appears like biggest
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What is Rolling Shutter
@@ -42,7 +42,7 @@ When we talk about flight FPV quadcopters then Jello Effect appears like biggest
 First of all we need to discus about the major terms like rolling shutter effect etc. You might be aware of the fact that sensors can be designed with rolling shutter as well as with a global shutter. This rolling shutter is able to capture footage with better scanning on every part of image due to installed CMOS sensor. Generally, the global shutters are capable enough to manage entire frame at the same time but rolling shutters start scanning from top to bottom and hence they leave various visual artefacts in between. In simple words, it is not able to capture top and bottom portion of shot at same moment hence images appear skewed.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What is Jello Effect
@@ -54,7 +54,7 @@ Now, you might be thinking hard that when global shutters are able to serve with
 Further, global shutters are not able to achieve the DR value same as rolling shutters hence they cannot be applied for handheld recording needs, visual effects or for action scenes.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Remove Jello Effect from Drone Videos?
@@ -92,7 +92,7 @@ Check this video tutorial to see how to remove jello effect with Adobe Premiere
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Max Wales
@@ -120,18 +120,14 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-mov-storage-techniques-a-windows-10-perspective/"><u>[New] .mov Storage Techniques A Windows 10 Perspective</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-srt-to-sub-shift-expert-strategies-and-actions/"><u>[New] SRT to SUB Shift Expert Strategies & Actions</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-charting-uncharted-territories-with-jaunt-vr/"><u>[Updated] 2024 Approved Charting Uncharted Territories with Jaunt VR</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-mastering-language-free-top-8-srt-translation-websites/"><u>[Updated] 2024 Approved Mastering Language Free, Top 8 SRT Translation Websites</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-pushing-boundaries-merging-hdr-photos-with-lightroom-for-2024/"><u>[Updated] Pushing Boundaries Merging HDR Photos with Lightroom for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/best-affordable-cameras-for-aspiring-pros-2024/"><u>Best Affordable Cameras For Aspiring Pros 2024</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-unlock-honor-magic-vs-2-phone-without-password-by-drfone-android/"><u>How To Unlock Honor Magic Vs 2 Phone Without Password?</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-dive-deep-into-smooth-aquatic-footage-top-tips-unveiled/"><u>In 2024, Dive Deep Into Smooth Aquatic Footage Top Tips Unveiled</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/in-2024-streamlining-your-presentations-vimeo-video-embedding-in-powerpoint/"><u>In 2024, Streamlining Your Presentations Vimeo Video Embedding in PowerPoint</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/introducing-stable-diffusion-xl-v10-a-new-era-of-improved-digital-artistry-begins/"><u>Introducing Stable Diffusion XL v1.0 - A New Era of Improved Digital Artistry Begins</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782443-9781591438021-the-healing-power-of-the-sacred-woman/"><u>The Healing Power of the Sacred Woman | Free Book</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ultimate-guide-discover-the-6-most-effective-virus-protectors-for-iphone-users/"><u>Ultimate Guide: Discover the 6 Most Effective Virus Protectors for iPhone Users</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-features-in-sony-blu-ray-player-s6700-for-2024/"><u>Updated Features in Sony Blu-Ray Player S6700 for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-sound-to-scripture-top-pick-offline-recognition-software/"><u>[New] In 2024, Sound to Scripture Top Pick Offline Recognition Software</u></a></li>
+<li><a href="https://some-tips.techidaily.com/new-unlocking-true-tints-and-shades-in-photos/"><u>[New] Unlocking True Tints and Shades in Photos</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-reveling-in-the-highs-of-nature-with-garmins-ultra-30/"><u>[Updated] In 2024, Reveling in the Highs of Nature with Garmin's Ultra 30</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-step-by-step-guide-to-the-ultimate-photo-editing-with-facetune-2e-for-2024/"><u>[Updated] Step-by-Step Guide to the Ultimate Photo Editing with Facetune (2E) for 2024</u></a></li>
+<li><a href="https://location-fake.techidaily.com/a-detailed-guide-on-faking-your-location-in-mozilla-firefox-on-infinix-note-30-drfone-by-drfone-virtual-android/"><u>A Detailed Guide on Faking Your Location in Mozilla Firefox On Infinix Note 30 | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-ultimate-workflow-for-embedding-subtitle-track-in-mp4s/"><u>In 2024, Ultimate Workflow for Embedding Subtitle Track in MP4s</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/openai-bids-farewell-to-sam-altman-whats-next-for-the-acclaimed-chatgpt/"><u>OpenAI Bids Farewell to Sam Altman; What's Next for the Acclaimed ChatGPT?</u></a></li>
+<li><a href="https://fox-zero.techidaily.com/top-video-format-transformations-on-windows-10-the-ultimate-list/"><u>Top Video Format Transformations on Windows 10: The Ultimate List</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/upcoming-redesign-of-your-uber-application-essential-insights-revealed-by-zdnet/"><u>Upcoming Redesign of Your Uber Application: Essential Insights Revealed by ZDNet</u></a></li>
 </ul></div>
 

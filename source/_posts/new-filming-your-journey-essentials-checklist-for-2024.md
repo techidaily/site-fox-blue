@@ -1,7 +1,7 @@
 ---
 title: "[New] Filming Your Journey – Essentials Checklist for 2024"
-date: 2024-12-12T04:19:26.468Z
-updated: 2024-12-16T17:43:22.844Z
+date: 2024-12-21T19:49:59.801Z
+updated: 2024-12-25T22:08:43.455Z
 tags: 
   - screen-recording
   - ai video
@@ -27,6 +27,10 @@ From the very beginning, when I started travel vlogging, I mentioned in my previ
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Travel Gear and Equipment: Are They Good Investments?
 
 Is it worth it? Is it really necessary to upgrade a travel video? Will my money does not go to waste? These are the few questions that I asked myself before buying new equipment. This is my simple answer, we don't need a high-priced camera or gears for us to do travel vlogging, I think a good story and your editing skills are enough and will get you by. But when the time comes that you are ready to climb the ladder and create an extraordinary sequence, with vivid colors, better sharpness, creamy bokeh effect, the macro shot, that panoramic shot or smooth time lapse, hyper lapse, or maybe you will use it in a low light situation or any kind of good angles. Get up from your seat now! Do your research and find the best equipment that will suit your taste. Consider buying something that will conform to your needs, is durable, convenient to use, and most importantly, cost that is within your budget. I didn't think about earning money when I started to buy my equipment; I am more on creating memories because they will last forever and I consider that as a souvenir from that time and place.
@@ -39,19 +43,11 @@ First off, I've got a mobile phone, mirrorless camera, action camera, gimbal, tr
 
 The next gadget that I want to get my hands on, A DRONE. I'm still saving, and surely, I will get that soon. First, let me explain why I got those types of equipment…
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1\. Vlogging Camera (Mirrorless Camera)
 
 Sony a6400 is an APS-C mid-range compact camera that I use for vlogging and cinematic shots. It is specially made for beginners; it has a lot of cool features and at a reasonable price. What I love about this is the flip screen, and I found it very exceptional for vlogging. You can also use 4k resolution with this camera. For me, the only issue with this camera is the image stabilization but it's not that significant, because of the **[Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)**. This app offers the stabilization option that provides a smoothness level and it will be better than the raw or original clip footage of your video. Lastly, it is compact, handy and I highly recommend this.
 
 ![travel vlog camera](https://images.wondershare.com/filmora/article-images/2022/07/travel-vlog-camera.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\. Lenses
 
@@ -64,7 +60,7 @@ Nowadays, many filmmakers and famous vloggers are using gimbals. We often use th
 ![vlog gimbal](https://images.wondershare.com/filmora/article-images/2022/07/vlog-gimbal.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 4\. Action Camera
@@ -74,7 +70,11 @@ This is one of my favorite pieces of equipment and frequently used camera, the G
 ![action camera](https://images.wondershare.com/filmora/article-images/2022/07/action-camera.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 5\. Batteries, External SSD, and Memory card
@@ -84,7 +84,7 @@ In any case, we needed a few accessories to support our equipment better. Simple
 ![battery ssd card](https://images.wondershare.com/filmora/article-images/2022/07/battery-ssd-card.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 6\. Laptop, desktop, or phone for editing
@@ -94,7 +94,7 @@ In my own experience, every time I go out and visit different places, I always h
 ![laptop devices](https://images.wondershare.com/filmora/article-images/2022/07/laptop-devices.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For Win 7 or later(64-bit)
@@ -110,7 +110,7 @@ click on new project
 ![new project](https://images.wondershare.com/filmora/guide/get-started-with-filmora-01.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ##### Step2IMPORT FILES
@@ -124,6 +124,10 @@ from there you can choose and select which video you would like to import
 just drag and drop simple as that
 
 ![drag and drop](https://images.wondershare.com/filmora/guide/get-started-with-filmora-03.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ##### Step4STABILIZING THE VIDEO
 
@@ -152,10 +156,6 @@ So, all in all, those are the equipment and gears that I use for any travel vlog
 click on new project
 
 ![new project](https://images.wondershare.com/filmora/guide/get-started-with-filmora-01.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ##### Step2IMPORT FILES
 
@@ -211,18 +211,20 @@ So, all in all, those are the equipment and gears that I use for any travel vlog
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-2024-approved-screencast-savvy-a-comprehensive-examination-of-techniques-and-tools/"><u>[New] 2024 Approved Screencast Savvy A Comprehensive Examination of Techniques & Tools</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-amplify-imagery-with-simple-grading-tricks/"><u>[New] Amplify Imagery with Simple Grading Tricks</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-narrative-innovation-weaving-stories-through-movies-and-animations/"><u>[New] Narrative Innovation Weaving Stories Through Movies and Animations</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-transforming-your-igtv-presence-with-new-covers-for-2024/"><u>[New] Transforming Your IGTV Presence with New Covers for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-capturing-the-thrill-hero5-black-against-hero4-silver/"><u>[Updated] Capturing the Thrill Hero5 Black Against Hero4 Silver</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-in-depth-review-of-splitcam-leading-camera-tech-for-2024/"><u>[Updated] In-Depth Review of SplitCam Leading Camera Tech for 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/best-methods-for-poco-m6-pro-4g-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Best Methods for Poco M6 Pro 4G Wont Turn On | Dr.fone</u></a></li>
-<li><a href="https://driver-download.techidaily.com/easy-guide-to-downloading-and-installing-hp-deskjet-2600-drivers-on-windows-7-8-or-10/"><u>Easy Guide to Downloading and Installing HP DeskJet 2600 Drivers on Windows 7, 8 or 10</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-to-come-up-with-the-best-pokemon-team-on-motorola-moto-g04-drfone-by-drfone-virtual-android/"><u>How to Come up With the Best Pokemon Team On Motorola Moto G04? | Dr.fone</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-navigating-vlcs-features-for-mp4-and-diverse-format-changes/"><u>In 2024, Navigating VLC's Features for MP4 & Diverse Format Changes</u></a></li>
-<li><a href="https://discover-fantastic.techidaily.com/maximizing-windows-efficiency-effective-methods-to-free-up-memory-for-apps-by-yl-computing-and-yl-software/"><u>Maximizing Windows Efficiency: Effective Methods to Free Up Memory for Apps - By YL Computing & YL Software</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/quick-quirks-of-professional-photo-editing/"><u>Quick Quirks of Professional Photo Editing</u></a></li>
-<li><a href="https://iphone-transfer.techidaily.com/switch-cards-between-apple-iphone-12-pro-max-and-other-iphones-will-move-all-phone-services-drfone-by-drfone-transfer-from-ios/"><u>Switch Cards Between Apple iPhone 12 Pro Max and other iPhones Will Move All Phone Services? | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-is-financial-compensation-behind-product-evaluations/"><u>[New] In 2024, Is Financial Compensation Behind Product Evaluations?</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-integrating-automatic-speech-conversion-into-powerpoint-presentations/"><u>[New] Integrating Automatic Speech Conversion Into PowerPoint Presentations</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/tep-by-step-for-classic-film-aesthetics/"><u>[New] Step-by-Step for Classic Film Aesthetics</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-unleash-creativity-with-these-top-free-slideshow-templates/"><u>[Updated] 2024 Approved Unleash Creativity with These Top Free Slideshow Templates</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-create-the-best-canon-time-lapse-video-for-2024/"><u>[Updated] Create the Best Canon Time-Lapse Video for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-perfecting-pics-a-full-guide-to-facetune-mastery/"><u>[Updated] Perfecting Pics - A Full Guide to Facetune Mastery</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/cutting-edge-video-editing-on-ios-and-android-devices/"><u>Cutting-Edge Video Editing on iOS and Android Devices</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/embrace-the-newly-free-gpt-4-era-dont-overlook-these-6-persuasive-benefits-for-upgrading-to-chatgpt-plus/"><u>Embrace the Newly Free GPT-4 Era - Don't Overlook These 6 Persuasive Benefits for Upgrading to ChatGPT Plus!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-extollo-lansocket-1500-exceptional-performance-with-rapid-data-transfer-and-reduced-delay/"><u>Exploring the Extollo LANSocket 1500: Exceptional Performance with Rapid Data Transfer & Reduced Delay</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-spends-5-million-attracting-journalists-to-its-substack-rival/"><u>Facebook Spends $5 Million Attracting Journalists to Its Substack Rival</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/guide-on-how-to-change-your-apple-id-email-address-on-apple-iphone-13-pro-max-by-drfone-ios/"><u>Guide on How To Change Your Apple ID Email Address On Apple iPhone 13 Pro Max</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-step-up-your-home-cinema-game-with-these-essential-tips/"><u>In 2024, Step Up Your Home Cinema Game with These Essential Tips</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/optimal-zoom-techniques-enhance-photos-and-videos-with-simple-steps-for-2024/"><u>Optimal Zoom Techniques Enhance Photos & Videos with Simple Steps for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/transforming-your-dvds-10-effective-methods-to-convert-to-mp4-format-on-windows-and-mac-os/"><u>Transforming Your DVDs: 10 Effective Methods to Convert to MP4 Format on Windows and Mac OS</u></a></li>
+<li><a href="https://program-issues.techidaily.com/ultimate-fixes-for-assassins-creed-syndicate-crashes-expert-advice/"><u>Ultimate Fixes for Assassin's Creed Syndicate Crashes - Expert Advice</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Optimizing Unused Scenes  A Filmmaker's Approach\""
-date: 2024-12-13T19:06:09.903Z
-updated: 2024-12-16T21:31:12.991Z
+date: 2024-12-20T18:56:32.686Z
+updated: 2024-12-25T17:29:13.763Z
 tags: 
   - screen-recording
   - ai video
@@ -38,7 +38,7 @@ B roll can be utilized for establishing shots as well as close-ups of items. It 
 For instance, wider shots are frequently used when someone is giving a speech while seated behind a podium so that we can see both them and their surroundings, such as audience members standing close and applauding or security personnel.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2\. Methods to use b roll
@@ -50,7 +50,7 @@ The ideal way to use B roll is to put it behind interviews. This kind of footage
 On the other hand, cutaways can show how different people react to what is being said in an interview. After all, transitions are commonly used to switch from one person's experience with a certain topic to another person's experience with the same topic. All of these different kinds of footage give filmmakers and videographers more freedom to tell their stories without relying too much on dialogue or narration.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3\. What types of b roll are there?
@@ -74,7 +74,7 @@ B roll footage can be used to tell a story that supports the narrative of your v
 This particular kind of B roll film is captured without any direction being given to your character, as the name suggests. For the purposes of an interview video, for instance, these can be straightforward close-up views of your character's hands and facial expressions. On the other hand, while you're doing a documentary, you might record your subject participating in everyday activities.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 5\. Atmospheric b roll footage
@@ -84,7 +84,7 @@ When you are sharing a narrative that has been told in the past or that has hist
 Have a look at the scenes from the episode "14 Peaks: Nothing Is Impossible" that can be found on Netflix. As a result of the use of archive film footage of b roll from the relevant time period in its production, the audience is able to connect with the narrative on a deeper level.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 6\. Pick-up shots
@@ -94,7 +94,7 @@ A pick-up is a tiny shot added to previously captured material. Re-shoots involv
 If flaws were discovered during primary photography, the directors could have requested another take. The producer and director should weigh the cost of rejoining cast and crew against the need for pick-ups or re-shoots to address storyline flaws (or worse) in the final edit.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 7\. A roll vs b roll
@@ -135,24 +135,20 @@ We sincerely hope that this post will be of use to you in making your films more
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-the-best-free-speech-to-text-apps-on-mac-you-might-missed/"><u>[New] 2024 Approved The Best Free Speech to Text Apps on Mac You Might Missed</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-elite-conference-name-builder-for-2024/"><u>[New] Elite Conference Name Builder for 2024</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/new-fast-track-video-scaling-for-perfect-mac-display-for-2024/"><u>[New] Fast-Track Video Scaling for Perfect Mac Display for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-hand-tracking-explained-types-and-applications-for-2024/"><u>[New] Hand Tracking Explained Types and Applications for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/n-2024-navigating-youtubes-subtitlecc-landscape-with-expertise-and-speed/"><u>[New] In 2024, Navigating YouTube's Subtitle/CC Landscape with Expertise and Speed</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-opening-lines-breaking-the-ice-in-video-comments/"><u>[New] Opening Lines Breaking the Ice in Video Comments</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-the-ultimate-7-fps-gaming-list/"><u>[New] The Ultimate 7 FPS Gaming List</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-customizing-characters-the-ae-font-guide/"><u>[Updated] 2024 Approved Customizing Characters The AE Font Guide</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-exclusive-12-video-hourly-livestream-service/"><u>[Updated] Exclusive 12 Video Hourly Livestream Service</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-prime-places-to-find-high-quality-vectors/"><u>[Updated] Prime Places to Find High-Quality Vectors</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-top-premier-sound-storylines/"><u>2024 Approved Top Premier Sound Storylines</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-unlocking-the-full-capabilities-of-zoom-on-windows-10-pcs/"><u>2024 Approved Unlocking The Full Capabilities of Zoom on Windows 10 PCs</u></a></li>
-<li><a href="https://win-answers.techidaily.com/how-to-correctly-deal-with-a-broken-steam-game-disc-in-minutes/"><u>How to Correctly Deal with a Broken Steam Game Disc in Minutes</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-display-apple-iphone-xs-screen-on-pc-easily-drfone-by-drfone-ios/"><u>How to Display Apple iPhone XS Screen on PC Easily? | Dr.fone</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/in-2024-audio-capturing-in-android-without-rooting-guide/"><u>In 2024, Audio Capturing in Android - Without Rooting [Guide]</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/navigating-tiny-worlds-5-ways-to-zoom-in-on-minecraft-for-2024/"><u>Navigating Tiny Worlds 5 Ways to Zoom In on Minecraft for 2024</u></a></li>
-<li><a href="https://fox-where.techidaily.com/prioritization-is-key-when-clients-have-multiple-issues-focus-on-urgency-and-impact/"><u>Prioritization Is Key when Clients Have Multiple Issues; Focus on Urgency and Impact.</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/updated-in-2024-s-ultimate-guide-to-time-lapse-video-editing-software/"><u>Updated In 2024, S Ultimate Guide to Time-Lapse Video Editing Software</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/winxvideoai-crea-reproducciones-aceleradas-para-videosaudios-usando-la-potencia-de-tu-gpu/"><u>WinxvideoAI: Crea Reproducciones Aceleradas Para Vídeos/Audios Usando La Potencia De Tu GPU</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-break-boundaries-get-free-vob-handling-toolset-pc-and-mac-for-2024/"><u>[New] Break Boundaries Get Free VOB Handling Toolset (PC & Mac) for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-picprankster-laughlens-lab/"><u>[New] PicPrankster LaughLens Lab</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-how-to-incorporate-your-podcast-into-app-store/"><u>[Updated] 2024 Approved How To Incorporate Your Podcast Into App Store</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-efficient-platforms-where-to-purchase-customized-youtube-vids-for-2024/"><u>[Updated] Efficient Platforms Where to Purchase Customized YouTube Vids for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-top-15-virtual-classrooms-for-aspiring-scientists/"><u>[Updated] Top 15 Virtual Classrooms for Aspiring Scientists</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-top-screen-capture-apps-for-idevices-for-2024/"><u>[Updated] Top Screen Capture Apps for iDevices for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-hubsan-h501s-x4-fpv-quadcopter-review/"><u>2024 Approved Hubsan H501S X4 FPV Quadcopter Review</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/comprehensive-guide-to-iphone-podcast-downloads/"><u>Comprehensive Guide to iPhone Podcast Downloads</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/cutting-through-the-clutter-androids-top-6-podcast-apps/"><u>Cutting Through The Clutter - Android's Top 6 Podcast Apps</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-immutable-disabling-routine-for-youtubes-quick-content/"><u>In 2024, Immutable Disabling Routine for YouTube’s Quick Content</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-streamlined-techniques-for-ios-image-sharing/"><u>In 2024, Streamlined Techniques for iOS Image Sharing</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-windows-11-video-editing-simplified-utilizing-storyremix-features/"><u>In 2024, Windows 11 Video Editing Simplified Utilizing StoryRemix Features</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/quick-fixes-for-why-is-my-google-pixel-fold-black-and-white-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Quick Fixes for Why Is My Google Pixel Fold Black and White | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/rectifying-windows-1011-store-error-code-0x800704cf/"><u>Rectifying Windows 10/11 Store Error: Code 0X800704CF</u></a></li>
+<li><a href="https://review-topics.techidaily.com/remove-google-frp-lock-on-nord-ce-3-5g-by-drfone-android-unlock-remove-google-frp/"><u>Remove Google FRP lock on Nord CE 3 5G</u></a></li>
 </ul></div>
 
