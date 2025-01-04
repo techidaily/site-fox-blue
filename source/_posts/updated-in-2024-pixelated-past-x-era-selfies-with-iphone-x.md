@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Pixelated Past  X-Era Selfies with iPhone X\""
-date: 2024-08-15T10:33:45.426Z
-updated: 2024-08-16T10:33:45.426Z
+date: 2025-01-02T21:24:43.628Z
+updated: 2025-01-03T21:22:43.766Z
 tags: 
   - screen-recording
   - ai video
@@ -30,14 +30,15 @@ Until recently, iPhone cameras didn't have lenses that enabled its users to prod
 
 In this article, we are going to show you how to take photos in Portrait Mode, on iPhone X, 8 Plus, and 7 Plus, but we are also going to take a look at a few apps for older versions of iPhone that also enable you to create amazing portraits.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Tips for iPhone portrait photos
 
 * [Part 1: For iPhone 7 Plus/8 Plus/X users](#part1)
 * [Part 1: For iPhone 8, 7 or older iPhones users](#part2)
 
-<!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### For iPhone 7 Plus/8 Plus/X users
 
  **Using the Portrait Mode on an iPhone**
@@ -57,8 +58,9 @@ Portrait mode enables you to set the timer, turn off the flash or apply photo fi
 The iPhone X can also take Portrait selfies thanks to the TrueDepth front camera system. Unlike the rear camera system, the front-facing camera doesn't have multiple physical camera lenses; instead, it uses sensors from the TrueDepth system to measure a precise depth map.
 
 ![portrait-mode-selfie-iphone-x](https://images.wondershare.com/filmora/article-images/portrait-mode-selfie-iphone-x.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Image resource: imore
@@ -68,8 +70,9 @@ Launch the Camera app, and swipe to the Portrait option, and then tap on the Cam
 If there is not enough light or if you are too far away from the camera, the app will show messages that remind you to add more light to your shot or hold the camera closer to the subject of the photo. It is worth noting that the app will not let you take a photo until you do everything that messages on the screen demand from you. However, the Portrait Mode doesn't allow you to take several photos at once, but it still produces amazing pictures that can be easily shared on social media.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### For iPhone 8, 7 or older iPhones users
 
 #### [FabFocus](https://itunes.apple.com/us/app/fabfocus-portraits-with-depth-and-bokeh/id1080434313?mt=8)
@@ -89,9 +92,6 @@ Older iPhone models may not have a twin-lens system, but with the aid of a camer
 **Compatible with:** iOS 8.0 or later
 
 ![iwatermark-watermark-photos](https://images.wondershare.com/filmora/article-images/iwatermark-watermark-photos.jpg)
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
-<!-- affiliate ads end -->
 
 Advertised as the best depth-of-field app for iPhones on the market today, Tadaa SLR sets high photography standards. To make things even better, the app is so easy to use that you just need to set the focal point of the photo and tap on the shutter button to snap a photo. However, Tadaa SLR is only a camera app that doesn't offer a lot of photo editing options.
 
@@ -112,15 +112,17 @@ The term Bokeh comes from the Japanese language and it represents the aesthetic 
 **Compatible with:** iOS 8.0 or later
 
 ![my-watermarks-a-personal-logo-signature-maker](https://images.wondershare.com/filmora/article-images/my-watermarks-a-personal-logo-signature-maker.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 The plethora of blur options provided by the Defocus camera app is impressive. Dynamic Blur and Pain Blur tools provide a lot of creative freedom to the app's users while uploading a photo from the iPhone's camera roll and adding a bokeh effect to a photo is also an option. Defocus offers superb photo sharing features, which means that you can share your photos on any social media network directly from the app.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Ollie Mattison
@@ -146,4 +148,22 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-achieving-synergy-integrating-linktree-into-your-tiktok-profile/"><u>[New] In 2024, Achieving Synergy Integrating Linktree Into Your TikTok Profile</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-mastering-movements-intova-xs-video-excellence/"><u>[Updated] 2024 Approved Mastering Movements Intova X's Video Excellence</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-stellar-stories-celebrating-youtubes-best-narratives/"><u>[Updated] 2024 Approved Stellar Stories Celebrating YouTube's Best Narratives</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-ultimate-choice-the-greatest-11-multi-angle-cams/"><u>[Updated] 2024 Approved Ultimate Choice The Greatest 11 Multi-Angle Cams</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-cementing-your-place-in-youtube-by-mastering-creative-studio-techniques/"><u>[Updated] Cementing Your Place in YouTube by Mastering Creative Studio Techniques</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-movie-magic-solutions-questions-answered/"><u>[Updated] Movie Magic Solutions Questions Answered</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-portrait-of-creativity-discover-the-bestiary-of-8-inspiring-ios-drawing-apps/"><u>[Updated] Portrait of Creativity Discover the Bestiary of 8 Inspiring iOS Drawing Apps</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/action-seekers-dream-the-ultimate-review-of-sj-cam-s6-for-2024/"><u>Action Seeker's Dream The Ultimate Review of SJ-CAM S6 for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/everything-you-need-to-know-about-lock-screen-settings-on-your-vivo-y27s-by-drfone-android/"><u>Everything You Need to Know about Lock Screen Settings on your Vivo Y27s</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-use-phone-clone-to-migrate-your-vivo-s18-pro-data-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Use Phone Clone to Migrate Your Vivo S18 Pro Data? | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-freeloaders-guide-discovering-beautiful-tiktok-screenshots/"><u>In 2024, Freeloaders' Guide Discovering Beautiful TikTok Screenshots</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-frp-on-itel-p55-by-drfone-android/"><u>In 2024, How to Bypass FRP on Itel P55?</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-make-cartoon-characters-from-photos/"><u>New Make Cartoon Characters From Photos</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/1723262424040-save-big-get-a-stunning-deal-on-the-aurora-r16-pc-and-top-pick-34-alienware-oled-monitor-bundle-cut-700-off/"><u>Save Big: Get a Stunning Deal on the Aurora R16 PC & Top Pick 34 Alienware OLED Monitor Bundle - Cut $700 Off!</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/unlock-new-potentials-iphone-x-secrets-unveiled-for-2024/"><u>Unlock New Potentials IPhone X Secrets Unveiled for 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Enhancing Cinematography Skills Through Micro Photography"
-date: 2024-12-18T16:44:37.493Z
-updated: 2024-12-25T20:49:18.794Z
+date: 2024-12-31T16:20:06.953Z
+updated: 2025-01-04T01:35:29.591Z
 tags: 
   - screen-recording
   - ai video
@@ -38,7 +38,7 @@ Any person having a photography background can learn the nuances of the macro vi
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 6 Tips For Making Macro Video
@@ -79,10 +79,6 @@ The background of your macro video always remains blurred as you shoot it closel
 
 ![background](https://images.wondershare.com/filmora/article-images/separate-the-foreground-from-background.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### 4\. DSLR Cameras
 
 For capturing the macro video, you can consider digital SLR camera. The macro lens of the digital SLR camera is a great option for capturing.
@@ -92,10 +88,6 @@ If you are a Canon user, you may opt for the 180 mm macro, 100 mm macro or the 6
 You may also add an extension tube which basically splits the focal distance in two equal halves and make the image size bigger but it decreases the depth of the field.
 
 ![dslr camera](https://images.wondershare.com/filmora/article-images/dslr-camera-full-rig.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### 5\. Depth of Field
 
@@ -107,6 +99,10 @@ But, you must remember that when the opening of the lens is small, the light req
 
 ![depth of field](https://images.wondershare.com/filmora/article-images/depth-of-field.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 6\. Composition
 
 When you have low lights, ensuring a correct perspective on the subject with maximum focus area is quite difficult. You must have the right composition for your macro video.
@@ -116,11 +112,11 @@ For instance, in order to keep a snail always in focus, you may choose to shoot 
 ![composition](https://images.wondershare.com/filmora/article-images/composition.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -128,6 +124,10 @@ For instance, in order to keep a snail always in focus, you may choose to shoot 
 Once you can master the above tips for making the macro video, you can easily shoot small objects like a pro. A videographer’s experience and creativity can be matched even by you if you can easily grasp the techniques, practice it, and implement creatively while making your macro videos.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -154,17 +154,20 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-begin-installing-xps-key-visual-storytelling-app/"><u>[Updated] 2024 Approved Begin Installing XP’s Key Visual Storytelling App</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-innovative-strategies-for-recording-in-audacity/"><u>[Updated] Innovative Strategies for Recording in Audacity</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-add-music-in-premiere-pro/"><u>2024 Approved Add Music In Premiere Pro</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-glow-enhanced-video-a-right-move-for-hdr-crafting/"><u>2024 Approved Glow-Enhanced Video A Right Move for HDR Crafting?</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-luminance-hdr-analysis-worth-the-production/"><u>2024 Approved Luminance HDR Analysis Worth the Production?</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-perfect-your-videos-captions-with-10plus-top-free-converters/"><u>2024 Approved Perfect Your Videos' Captions with 10+ Top FREE Converters</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-speed-up-your-iphone-photography-with-time-lapses/"><u>2024 Approved Speed Up Your iPhone Photography with Time-Lapses</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/1722999204491-football-manager-2019-crashing-problems-heres-how-to-get-back-in-play/"><u>Football Manager 2019 Crashing Problems? Here's How to Get Back in Play</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-6-ways-to-change-spotify-location-on-your-realme-narzo-60-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 6 Ways to Change Spotify Location On Your Realme Narzo 60 5G | Dr.fone</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-explore-popular-youtube-comment-sections/"><u>In 2024, Explore Popular YouTube Comment Sections</u></a></li>
-<li><a href="https://win-able.techidaily.com/no-more-interruptions-solving-red-dead-redemption-2s-pc-performance-problems/"><u>No More Interruptions: Solving Red Dead Redemption 2'S PC Performance Problems</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/sundae-screening-comprehensive-tutorial-on-frozen-camera-app/"><u>Sundae Screening Comprehensive Tutorial on Frozen Camera App</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-c-spans-fee-free-footage-access-a-compreayer-guide/"><u>[New] C-Span's Fee-Free Footage Access A Compreayer Guide</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-exclusive-zero-cost-custom-video-conclusions/"><u>[New] Exclusive, Zero-Cost Custom Video Conclusions</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-green-thumbs-up-the-best-farming-titles-for-group-playtime-for-2024/"><u>[New] Green Thumbs Up The Best Farming Titles for Group Playtime for 2024</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-in-2024-from-joiner-to-trustee-securing-a-place-as-a-disco-partner/"><u>[New] In 2024, From Joiner to Trustee Securing a Place as a Disco Partner</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-step-into-the-archive-old-stories-on-facebook/"><u>[New] Step Into the Archive Old Stories on Facebook</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-apex-alchemy-choosing-the-best-laptops-for-video-wizards/"><u>[Updated] 2024 Approved Apex Alchemy Choosing the Best Laptops for Video Wizards</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-fine-tuning-windows-photos-app-incorporate-filters-and-sync-music-streaming/"><u>[Updated] 2024 Approved Fine-Tuning Windows Photos App Incorporate Filters & Sync Music Streaming</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-saving-linkedin-videos-made-easy-with-this-6-app-selection-guide-for-2024/"><u>[Updated] Saving LinkedIn Videos Made Easy with This 6-App Selection Guide for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-unveiling-dji-phantom-3s-expert-features-for-2024/"><u>[Updated] Unveiling DJI Phantom 3'S Expert Features for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-elite-video-editing-tools-tailored-to-windows-platforms/"><u>In 2024, Elite Video Editing Tools Tailored to Windows Platforms</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-a-nokia-c22-easily-by-drfone-android/"><u>In 2024, How To Unlock a Nokia C22 Easily?</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-how-to-use-luts-in-photoshop-cc/"><u>In 2024, How to Use LUTs in PhotoShop CC</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/strategies-and-fixes-reopening-elusive-windows-terminal/"><u>Strategies & Fixes: Reopening Elusive Windows Terminal</u></a></li>
+<li><a href="https://article-helps.techidaily.com/the-ultimate-resource-for-mac-users-unlocking-preview-capabilities/"><u>The Ultimate Resource for Mac Users Unlocking Preview Capabilities</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-5-car-locator-apps-for-itel-p55plus-drfone-by-drfone-virtual-android/"><u>Top 5 Car Locator Apps for Itel P55+ | Dr.fone</u></a></li>
 </ul></div>
 

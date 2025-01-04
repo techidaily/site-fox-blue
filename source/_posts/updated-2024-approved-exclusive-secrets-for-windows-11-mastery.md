@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Exclusive Secrets for Windows 11 Mastery\""
-date: 2024-08-15T10:26:18.262Z
-updated: 2024-08-16T10:26:18.262Z
+date: 2024-12-31T06:49:21.930Z
+updated: 2025-01-04T06:03:30.396Z
 tags: 
   - screen-recording
   - ai video
@@ -29,8 +29,9 @@ In 2015, Microsoft announced that Windows 10 would be the last version number fo
 After years of small updates, the biggest and most popular operating system in the world finally has some great news for you. At last, Windows fans have something they should get excited about. The following section of this article will share Windows 11 tips and tricks with you that are hidden and secret.
 
 <!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 1\. Turn off the Notifications
 
 With the increased number of notifications in Windows 11, you might get annoyed. For that, you can turn off the notifications from the 'Settings.' Either you can go to the settings from the Start Menu or by pressing 'Win+I.' Then, head over to ‘System’ and hit 'Notifications.' The notifications are ‘On’ by default, but you can turn them 'Off' if you want to.
@@ -44,20 +45,15 @@ Minimizing Applications allows you to minimize the extra tabs as a whole rather 
 This feature can be activated through Windows Settings and then by clicking on ‘Multi-Tasking.' Switch on the toggle switch next to ‘Title Bar Window Shake,' and it is ready to use.
 
 ![minimize applications by shaking](https://images.wondershare.com/filmora/article-images/2021/windows-11-secret-tips-and-tricks-2.jpg)
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 ### 3\. Shortcut Keys
 
 Windows 11 has many shortcut keys that will save your time on a busy day. These shortcut keys cover areas such as Widgets with (Win + W). It Opens the Team Chat app (Win + C), notification center (Win + N), Quick settings with (Win + A), and a lot more. Whereas the shortcuts for copying, pasting, and screenshots are the same as Windows 10.
 
 ![windows 11 shortcut keys](https://images.wondershare.com/filmora/article-images/2021/windows-11-secret-tips-and-tricks-3.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 4\. Taskbar and Start Menu Placements
@@ -66,13 +62,22 @@ The biggest Windows 11 tip and trick is the placement of Taskbar and Start Menu.
 
 ![align taskbar to the left](https://images.wondershare.com/filmora/article-images/2021/windows-11-secret-tips-and-tricks-4.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 5\. Remove Unwanted Ads on Apps
 
 The updated technology allows you to have better control over the privacy of your data and device from personalized ads. For this, go to the ‘Settings’ panel and then move over to the 'Privacy and Security’ section. From the right panel, hit the ‘General’ settings. Now you can select whether you want the apps or websites to show ads based on your interests.
 
 ![disable unwanted ads](https://images.wondershare.com/filmora/article-images/2021/windows-11-secret-tips-and-tricks-5.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 6\. Voice Typing Feature
@@ -81,9 +86,6 @@ The coolest thing about Windows 11 that most people don’t know is the ‘Voice
 
 ![windows 11 voice typing feature](https://images.wondershare.com/filmora/article-images/2021/windows-11-secret-tips-and-tricks-6.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 7\. Widgets and Chat Customization
 
 Using Widgets and Chats helps the user have a quick chat with people that they love the most. Widget and Chats are the two new features introduced in Windows 11.
@@ -93,8 +95,9 @@ However, some people do not like using this kind of stuff. They don’t even pre
 ![disable widgets and other items](https://images.wondershare.com/filmora/article-images/2021/windows-11-secret-tips-and-tricks-7.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 8\. Block Trackers and Pop-up
 
 Another brilliant Windows 11 tip and trick is that it lets you block the pop-ups and also the tracking. For that, open Microsoft Edge and head over to the 3 dots on the top right corner to open 'Settings.' From the left panel in Settings, look for 'Privacy, Search and Services.' By default, it is set to 'Balanced.' You are suggested to select the 'Strict' option so that all the harmful trackers are blocked.
@@ -102,9 +105,13 @@ Another brilliant Windows 11 tip and trick is that it lets you block the pop-ups
 ![secure your browsing on windows 11](https://images.wondershare.com/filmora/article-images/2021/windows-11-secret-tips-and-tricks-8.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 9\. Change your Geolocation
 
 Every app we install has our location, but with Windows 11, we can change our default location. For this fun tip, press 'Win + I' to open the 'Settings.' Then head over to the ‘Privacy & Security’ section. Now, scroll down and look for the 'Location' tab.
@@ -114,8 +121,9 @@ For changing your default location, hit the ‘Set Default’ button on the righ
 ![change windows 11 location](https://images.wondershare.com/filmora/article-images/2021/windows-11-secret-tips-and-tricks-9.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 10\. Bring Folders on Start
 
 Windows 11 tips and tricks also include bringing back the folders on the start menu. Windows 11 have a built-in setting that shows the folders next to the power button on the Start Menu. You can also personalize things.
@@ -141,21 +149,12 @@ Get started easily with Filmora's powerful performance, intuitive interface, and
 [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More >](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![filmorax boxpng ](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
-<!-- affiliate ads end -->
 
 ![filmorax boxpng ](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
 
 ![filmorax boxpng ](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
-<!-- affiliate ads end -->
 
 ![filmorax boxpng ](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -179,4 +178,18 @@ Get started easily with Filmora's powerful performance, intuitive interface, and
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-enhancing-youtube-videos-proper-lighting-methods/"><u>[Updated] 2024 Approved Enhancing YouTube Videos Proper Lighting Methods</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-spark-the-flame-top-10-motivational-films-for-you/"><u>[Updated] Spark the Flame Top 10 Motivational Films for You</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/discover-the-power-an-experts-take-on-the-value-packed-gigabyte-b760m-ds3h-ax-motherboard-for-multi-screen-enthusiasts/"><u>Discover the Power: An Expert's Take on the Value-Packed Gigabyte B760M DS3H AX Motherboard for Multi-Screen Enthusiasts</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/enshrouded-eagles-encounter-with-beaming-bearing/"><u>Enshrouded Eagle's Encounter with Beaming Bearing</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-enhance-creativity-with-ios-camera-techniques/"><u>In 2024, Enhance Creativity with iOS Camera Techniques</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-list-of-pokemon-go-joysticks-on-infinix-note-30-vip-drfone-by-drfone-virtual-android/"><u>In 2024, List of Pokémon Go Joysticks On Infinix Note 30 VIP | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-ranking-the-leading-free-srt-translators-online/"><u>In 2024, Ranking the Leading Free SRT Translators Online</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-what-is-a-sim-network-unlock-pin-get-your-samsung-galaxy-a34-5g-phone-network-ready-by-drfone-android/"><u>In 2024, What Is a SIM Network Unlock PIN? Get Your Samsung Galaxy A34 5G Phone Network-Ready</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/snapsavvy-ai-revolutionizing-edit-processes/"><u>SnapSavvy AI Revolutionizing Edit Processes</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ltimate-list-mastering-youtubes-best-music-reaction-videos-for-2024/"><u>The Ultimate List Mastering YouTube's Best Music Reaction Videos for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/top-tier-editing-suites-in-apples-macos-big-sur-release-for-2024/"><u>Top-Tier Editing Suites in Apple's MacOS Big Sur Release for 2024</u></a></li>
+</ul></div>
 

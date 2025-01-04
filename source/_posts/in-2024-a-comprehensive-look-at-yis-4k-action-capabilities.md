@@ -1,7 +1,7 @@
 ---
 title: "In 2024, A Comprehensive Look at Yi's 4K Action Capabilities"
-date: 2024-08-15T10:33:56.562Z
-updated: 2024-08-16T10:33:56.562Z
+date: 2024-12-29T01:48:14.529Z
+updated: 2025-01-03T16:09:15.320Z
 tags: 
   - screen-recording
   - ai video
@@ -114,11 +114,19 @@ Yi 4K is designed with built in Wi-Fi abilities so that users can make direct co
 
 The future firmware update of Yi 4K+ action camera is supposed to bring so many interesting features into this tiny device. It will be extending support towards live streaming facility and raw images will be soon processed. The most interesting addition will be voice command support that will make control actions much easier during adventurous sports recording needs. This device will be offering impressive high performance service while consuming very low power and all ultra HD videos will deliver crisper details with elegant color distributions.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 Yi 4K+ is first action camera device to support 60fps frame rate at 4K resolution level and it further provides 8MP support to every still while ensuring crisp and deep details. There are several interesting features inside this tiny action cam including USB-C external mic connectivity and many more. However, you may also find few troubles like it cannot go underwater without protective housing. It not even extends support to live streaming and RAW files cannot be processed. But, even after so many downsides, its amazing video quality makes it standout against all competitors. You must order your new action camera soon.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Max Wales
 
@@ -143,8 +151,20 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-the-smartphone-photographers-handbook/"><u>[New] 2024 Approved The Smartphone Photographer's Handbook</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-a-novices-guide-to-selecting-key-gopro-enhancements/"><u>[New] A Novice's Guide to Selecting Key GoPro Enhancements</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-a-straightforward-approach-to-image-distortion/"><u>[New] A Straightforward Approach to Image Distortion</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-economical-aether-fileshare-for-bulk-digital-storing/"><u>[New] Economical Aether Fileshare for Bulk Digital Storing</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-navigating-snapchat-spotlight-feature-for-2024/"><u>[New] Navigating Snapchat Spotlight Feature for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/new-ultimate-selection-elite-iphone-call-alerts/"><u>[New] Ultimate Selection Elite iPhone Call Alerts</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-direct-obs-live-to-instagram-feed/"><u>[Updated] In 2024, Direct OBS Live to Instagram Feed</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-fundamentals-of-e-narrative-creation/"><u>[Updated] In 2024, Fundamentals of E-Narrative Creation</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-unlocking-the-potential-of-drone-footage-through-editing/"><u>[Updated] Unlocking the Potential of Drone Footage Through Editing</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/9-best-phone-monitoring-apps-for-vivo-s17e-drfone-by-drfone-virtual-android/"><u>9 Best Phone Monitoring Apps for Vivo S17e | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/frugal-filmmaking-top-camera-deals-for-2024/"><u>Frugal Filmmaking Top Camera Deals for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/resolve-core-dll-missing-mistake-essential-fixes-for-windows-users/"><u>Resolve Core DLL Missing Mistake – Essential Fixes for Windows Users</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/nderappreciated-film-phenoms-of-this-year-for-2024/"><u>The Underappreciated Film Phenoms of This Year for 2024</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
-<!-- affiliate ads end -->

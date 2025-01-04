@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Inside Out  A Review of Individual 3D Printing Journey\""
-date: 2024-12-24T16:34:20.300Z
-updated: 2024-12-25T18:48:23.489Z
+date: 2024-12-27T17:00:32.777Z
+updated: 2025-01-03T17:44:31.055Z
 tags: 
   - screen-recording
   - ai video
@@ -34,7 +34,7 @@ thumbnail: https://thmb.techidaily.com/fe074f06665304f02bb44d59a2cf2f7a7e742cf6a
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Pros and Cons of 3DR Solo
@@ -58,7 +58,7 @@ thumbnail: https://thmb.techidaily.com/fe074f06665304f02bb44d59a2cf2f7a7e742cf6a
  The 3DR solo drone is designed to serve with amazing aerial photography functions that is why it is one of the most preferred drones by cinematographers. One can easily connect it with GoPro cameras to get stunning shots on height. But the downside is its short battery life and weak GPS.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Complete Review
@@ -81,7 +81,7 @@ thumbnail: https://thmb.techidaily.com/fe074f06665304f02bb44d59a2cf2f7a7e742cf6a
 ![3dr solo design](https://images.wondershare.com/filmora/article-images/3dr-solo-design.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 [Check at Amazon](https://www.amazon.com/gp/product/B00ZPM7BOG/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00ZPM7BOG&linkId=5a8069fda1f7be3bf48e831452f3ee9d)
@@ -101,7 +101,7 @@ thumbnail: https://thmb.techidaily.com/fe074f06665304f02bb44d59a2cf2f7a7e742cf6a
 ![3dr solo controller](https://images.wondershare.com/filmora/article-images/3dr-solo-controller.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  The 3DR solo controller appears trendy with just two joysticks that offer direct control to acceleration, yaw, pitch and roll. The fly button can be accessed for initiated automated landing and takeoff. A tiny screen is provided to display continuous information about battery condition and telemetry data. One additional knob is available for adjustments of camera angle controls. Other then this you will find one customizable button to activate autonomous flight mode. It also provides one pause button that helps users to make their drone stable in air. All other controls can be managed from application.
@@ -119,7 +119,7 @@ thumbnail: https://thmb.techidaily.com/fe074f06665304f02bb44d59a2cf2f7a7e742cf6a
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Max Wales
@@ -147,24 +147,17 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-discover-strength-in-cinema-our-list-of-motivational-flicks/"><u>[New] Discover Strength in Cinema Our List of Motivational Flicks</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-top-15-viral-phenomena-on-todays-tiktok-stage/"><u>[New] In 2024, Top 15 Viral Phenomena on Today's TikTok Stage</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-utilizing-slug-lines-for-better-content-structure/"><u>[New] In 2024, Utilizing Slug Lines for Better Content Structure</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-mastering-cc-license-application-a-comprehensive-guide/"><u>[New] Mastering CC License Application A Comprehensive Guide</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-2024-approved-capture-creativity-speedy-drawing-techniques-for-windows-photo-editor/"><u>[Updated] 2024 Approved Capture Creativity Speedy Drawing Techniques for Windows Photo Editor</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-uniting-single-scenes-iphone-multi-media-magic/"><u>[Updated] In 2024, Uniting Single Scenes IPhone Multi-Media Magic</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-sustainable-solutions-in-simulated-spaces-the-best-30-sayings-arvr-for-2024/"><u>[Updated] Sustainable Solutions in Simulated Spaces The Best 30 Sayings [AR/VR] for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-the-guide-to-procuring-and-utilizing-free-visual-frame-content-for-2024/"><u>[Updated] The Guide to Procuring and Utilizing Free Visual Frame Content for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/affordable-broadcast-television-on-any-budget-in-depth-look-at-the-amazonbasics-antenna/"><u>Affordable Broadcast Television on Any Budget: In-Depth Look at the AmazonBasics Antenna</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/apowersoft-screen-recorder-review-and-alternative/"><u>Apowersoft Screen Recorder Review and Alternative</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ing-emotional-impact-in-personal-youtube-content/"><u>Crafting Emotional Impact in Personal YouTube Content</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/deciphering-the-lack-of-contacts-and-snaps-on-snapchat-for-2024/"><u>Deciphering the Lack of Contacts and Snaps on Snapchat for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-cutting-edge-captures-delving-into-iphone-xs-camera/"><u>In 2024, Cutting Edge Captures Delving Into iPhone X's Camera</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-enhancing-designs-adding-unique-fonts-to-ae-projects/"><u>In 2024, Enhancing Designs Adding Unique Fonts to AE Projects</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-free-best-top-11-animated-logo-makers-creative-logo-tips/"><u>In 2024, FREE Best Top 11 Animated Logo Makers Creative Logo Tips</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-mastering-lock-screen-settings-how-to-enable-and-disable-on-motorola-moto-g-stylus-2023-by-drfone-android/"><u>In 2024, Mastering Lock Screen Settings How to Enable and Disable on Motorola Moto G Stylus (2023)</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-pureearaudioextractors-latest-evolution/"><u>In 2024, PureEarAudioExtractor's Latest Evolution</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-stream-on-the-go-youtube-via-mobile-for-understaffed-creators/"><u>In 2024, Stream on the Go YouTube via Mobile for Understaffed Creators</u></a></li>
-<li><a href="https://discover-community.techidaily.com/msvcp110-dll-nicht-gefunden-hier-sind-drei-schnelle-methoden-um-fehlermeldungen-unter-windows-10-zu-beheben/"><u>MSVCP110 DLL Nicht Gefunden? Hier Sind Drei Schnelle Methoden, Um Fehlermeldungen Unter Windows 10 Zu Beheben!</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-close-up-clarity-mastering-the-art-of-intense-focus-for-2024/"><u>[New] Close-Up Clarity Mastering the Art of Intense Focus for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-the-art-of-plating-on-camera-food-video-production-guide-for-2024/"><u>[New] The Art of Plating on Camera Food Video Production Guide for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-the-journey-of-drones-from-current-uses-to-future-applications/"><u>[New] The Journey of Drones From Current Uses to Future Applications</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-solo-stream-triumph-strategies-for-clear-consistent-broadcasts/"><u>[Updated] 2024 Approved Solo Stream Triumph Strategies for Clear, Consistent Broadcasts</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-in-2024-multiformat-manual-effortless-conversion-of-srt-files/"><u>[Updated] In 2024, Multiformat Manual Effortless Conversion of SRT Files</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-thanks-for-curating-premium-and-free-outro-themes/"><u>2024 Approved Thanks for Curating Premium & Free Outro Themes</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-your-companion-in-choosing-high-grade-hdr-cameras/"><u>2024 Approved Your Companion in Choosing High-Grade HDR Cameras</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/d-your-earning-game-executing-a-three-part-blueprint-for-youtube-revenue-analysis-for-2024/"><u>Ascend Your Earning Game Executing a Three-Part Blueprint for YouTube Revenue Analysis for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/average-podcast-income-whats-the-payoff-for-2024/"><u>Average Podcast Income What's the Payoff for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-premium-free-power-players-ranking-the-top-10-free-luts/"><u>In 2024, Premium-Free Power Players Ranking the Top 10 Free LUTs</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/voiceover-guide-for-engaging-videography/"><u>Voiceover Guide for Engaging Videography</u></a></li>
+<li><a href="https://fox-zaraz.techidaily.com/windows-11-cloudlocal/"><u>Windows 11: 最適なインストール方法 - CloudダウンロードかLocal再インストールかを決定する</u></a></li>
 </ul></div>
 

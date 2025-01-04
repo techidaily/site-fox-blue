@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Behind the Scenes  Mastering Cinematic Techniques in '24\""
-date: 2024-08-15T10:27:55.237Z
-updated: 2024-08-16T10:27:55.237Z
+date: 2025-01-01T22:32:01.171Z
+updated: 2025-01-03T16:31:02.201Z
 tags: 
   - screen-recording
   - ai video
@@ -40,6 +40,10 @@ Step 2 Now open and close the door to get smooth camera movement.
 
 Shaping light is a crucial component of filmmaking, requiring command over creating and guiding shadows. You need to focus the light on the subjects rather than the background. Use the following methods to focus light on the point of interest.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### DIY LED Panel
 
 You can create LED Panel at home to add light to a subject. Unfortunately, LED strips do not produce bright light when spread as a straight line. However, we can use cardboard and LED light strips to build a broader, more brilliant light. Follow the steps below to make DIY LED Panel.
@@ -57,13 +61,11 @@ Step 4 Plug in the LED strip and use this LED Panel for a broader light source.
 Alright! Let's check out how it looks in the video below.
 
 ![diy led panel](https://images.wondershare.com/filmora/article-images/2022/12/diy-led-panel.gif)
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### DIY Light Flag
 
 Black color does not reflect light, so a black fabric can be used to make a DIY Light Flag. Here is a step-by-step guide to creating a light flag at home.
@@ -81,13 +83,7 @@ Step 4 Now, use this DIY Light Flag to shape or block light while filming.
 Let us see how it looks;
 
 ![diy light flag](https://images.wondershare.com/filmora/article-images/2022/12/diy-light-flag.gif)
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### DIY Black Wrap
 
 A black wrap is made of aluminum, so you can use aluminum foils to make black wrap at your home. Black wraps are used to shape and block light during filmmaking.
@@ -110,9 +106,6 @@ Here is a GIF attached for a better understanding of the steps.
 
 ![diy black wrap](https://images.wondershare.com/filmora/article-images/2022/12/diy-black-wrap.gif)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
-<!-- affiliate ads end -->
 ### DIY Light Reflector
 
 A reflector is a piece of glass or any reflective surface that can redirect light to a specific spot. For example, use aluminum foil to make a Light Reflector at your home.
@@ -130,13 +123,14 @@ Step 3 Use the reflector to redirect light to your object.
 There is a GIF attached below to understand the steps visually.
 
 ![diy light reflector](https://images.wondershare.com/filmora/article-images/2022/12/diy-light-reflector.gif)
-<!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Tip 3\. DIY Light Diffuser
 
 In professional productions, light diffusers are frequently used to soften, level out the lighting, and lessen the harshness of shadows.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Diffuse Lights With a Desk Mat
 
@@ -155,17 +149,18 @@ Step 3 Use this diffuser to reduce the intensity of light.
 For a better understanding of the steps, watch the GIF attached below.
 
 ![diy light diffuser](https://images.wondershare.com/filmora/article-images/2022/12/diy-light-diffuser.gif)
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
-<!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Tip 4\. Reveal Movement and 180° Presentation
 
 The most commonly used cinematic movements are the reveal and 180° presentation movements. A gimbal is needed to record these movements.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Reveal Movement
 
@@ -185,6 +180,14 @@ Here is a video showing how to record reveal movement.
 
 ![reveal movement](https://images.wondershare.com/filmora/article-images/2022/12/reveal-movement.gif)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 180° Presentation Movement
 
 This Movement gives the subject a general look and displays more details of the surroundings and the subject.
@@ -202,9 +205,6 @@ Step 3 Move slowly to the other side of the subject while recording.
 A sample video attached below shows how to record 180 presentation movements.
 
 ![180 presentation movement](https://images.wondershare.com/filmora/article-images/2022/12/180-presentation-movement.gif)
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 
 ## Tip 5\. Create a Barrel Roll Shot
 
@@ -225,8 +225,9 @@ Step 4 Turn on the power drill at low speed and record the barrel roll shot.
 The video attached below will help you to understand these steps.
 
 ![barrel roll shot](https://images.wondershare.com/filmora/article-images/2022/12/barrel-roll-shot.gif)
+
 <!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Final Words
@@ -263,4 +264,22 @@ After filming the videos, edit them using [Wondershare Filmora](https://tools.te
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-breeze-through-your-latest-fb-watches-2023-edition/"><u>[New] 2024 Approved Breeze Through Your Latest FB Watches 2023 Edition</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-digital-canvas-delight-premier-apps-for-ipados-artistry/"><u>[New] 2024 Approved Digital Canvas Delight Premier Apps for iPadOS Artistry</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-the-pros-guide-to-efficient-win11-use/"><u>[New] The Pro's Guide to Efficient Win11 Use</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-mastering-movements-intova-xs-video-excellence/"><u>[Updated] 2024 Approved Mastering Movements Intova X's Video Excellence</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-ultimate-choice-the-greatest-11-multi-angle-cams/"><u>[Updated] 2024 Approved Ultimate Choice The Greatest 11 Multi-Angle Cams</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-movie-magic-solutions-questions-answered/"><u>[Updated] Movie Magic Solutions Questions Answered</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-portrait-of-creativity-discover-the-bestiary-of-8-inspiring-ios-drawing-apps/"><u>[Updated] Portrait of Creativity Discover the Bestiary of 8 Inspiring iOS Drawing Apps</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-explore-the-finest-18-wireless-camcorders-today/"><u>2024 Approved Explore the Finest 18 Wireless Camcorders Today</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/2024-approved-precision-style-capturing-your-macootd-tiktok-guide/"><u>2024 Approved Precision Style Capturing Your MacOOTD TikTok Guide</u></a></li>
+<li><a href="https://win-answers.techidaily.com/fix-sekiros-sudden-shutdown-problems-fast-and-simple-methods/"><u>Fix Sekiro's Sudden Shutdown Problems Fast and Simple Methods</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-stop-life360-from-tracking-you-on-huawei-p60-drfone-by-drfone-virtual-android/"><u>How to Stop Life360 from Tracking You On Huawei P60? | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-dive-into-360-videos-iphone-edition-for-facebook-posts/"><u>In 2024, Dive Into 360 Videos IPhone Edition for Facebook Posts</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/top-vlog-editing-tools-for-popular-platforms-free-and-paid-options-for-2024/"><u>Top Vlog Editing Tools for Popular Platforms Free and Paid Options for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/unlock-new-potentials-iphone-x-secrets-unveiled-for-2024/"><u>Unlock New Potentials IPhone X Secrets Unveiled for 2024</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-toon-up-your-photos-top-mobile-apps-for-cartoon-style-editing-for-2024/"><u>Updated Toon Up Your Photos Top Mobile Apps for Cartoon-Style Editing for 2024</u></a></li>
+</ul></div>
 

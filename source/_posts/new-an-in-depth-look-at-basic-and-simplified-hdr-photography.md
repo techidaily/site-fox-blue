@@ -1,7 +1,7 @@
 ---
 title: "\"[New] An In-Depth Look at Basic and Simplified HDR Photography\""
-date: 2024-12-20T19:47:02.566Z
-updated: 2024-12-25T18:02:34.673Z
+date: 2024-12-31T05:14:09.010Z
+updated: 2025-01-03T23:58:23.026Z
 tags: 
   - screen-recording
   - ai video
@@ -116,22 +116,22 @@ With that in mind, we recommend [Wondershare Filmora 11](https://tools.techidail
 
 ![easy hdr alternative load video](https://images.wondershare.com/filmora/article-images/2022/08/easy-hdr-1.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Run [Wondershare Filmora 11](https://tools.techidaily.com/wondershare/filmora/download/) on your Mac/Win computer and start a new project. After creating a project, click Import Media to upload the video to edit and move it to the storyboard.
 
 ##### Step2Add a blending mode effect
 
 ![easy hdr alternative add white sample color](https://images.wondershare.com/filmora/article-images/2022/08/easy-hdr-2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Next, select the video and choose White as the color overlay. To do that, open the Sample color options and move the While color on the top timeline.
 
 ![easy hdr alternative add exclusion blending mode](https://images.wondershare.com/filmora/article-images/2022/08/easy-hdr-3.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 After that, it's time to change the Blending Mode of the color overlay. To do that, right-click the color track and choose Edit Properties. Then tap Composition and then select Exclusion on the Blending Mode drop-down menu.
@@ -146,15 +146,19 @@ Now tap the Effect tab and search for the B&W Film effect. This film effect shou
 
 ![easy hdr alternative set overlay blending mode](https://images.wondershare.com/filmora/article-images/2022/08/easy-hdr-5.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 After creating the video, import it on Filmora 11 and delete the white color overlay and W&B Film effects. Now add the imported video on the first track, then search and apply a Square Blur effect. Also, change the Blending Mode of the footage to Overlay. Meanwhile, click the Effect tab and adjust the Size slider accordingly. For example, you can choose 10.
 
 ![easy hdr alternative add luma sharp effect](https://images.wondershare.com/filmora/article-images/2022/08/easy-hdr-6.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Don't stop there. Open the Effects tab and add the Lomo effect to your video. Also, search and add the Luma Sharp effect. Remember that you can retouch these effects accordingly under the Effect tab. And lastly, export the new HDR video. That's it!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Final Words
 
@@ -246,23 +250,19 @@ With that in mind, we recommend [Wondershare Filmora 11](https://tools.techidail
 
 ![easy hdr alternative load video](https://images.wondershare.com/filmora/article-images/2022/08/easy-hdr-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Run [Wondershare Filmora 11](https://tools.techidaily.com/wondershare/filmora/download/) on your Mac/Win computer and start a new project. After creating a project, click Import Media to upload the video to edit and move it to the storyboard.
 
 ##### Step2Add a blending mode effect
 
 ![easy hdr alternative add white sample color](https://images.wondershare.com/filmora/article-images/2022/08/easy-hdr-2.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Next, select the video and choose White as the color overlay. To do that, open the Sample color options and move the While color on the top timeline.
 
 ![easy hdr alternative add exclusion blending mode](https://images.wondershare.com/filmora/article-images/2022/08/easy-hdr-3.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 After that, it's time to change the Blending Mode of the color overlay. To do that, right-click the color track and choose Edit Properties. Then tap Composition and then select Exclusion on the Blending Mode drop-down menu.
 
@@ -276,19 +276,19 @@ Now tap the Effect tab and search for the B&W Film effect. This film effect shou
 
 ![easy hdr alternative set overlay blending mode](https://images.wondershare.com/filmora/article-images/2022/08/easy-hdr-5.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 After creating the video, import it on Filmora 11 and delete the white color overlay and W&B Film effects. Now add the imported video on the first track, then search and apply a Square Blur effect. Also, change the Blending Mode of the footage to Overlay. Meanwhile, click the Effect tab and adjust the Size slider accordingly. For example, you can choose 10.
 
 ![easy hdr alternative add luma sharp effect](https://images.wondershare.com/filmora/article-images/2022/08/easy-hdr-6.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Don't stop there. Open the Effects tab and add the Lomo effect to your video. Also, search and add the Luma Sharp effect. Remember that you can retouch these effects accordingly under the Effect tab. And lastly, export the new HDR video. That's it!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Final Words
 
@@ -322,16 +322,22 @@ There you have it. Easy HDR is arguably the most-beginner friendly program to ed
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-a-stepwise-approach-to-srt-mastery-and-expert-tips/"><u>[New] A Stepwise Approach to SRT Mastery and Expert Tips</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-essential-list-of-cost-free-versatile-video-players/"><u>[New] Essential List of Cost-Free, Versatile Video Players</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-historical-gems-art-unshackled-by-laws-for-2024/"><u>[New] Historical Gems Art Unshackled by Laws for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-navigating-full-hd-display-on-twitter-videos-for-2024/"><u>[New] Navigating Full HD Display on Twitter Videos for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-building-believable-characters-through-dialogue/"><u>[Updated] 2024 Approved Building Believable Characters Through Dialogue</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-double-delight-maximizing-the-use-of-netflixs-floating-window/"><u>[Updated] 2024 Approved Double Delight Maximizing the Use of Netflix's Floating Window</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-superior-vector-file-polishing-for-2024/"><u>[Updated] Superior Vector File Polishing for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-the-evaluation-of-hdr-quality-with-luminance/"><u>[Updated] The Evaluation of HDR Quality with Luminance</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-fake-snapchat-location-without-jailbreak-on-infinix-note-30-vip-drfone-by-drfone-virtual-android/"><u>How to Fake Snapchat Location without Jailbreak On Infinix Note 30 VIP | Dr.fone</u></a></li>
-<li><a href="https://extra-support.techidaily.com/realities-redefined-the-metaverse-vs-omniverse-showdown-explained-for-2024/"><u>Realities Redefined The Metaverse Vs. Omniverse Showdown Explained for 2024</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/unveiling-new-gadgets-with-toms-hardware-insights/"><u>Unveiling New Gadgets with Tom's Hardware Insights</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-digital-canvas-delight-premier-apps-for-ipados-artistry/"><u>[New] 2024 Approved Digital Canvas Delight Premier Apps for iPadOS Artistry</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-ditch-the-viewfinder-top-6-non-periscope-video-platforms-for-2024/"><u>[New] Ditch the Viewfinder Top 6 Non-Periscope Video Platforms for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-expert-reviews-top-5-high-performance-video-devices-for-2024/"><u>[New] Expert Reviews Top 5 High-Performance Video Devices for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-achieving-synergy-integrating-linktree-into-your-tiktok-profile/"><u>[New] In 2024, Achieving Synergy Integrating Linktree Into Your TikTok Profile</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-mastering-movements-intova-xs-video-excellence/"><u>[Updated] 2024 Approved Mastering Movements Intova X's Video Excellence</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-ultimate-choice-the-greatest-11-multi-angle-cams/"><u>[Updated] 2024 Approved Ultimate Choice The Greatest 11 Multi-Angle Cams</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-tailored-sound-solutions-ideal-mics-for-educational-gaming-and-blogging-channels/"><u>[Updated] In 2024, Tailored Sound Solutions Ideal Mics For Educational, Gaming & Blogging Channels</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-movie-magic-solutions-questions-answered/"><u>[Updated] Movie Magic Solutions Questions Answered</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-portrait-of-creativity-discover-the-bestiary-of-8-inspiring-ios-drawing-apps/"><u>[Updated] Portrait of Creativity Discover the Bestiary of 8 Inspiring iOS Drawing Apps</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-a-newbies-blueprint-to-mastering-av1/"><u>2024 Approved A Newbie's Blueprint to Mastering AV1</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-the-ultimate-toolkit-for-editors-magix-video-pro-x-review/"><u>2024 Approved The Ultimate Toolkit for Editors Magix Video Pro X Review</u></a></li>
+<li><a href="https://howto.techidaily.com/8-solutions-to-solve-youtube-app-crashing-on-oppo-a78-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Solutions to Solve YouTube App Crashing on Oppo A78 | Dr.fone</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/battle-against-battlefields-fluttering-glitches-solutions-unveiled/"><u>Battle Against Battlefield's Fluttering Glitches: Solutions Unveiled</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/easy-steps-on-how-to-create-a-new-apple-id-account-on-iphone-11-drfone-by-drfone-ios/"><u>Easy Steps on How To Create a New Apple ID Account On iPhone 11 | Dr.fone</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/how-to-fix-advrcntr2dll-is-missing-errors-nero/"><u>How to Fix Advrcntr2.dll Is Missing Errors (Nero)</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-freeloaders-guide-discovering-beautiful-tiktok-screenshots/"><u>In 2024, Freeloaders' Guide Discovering Beautiful TikTok Screenshots</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/unlock-new-potentials-iphone-x-secrets-unveiled-for-2024/"><u>Unlock New Potentials IPhone X Secrets Unveiled for 2024</u></a></li>
 </ul></div>
 

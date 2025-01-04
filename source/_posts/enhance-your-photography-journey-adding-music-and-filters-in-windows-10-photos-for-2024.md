@@ -1,7 +1,7 @@
 ---
 title: "\"Enhance Your Photography Journey  Adding Music and Filters in Windows 10 Photos for 2024\""
-date: 2024-12-24T17:25:59.893Z
-updated: 2024-12-25T20:00:09.662Z
+date: 2024-12-30T04:57:33.441Z
+updated: 2025-01-04T08:00:51.422Z
 tags: 
   - screen-recording
   - ai video
@@ -39,7 +39,7 @@ Having Windows 10 Photos app is an advantage for you. This is not like any other
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: How to add filters on Windows 10 Photos App
@@ -54,20 +54,20 @@ If you have got Windows 10 Photos app and wish to add filters, though, it is by 
 
 ![ add filters on windows 10 photos app](https://images.wondershare.com/filmora/article-images/add-filters.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 3**: Now, you will be in an video editing page. You can name your video at start or later.
 
 **Step 4**: Click Filters at tool bar. Microsoft Photos has 14 filters you can use, including classic, adventure, sepia and so on.
 
 ![ add filters on windows 10 photos app](https://images.wondershare.com/filmora/article-images/edit-filters-microsoft-photos.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 5**: Just select one you like. Preview it and then click Done.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: How to add music on Windows 10 Photos App
@@ -83,18 +83,18 @@ Now that you have learnt how to **_add filters using Windows 10 Photos app._** D
 ![ add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/add-music-to-video-photos-app.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 4**: Pick ‘Your music’ so that you can set up a custom track. There are over 20 music you can choose. You can also sync music to video's beat. You can visit ‘Recommended’ section for adding default ones.
 
 ![add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/choose-music-to-video-photos-app.jpg)
 
-**Step 5**: Hit the ‘Done’ button.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+**Step 5**: Hit the ‘Done’ button.
 
 ## Conclusion
 
@@ -127,19 +127,17 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-exploring-the-financial-benefits-in-podcasting-for-2024/"><u>[New] Exploring the Financial Benefits in Podcasting for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-holistic-capture-vs-structured-visual-space/"><u>[New] In 2024, Holistic Capture vs Structured Visual Space</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-industry-insiders-reveal-their-favorite-gif-makers/"><u>[New] In 2024, Industry Insiders Reveal Their Favorite GIF Makers</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-speaking-medias-language-mastering-srt-conversions-for-2024/"><u>[Updated] Speaking Media's Language Mastering SRT Conversions for 2024</u></a></li>
-<li><a href="https://android-location.techidaily.com/10-fake-gps-location-apps-on-android-of-your-tecno-spark-10-pro-drfone-by-drfone-virtual/"><u>10 Fake GPS Location Apps on Android Of your Tecno Spark 10 Pro | Dr.fone</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-expert-analysis-the-full-spectrum-of-bublcam-360/"><u>2024 Approved Expert Analysis The Full Spectrum of Bublcam 360</u></a></li>
-<li><a href="https://article-posts.techidaily.com/breakthrough-ai-creative-workstation/"><u>Breakthrough AI Creative Workstation</u></a></li>
-<li><a href="https://win-able.techidaily.com/cyberpunk-2077s-troubling-encounter-an-in-depth-look-at-error-code-2024/"><u>Cyberpunk 2077'S Troubling Encounter: An In-Depth Look at Error Code 2024</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/forgot-iphone-passcode-again-unlock-iphone-14-plus-without-passcode-now-drfone-by-drfone-ios/"><u>Forgot iPhone Passcode Again? Unlock iPhone 14 Plus Without Passcode Now | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-realme-12plus-5g-to-blackberry-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Realme 12+ 5G to BlackBerry | Dr.fone</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/how-to-use-zoom-for-skype-easy-solutions/"><u>How to Use Zoom for Skype [Easy Solutions]</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-3-solutions-to-find-your-motorola-g54-5g-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Solutions to Find Your Motorola G54 5G Current Location of a Mobile Number | Dr.fone</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-the-impact-and-innovations-in-vegaspro-a-2019-review/"><u>In 2024, The Impact and Innovations in VegasPro A 2019 Review</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/ultimate-data-salvage-application-seamless-recovery-of-any-kind-of-digital-content/"><u>Ultimate Data Salvage Application – Seamless Recovery of Any Kind of Digital Content</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-framing-photos-and-videos-playing-with-text-deformation/"><u>[New] In 2024, Framing Photos & Videos Playing With Text Deformation</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-sculpting-soundscapes-the-fading-trick/"><u>[New] In 2024, Sculpting Soundscapes The Fading Trick</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-serpent-soundtrack-comprehensive-guide-to-tts-resources-online-for-2024/"><u>[New] Serpent Soundtrack Comprehensive Guide to TTS Resources Online for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-cutting-edge-entertainment-with-wins11-apps-and-games/"><u>[Updated] 2024 Approved Cutting-Edge Entertainment with Wins11 Apps & Games</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-illuminating-your-photos-with-iphones-hdr-capabilities/"><u>[Updated] In 2024, Illuminating Your Photos with iPhone’s HDR Capabilities</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-vanguards-choice-top-7-fps-wonders/"><u>[Updated] In 2024, Vanguard's Choice Top 7 FPS Wonders</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-master-windows-10s-native-features-to-cut-videos-instantly-for-2024/"><u>[Updated] Master Windows 10'S Native Features to Cut Videos Instantly for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-ringtone-riches-google-pixel-edition/"><u>[Updated] Ringtone Riches Google Pixel Edition</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-pixelpun-factory/"><u>2024 Approved PixelPun Factory</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/expert-strategies-in-photo-editing-for-profound-impact-for-2024/"><u>Expert Strategies in Photo Editing for Profound Impact for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/identifying-your-youtube-video-spectators-tips-and-techniques/"><u>Identifying Your YouTube Video Spectators: Tips and Techniques</u></a></li>
+<li><a href="https://some-skills.techidaily.com/streamline-your-audio-content-with-googles-tools-for-2024/"><u>Streamline Your Audio Content with Google’s Tools for 2024</u></a></li>
 </ul></div>
 

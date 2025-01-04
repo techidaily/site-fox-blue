@@ -1,7 +1,7 @@
 ---
 title: "[New] Dissecting DJi Flyer X20 FPV Headset Capabilities"
-date: 2024-08-15T10:27:23.165Z
-updated: 2024-08-16T10:27:23.165Z
+date: 2024-12-28T04:26:37.902Z
+updated: 2025-01-04T02:19:26.237Z
 tags: 
   - screen-recording
   - ai video
@@ -49,8 +49,9 @@ thumbnail: https://thmb.techidaily.com/919428e7eabfca4b711aa4a4cd51f4e93cb7908e2
 * When using head trackingfeature, the goggles have a risk of falling off.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Compatible products for DJI Goggles
 
  Available on Mavic Pro, Phantom 4 Advanced, Professional, Inspire 2, etc.
@@ -65,14 +66,12 @@ thumbnail: https://thmb.techidaily.com/919428e7eabfca4b711aa4a4cd51f4e93cb7908e2
 
  Moreover, DJI Goggles can be connected to a computer, PS4 for watching videos and gaming. But, regarding to experience…the same budget can allow you to purchase 28" 4K display.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Main features and experience
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Head Tracking
 
 ###### #1\. What is Head Tracking
@@ -95,6 +94,10 @@ thumbnail: https://thmb.techidaily.com/919428e7eabfca4b711aa4a4cd51f4e93cb7908e2
 
  The mission of 3-axis gimbal is to remove any camera shakes and stabilize the footage. But, the DJI Goggles' head tracking actually bring back these shakes which do not come from the camera itself, but as a result of the commands of head tracking.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Tapfly
 
 ###### #1\. What is Tapfly
@@ -102,8 +105,9 @@ thumbnail: https://thmb.techidaily.com/919428e7eabfca4b711aa4a4cd51f4e93cb7908e2
  With the integration of touchpad into DJI Goggles or 5D button on the Mavic Pro controller, users can access to key intelligent features. This makes navigating the internal menu system simple and intuitive.
 
 ![DJI Goggle's touchpad](https://images.wondershare.com/filmora/article-images/goggles-touchpad.gif)
+
 <!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Image resource: [DJI Official Site](https://store.dji.com/guides/dji-goggles-unboxing-and-quick-review/)
@@ -113,16 +117,14 @@ thumbnail: https://thmb.techidaily.com/919428e7eabfca4b711aa4a4cd51f4e93cb7908e2
  DJI Goggles's main interaction needs to be done through the touchpad. This touchpad supports swipe and clicks of single and double fingers. It is responsive to unusual speed. Sometimes it is too sensitive that occasionally, a swipe will be misunderstood as a click. In the case of a fault in touch, we can use double fingers to slide back to lock the touchpad.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Conclusion
 
  As DJI's first generation digital image transmission FPV goggles, I think it has a lot of room for improvement. Although Many software issues and hardware design still need to be improved, I think it worth to try.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 
 Max Wales
 
@@ -147,4 +149,22 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-video-files.techidaily.com/new-in-2024-distinguishing-yourself-with-ingenious-tiktok-profile-ideas/"><u>[New] In 2024, Distinguishing Yourself with Ingenious TikTok Profile Ideas</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-omni-angle-mounting-mechanisms-for-2024/"><u>[New] Omni-Angle Mounting Mechanisms for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-snapcutsolutions-reviews-extensive-critique/"><u>[Updated] 2024 Approved SnapCutSolutions Reviews – Extensive Critique</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-mastering-instagram-adding-borders-to-videos/"><u>[Updated] In 2024, Mastering Instagram Adding Borders to Videos</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-top-10-hidden-strategies-in-canvas-image-design-toolkit/"><u>[Updated] Top 10 Hidden Strategies in Canva's Image Design Toolkit</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-explaining-instagrams-inverted-video-effect/"><u>2024 Approved Explaining Instagram’s Inverted Video Effect</u></a></li>
+<li><a href="https://some-tips.techidaily.com/configuring-macos-ventura-setting-up-safari-to-auto-close-tabs-comprehensive-guide/"><u>Configuring MacOS Ventura: Setting Up Safari to Auto-Close Tabs - Comprehensive Guide</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210133168-9781644112090-crazy-wisdom-of-the-yogini/"><u>Crazy Wisdom of the Yogini | Free Book</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/download-updated-nvidia-rtx-2060-drivers-compatible-with-windows-111087/"><u>Download Updated NVIDIA RTX 2060 Drivers Compatible with Windows 11/10/8/7</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/eliminating-watermarks-from-your-stock-collections/"><u>Eliminating Watermarks From Your Stock Collections</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-cutting-edge-mounts-uninterrupted-mobile-shooting/"><u>In 2024, Cutting-Edge Mounts Uninterrupted Mobile Shooting</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-pro-series-precision-testing-the-best-of-gopro-hero5-b/"><u>In 2024, Pro-Series Precision Testing the Best of GoPro Hero5 B</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-turn-your-photos-into-a-movie-a-beginners-tutorial/"><u>New Turn Your Photos Into a Movie A Beginners Tutorial</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-cooldown-chart-on-oppo-find-x7-ultra-drfone-by-drfone-virtual-android/"><u>Pokémon Go Cooldown Chart On Oppo Find X7 Ultra | Dr.fone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/windows-11-secrets-automating-selective-file-shifts/"><u>Windows 11 Secrets: Automating Selective File Shifts</u></a></li>
+</ul></div>
 

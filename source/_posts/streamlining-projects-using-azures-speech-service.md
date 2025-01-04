@@ -1,7 +1,7 @@
 ---
 title: "Streamlining Projects Using Azure's Speech Service"
-date: 2024-08-15T10:30:47.586Z
-updated: 2024-08-16T10:30:47.586Z
+date: 2024-12-28T03:33:02.606Z
+updated: 2025-01-04T00:15:07.424Z
 tags: 
   - screen-recording
   - ai video
@@ -50,6 +50,10 @@ Step3The program will take a while to deploy an instance. Now tap Keys and endpo
 
 ![micrsoft azure speech to text copy key and region](https://images.wondershare.com/filmora/article-images/2022/07/microsoft-speech-to-text-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step4Download and install Microsoft Visual C++ and .NET Core 3.1 Runtime. Next, install Speech CL on .NET by running this command “**dotnet tool install -global Microsoft.CognitiveServices.Speech.CLI.**” Alternatively, download and install Speech CLI for Windows PCs as a [ZIP file](https://aka.ms/speech/spx-windows).
 
 Step5Now enter the Azure regional identifier and subscription key on Windows Terminal or PowerShell. To configure the region and key, run these commands; “**spx config @key --set SUBSCRIPTION-KEY** and **spx config @region --set REGION.**”
@@ -66,6 +70,10 @@ We should all agree that using Microsoft Azures Speech Service is not a walk in 
 
 Fortunately, there's no shortage of free speech to text converters for beginners. So, in this part, we'll discuss some free Microsoft Azure STT alternatives for beginners.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1\. [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
 
 Let's start with the best offline speech-to-text converter for macOS and Windows systems - Filmora. It's a video editor for creating award-winning videos without prior editing skills. Just upload your local video and edit it as you please. And yes, it works with a host of video formats.
@@ -74,9 +82,6 @@ When you want to make perfect videos, you can use Filmora's STT feature. Wonders
 
 What's more, now Filmora's STT feature supports direct transcription of bilingual subtitles with up to 27 languages of transcription in Filmora.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Top Adavantages of Filmora STT
 
 * Supports direct transcription of bilingual subtitles.
@@ -88,8 +93,9 @@ What's more, now Filmora's STT feature supports direct transcription of bilingua
 [Make STT Videos](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
 <!-- affiliate ads begin -->
-<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Use Filmora To Make STT videos
 
 ##### Step 1
@@ -98,6 +104,10 @@ Select the audio asset in the timeline, and click the "Speech-to-Text" icon in t
 
 ![toolbar stt](https://images.wondershare.com/filmora/guide/guide-win/toolbar-stt.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##### Step 2
 
 Click the "Speech-to-Text" icon, and it will show the parameter settings. You can choose the languages to be transcribed and to be transcribed to. Filmora's STT feature supports direct transcription of bilingual subtitles with up to 27 languages of transcription
@@ -105,14 +115,12 @@ Click the "Speech-to-Text" icon, and it will show the parameter settings. You ca
 ![parameter setting](https://images.wondershare.com/filmora/guide/guide-win/setting-stt.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 2\. Google Docs - Free
 
 ![micrsoft azure speech to text alternative google docs](https://images.wondershare.com/filmora/article-images/2022/07/microsoft-speech-to-text-6.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
-<!-- affiliate ads end -->
 
 If you're looking for free voice typing software, you're better off with Google Docs. Most of you may not be aware that Google Docs can accurately convert speech to text. This makes it a handy tool if you find speaking easier than writing. As expected, this voice transcription tool recognizes hundreds of languages, like English, French, Italian, Hindi, etc.
 
@@ -129,8 +137,9 @@ Step3Click the Microphone icon to start dictating texts on Google Docs. After di
 ### 3.[Audtext](https://audext.com/) \- $60 one-time fee
 
 ![micrsoft azure speech to text alternative audtext](https://images.wondershare.com/filmora/article-images/2022/07/microsoft-speech-to-text-7.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 If Google's voice recognition service is too slow for your liking, consider Audtext. It's a highly rated online program that uses cutting-edge machine learning technology to transcribe audio to text in 60+ languages. You can easily train this program to identify the speaker in your interview or podcast file.
@@ -145,9 +154,6 @@ Step2Drag-n-drop your video or audio file on the program and then choose the tra
 
 Step3Finally, click the transcribed text file to edit it with new texts and punctuations on the inbuilt editor. You can export your transcription in .txt, .srt, or .docx formats. Directly export to Google Drive is also available.
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
-<!-- affiliate ads end -->
 ## Final Words
 
 Up to this point, you should be ready to get started with the **Microsoft Cognitive Services Speech**. The speech-to-text feature allows you to convert unlimited voices to text on your computer. However, the program can be challenging to set up if you're not a techie.
@@ -161,9 +167,6 @@ In that case, use a more straightforward option like Google Docs to dictate text
 [Try STT Now](https://tools.techidaily.com/wondershare/filmora/download/) [Try STT Now](https://tools.techidaily.com/wondershare/filmora/download/) [Explore STT](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![Wondershare Filmora](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
-<!-- affiliate ads end -->
 
 
 <ins class="adsbygoogle"
@@ -182,4 +185,21 @@ In that case, use a more straightforward option like Google Docs to dictate text
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-high-end-horizons-the-elite-8k-camera-selection/"><u>[New] High-End Horizons The Elite 8K Camera Selection</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-jumpstart-your-meme-making-skills-with-9gag-techniques/"><u>[New] Jumpstart Your Meme-Making Skills with 9GAG Techniques</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-pros-and-cons-gopro-hero-4-vs-drift-ghost-s-racing-edition/"><u>[Updated] 2024 Approved Pros & Cons GoPro Hero 4 Vs. Drift Ghost-S Racing Edition</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-elite-desktopmobile-communication-software-zoom-substitutes-for-2024/"><u>[Updated] Elite Desktop/Mobile Communication Software (Zoom Substitutes) for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-in-depth-analysis-of-googles-voice-to-text-capabilities/"><u>[Updated] In 2024, In-Depth Analysis of Google's Voice-to-Text Capabilities</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-masterful-viewing-for-artists-best-monitor-guide/"><u>[Updated] In 2024, Masterful Viewing for Artists – Best Monitor Guide</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-top-8-android-visionaries-for-speedy-videos-for-2024/"><u>[Updated] Top 8 Android Visionaries for Speedy Videos for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-who-wins-in-speed-duel-gopro-hero4-or-drift-ghost-s/"><u>[Updated] Who Wins in Speed Duel? GoPro Hero4 or Drift Ghost-S?</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/essential-open-source-image-enhancement-software/"><u>Essential Open Source Image Enhancement Software</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/fine-tuning-frames-a-comprehensible-approach-to-iphone-editing/"><u>Fine-Tuning Frames A Comprehensible Approach to iPhone Editing</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-from-concept-to-reality-polarr-photo-editor-simplified/"><u>In 2024, From Concept to Reality Polarr Photo Editor Simplified</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-quick-and-easy-techniques-for-iphone-sound-recording/"><u>In 2024, Quick and Easy Techniques for iPhone Sound Recording</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/streamline-your-content-best-12-html5-video-tools-for-2024/"><u>Streamline Your Content Best 12 HTML5 Video Tools for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/unveiling-the-latest-in-computing-a-journey-with-toms-hardware-expertise/"><u>Unveiling the Latest in Computing: A Journey with Tom's Hardware Expertise</u></a></li>
+</ul></div>
 

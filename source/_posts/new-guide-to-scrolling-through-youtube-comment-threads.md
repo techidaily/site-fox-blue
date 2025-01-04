@@ -1,7 +1,7 @@
 ---
 title: "[New] Guide to Scrolling Through YouTube Comment Threads"
-date: 2024-12-22T18:34:55.064Z
-updated: 2024-12-25T18:54:15.699Z
+date: 2025-01-03T01:25:07.686Z
+updated: 2025-01-04T03:07:28.703Z
 tags: 
   - screen-recording
   - ai video
@@ -41,6 +41,10 @@ Not only does it show your fans followers that you care about what they have to 
 
 For YouTubers who are serious about growing their channel and making their brand profitable, you know by now that there are certain tricks and strategies that you have to apply and put in place to make your YouTube channel what you want it to be.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Advantage of YouTube comments
 
 If you're wondering whether you really need to monitor your YouTube comments, here are three compelling reasons why you should:
@@ -50,7 +54,7 @@ If you're wondering whether you really need to monitor your YouTube comments, he
 * YouTube comments could help you develop new content: YouTube users aren't shy about expressing their opinions. Pay attentions to what they're saying about your content, and how can develop new content that they want to see.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Comment on a YouTube Video
@@ -66,7 +70,7 @@ Step1 Below the video itself, find the comment section.
 ![find the comment section youtube](https://images.wondershare.com/filmora/article-images/2022/11/find-the-comment-section-youtube.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step2 Type your message in the add a comment field. (if you're writing on your phone you can tap the comment section to expand it.
@@ -92,7 +96,7 @@ Step2 On the YouTube homepage, click on the three horizontal parallel lines in t
 ![horizontal parallel lines youtube](https://images.wondershare.com/filmora/article-images/2022/11/horizontal-parallel-lines-youtube.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step3 From the drop down menu, select “History”.
@@ -101,13 +105,13 @@ Step4 On the right side under the “Manage all history” section, click on “
 
 ![manage all history comments youtube](https://images.wondershare.com/filmora/article-images/2022/11/manage-all-history-comments-youtube.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step5 To edit your comment, click on the “vertical ellipsis” (three vertical dots) on the far right side of the listed video page.
 
 Step6 Make the necessary edits and choose “Save”.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Highlighted Comments and Replies on YouTube
 
@@ -134,10 +138,6 @@ Retrieve a comment so that you can share it with others outside of YouTube.
 Comments history also contains the link to the video where you've left the comment along with the date and time when the comment was made. Clicking on this link will open the video page with your comment highlighted at the top of the comment section.
 
 ![delete unwanted youtube comments](https://images.wondershare.com/filmora/article-images/2022/11/delete-unwanted-youtube-comments.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -175,19 +175,18 @@ One way you can encourage people to leave comments on your videos is to finish t
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-quick-tips-making-high-quality-recordings-on-iphone/"><u>[New] 2024 Approved Quick Tips Making High-Quality Recordings on iPhone</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-every-creators-guide-to-youtube-revenue/"><u>[New] In 2024, Every Creator's Guide to YouTube Revenue</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-step-by-step-designing-striking-youtube-thumbnails-with-macos/"><u>[Updated] In 2024, Step-by-Step Designing Striking Youtube Thumbnails with macOS</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-optimize-youtube-submission-swift-rendering-and-uploading-methods/"><u>[Updated] Optimize YouTube Submission - Swift Rendering and Uploading Methods</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-the-essential-list-for-screen-clarity-top-7-android-adblockers/"><u>[Updated] The Essential List for Screen Clarity Top 7 Android AdBlockers</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-best-kept-secrets-elite-mac-speech-apps-youre-missing-out-on/"><u>2024 Approved Best-Kept Secrets Elite Mac Speech Apps You're Missing Out On</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-elite-15-luts-transforming-gopro-action-footage/"><u>2024 Approved Elite 15 LUTs Transforming GoPro Action Footage</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-five-to-fiveteen-tactics-against-oculus-discomfort/"><u>2024 Approved Five to Fiveteen Tactics Against Oculus Discomfort</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-master-the-art-of-livestreaming-three-key-approaches-subscriber-less-style/"><u>2024 Approved Master the Art of Livestreaming Three Key Approaches, Subscriber-Less Style</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-mastering-chroma-key-techniques-in-live-broadcasts/"><u>2024 Approved Mastering Chroma Key Techniques in Live Broadcasts</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/drive-engagement-crafting-an-animated-subscribe-button-in-filmoras-step-by-step-guide-for-2024/"><u>Drive Engagement Crafting an Animated Subscribe Button in Filmora's Step-by-Step Guide for 2024</u></a></li>
-<li><a href="https://win-guides.techidaily.com/find-your-perfect-alternative-to-syncback-efficient-data-protection-with-aomei-backupper-on-various-windows-versions/"><u>Find Your Perfect Alternative to SyncBack: Efficient Data Protection with AOMEI Backupper on Various Windows Versions</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/ultimate-guide-to-the-best-credit-card-readers-by-zdnets-tech-experts/"><u>Ultimate Guide to the Best Credit Card Readers by ZDNet's Tech Experts</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/vanishing-acts-how-to-blur-faces-and-objects-online/"><u>Vanishing Acts How to Blur Faces and Objects Online</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-chronology-of-success-best-release-schedule/"><u>[New] Chronology of Success Best Release Schedule</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-color-crafting-chronicles-pro-techniques-compilation-for-2024/"><u>[New] Color Crafting Chronicles Pro Techniques Compilation for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-eliminating-oculus-sickness-key-tactics/"><u>[New] Eliminating Oculus Sickness Key Tactics</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-essential-tactics-for-gratis-picture-frames-on-screen/"><u>[New] Essential Tactics for Gratis Picture Frames on Screen</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-effective-online-channels-for-youtube-advertising/"><u>[New] In 2024, Effective Online Channels for YouTube Advertising</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/advanced-android-video-and-screenshot-tools-top-5-selection-for-2024/"><u>Advanced Android Video & Screenshot Tools, Top 5 Selection for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/crafting-compelling-ad-messages-a-3-phase-copywriting-guide/"><u>Crafting Compelling Ad Messages A 3 Phase Copywriting Guide</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-open-source-templates-galore-boosting-your-biz-presentations/"><u>In 2024, Open Source Templates Galore Boosting Your Biz Presentations</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/lolkit-design-memes-and-graphics-with-a-click/"><u>LolKit Design Memes & Graphics with a Click</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/micronics-aims-to-mainstream-additive-manufacturing-with-a-desktop-sized-affordable-sls-3d-printer-at-299eplus06/"><u>Micronics Aims to Mainstream Additive Manufacturing with a Desktop-Sized, Affordable SLS 3D Printer at $2,99E+06</u></a></li>
+<li><a href="https://extra-information.techidaily.com/the-art-of-movement-enhancing-your-photos-with-illustrators-motion-blur/"><u>The Art of Movement Enhancing Your Photos with Illustrator's Motion Blur</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/tips-for-extracting-tweets-as-mp3-audio-files/"><u>Tips for Extracting Tweets as MP3 Audio Files</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/unveiling-audio-transformation-techniques-for-ps5ps4/"><u>Unveiling Audio Transformation Techniques for PS5/PS4</u></a></li>
 </ul></div>
 

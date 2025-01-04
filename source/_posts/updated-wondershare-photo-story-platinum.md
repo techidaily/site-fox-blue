@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Wondershare Photo Story Platinum"
-date: 2024-08-15T10:32:08.348Z
-updated: 2024-08-16T10:32:08.348Z
+date: 2024-12-29T22:26:44.907Z
+updated: 2025-01-04T07:01:01.537Z
 tags: 
   - screen-recording
   - ai video
@@ -32,6 +32,10 @@ Wondershare Photo Story Platinum is an intuitive photo slideshow maker which you
 
 [![Download Win Version](https://images.wondershare.com/style/images/download-btn-win.png)](https://download.wondershare.com/dsb%5Fdeluxe%5Ffull18.exe)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Key Features of Photo Story Platinum
 
 * Easily create your show with photos, videos and music
@@ -41,8 +45,9 @@ Wondershare Photo Story Platinum is an intuitive photo slideshow maker which you
 * Directly share on YouTube, Facebook & virtually anywhere.
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### How to Use Wondershare Photo Story Platinum for Windows and Mac
 
 #### Step 1\. Add photos and videos
@@ -55,8 +60,9 @@ After the installation of the program, you will see a window with two options: s
 After the mode selection, click the Add Files button to import your photos and videos.
 
 ![photo story](https://images.wondershare.com/guide/images/dvd-slideshow-builder-deluxe-ug1.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### Step 2\. Personalize your photo story
@@ -66,9 +72,6 @@ Click the Personalize tab. Then you can add transitions, effects, background mus
 You can import your photos and videos at one time and arrange the order by dragging. To tell your own photo story, you can add captions to each photo or record your own voice by click the Voice Over button.
 
 ![Photo Story Platinum](https://images.wondershare.com/guide/images/dvd-slideshow-builder-deluxe-ug2.jpg)
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### Step 3\. Publish your photo story
 
@@ -77,16 +80,13 @@ After the customization of your photo story, click the Create tab and choose you
 The photo story maker provides sorts of methods for you. For example, if you want to burn your photo story to DVD, click Burn to DVD button. And if you want to share it on YouTube, choose Share to YouTube so that you can share it directly without open your YouTube page via browser.
 
 ![photo dvd](https://images.wondershare.com/guide/images/dvd-slideshow-builder-deluxe-ug3.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Learn more: [user guide of Photo Story Platinum for Windows](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/) here.
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
-</a>
-<!-- affiliate ads end -->
 ### Supported Output Formats by Web Converter
 
 * **DVD**: Standard DVD (D5 or D9)
@@ -97,20 +97,12 @@ Learn more: [user guide of Photo Story Platinum for Windows](https://tools.techi
 Learn about the detailed [technical specifications](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/) of Wondershare Photo Story Platinum for Windows.
 
 [![Download Win Version](https://images.wondershare.com/style/images/download-btn-win.png)](https://download.wondershare.com/dsb%5Fdeluxe%5Ffull18.exe)
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="1080" height="1620" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -135,4 +127,22 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-restful-narratives-on-display/"><u>[Updated] 2024 Approved Restful Narratives on Display</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-capture-the-crash-top-surf-cameras-of-2023-for-2024/"><u>[Updated] Capture the Crash Top Surf Cameras of 2023 for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-high-impact-imaging-our-favorite-7-4k-cameras/"><u>[Updated] High-Impact Imaging Our Favorite 7 4K Cameras</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-best-practices-for-screen-recording-phones/"><u>[Updated] In 2024, Best Practices for Screen Recording Phones</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-efficiently-obtain-youtube-srt-files-in-three-methods/"><u>[Updated] In 2024, Efficiently Obtain YouTube SRT Files in Three Methods</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-high-quality-video-transfer-from-fb-to-mp4-no-cost-online-method/"><u>[Updated] In 2024, High-Quality Video Transfer From FB to MP4 – No Cost Online Method</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/digital-artistry-on-your-phone-top-8-multimedia-enhancement-apps/"><u>Digital Artistry on Your Phone Top 8 Multimedia Enhancement Apps</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/fix-the-missing-save-feature-in-windows-volume-mixer/"><u>Fix the Missing Save Feature in Windows Volume Mixer</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/how-to-use-gopro-hero5-black-tips-for-shooting-great-photos-and-videos/"><u>How to Use GoPro Hero5 Black Tips for Shooting Great Photos and Videos</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-3-ways-for-android-pokemon-go-spoofing-on-oppo-a59-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways for Android Pokemon Go Spoofing On Oppo A59 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-advanced-techniques-for-trimming-youtube-footage/"><u>In 2024, Advanced Techniques for Trimming YouTube Footage</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-bypass-icloud-activation-lock-with-imei-code-on-your-apple-iphone-6s-plus-by-drfone-ios/"><u>In 2024, Bypass iCloud Activation Lock with IMEI Code On your Apple iPhone 6s Plus</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-gps-joystick-to-fake-gps-location-on-samsung-galaxy-f34-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Complete Tutorial to Use GPS Joystick to Fake GPS Location On Samsung Galaxy F34 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-join-jargon-free-youtube-chats/"><u>In 2024, Join Jargon-Free YouTube Chats</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/quick-guide-how-to-save-your-devices-driver-files-prior-to-reinstalling-any-version-of-windows/"><u>Quick Guide: How to Save Your Device's Driver Files Prior to Reinstalling Any Version of Windows</u></a></li>
+</ul></div>
 

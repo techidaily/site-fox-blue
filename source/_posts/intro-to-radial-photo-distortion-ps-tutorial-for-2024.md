@@ -1,7 +1,7 @@
 ---
 title: "\"Intro to Radial Photo Distortion  PS Tutorial for 2024\""
-date: 2024-08-22T18:23:28.549Z
-updated: 2024-08-23T18:23:28.549Z
+date: 2024-12-28T23:45:16.845Z
+updated: 2025-01-04T05:32:47.323Z
 tags: 
   - screen-recording
   - ai video
@@ -30,6 +30,10 @@ The radial blur effect is somehow similar to motion blur. This effect can be cre
 
 Moreover, the **radial blur effect** can also evoke certain emotions by transforming the image. To create this effect, you have to be precise and accurate with your camera movements. Hence, you can bring focus and display a certain speed in your photos using the radial blur effect.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: How to Add the Radial Blur Effect to Your Photos in Photoshop?
 
 To craft a **radial blur image**, many individuals prefer using [Adobe Photoshop](https://www.adobe.com/products/photoshop.html). The main reason behind the immense popularity of Photoshop is its polished and well-design interface. Along with an intuitive interface, it also consists of various AI-supported features. You can use its color grading tools to manage the saturation, brightness, hue, and contrast levels of your photo. Moreover, you can also add layers to your photo if you want to bring extra dynamics.
@@ -44,24 +48,26 @@ Step1 Open your Photoshop tool and upload the image that you want to edit. Click
 
 ![select the quick selection tool](https://images.wondershare.com/filmora/article-images/2022/12/radial-blur-effect-to-photos-2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step2 To refine the selection, use the Alt key from your keyboard. Once done with the refinement, press "Ctrl + J" to copy the new background layer. To create the background layer on Mac, hit the "Command + J" combination.
 
 ![add the background layer](https://images.wondershare.com/filmora/article-images/2022/12/radial-blur-effect-to-photos-3.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Step3 Afterward, click on the background layer and head to the "Filter" tab. From there, select "Blur" and tap "Radial Blur" from the drop-down menu. Adjust on the Radial Blur window by choosing "Zoom" as Blur Method. Also, select "Best" under the Quality section. Once done, adjust your Blur Center from the window.
 
 ![proceed with the radial blur](https://images.wondershare.com/filmora/article-images/2022/12/radial-blur-effect-to-photos-4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step4 After making all the adjustments in the Radial Blur window, press the "OK" button. Once done, select the top layer and add a "Curve Adjustment Layer." Now adjust the curve properties according to your preference. Thus, you can see the radial blur effect on your photo on your screen.
 
 ![adjust the curves](https://images.wondershare.com/filmora/article-images/2022/12/radial-blur-effect-to-photos-5.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Bonus Tips – The Alternative to Photoshop to Create Radial Blur Effect
 
 Are you finding it challenging to create a radial blur in Photoshop? If yes, there is no need to worry, as we will provide you with the best alternative to Photoshop. The best available tool that offers high-end effects and other functions in a friendly interface is [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/). This tool can make your editing experience delightful and extremely simple.
@@ -75,8 +81,9 @@ For photo and video editing, Filmora provides several features such as Split Scr
 When it comes to effects, Filmora provides tons of vibrant effects such as Boris FX, Chroma Key, Mask and Blend, NewBlue FX, etc. Besides being a great photo and video editor, you can use this platform to edit and alter audio clips.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Steps to Create Radial Blur Effect Using Filmora
 
 Creating a radial blur effect in Filmora is extremely simple and easy. Its intuitive interface allows you to add a radial blur effect instantly with a few clicks. For your convenience, we have mentioned precise and authentic instructions below to create a radial blur effect in Filmora:
@@ -87,10 +94,6 @@ Begin by launching Wondershare Filmora on your PC. Afterward, tap on the "Create
 
 ![import the photo in filmora](https://images.wondershare.com/filmora/article-images/2022/12/radial-blur-effect-to-photos-6.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ##### Step 2 Add the Required Effect
 
 Drag and drop the photo in the timeline to proceed. Now go to the Effects tab and tap on the "Video Effects" option. From there, tap on "Utility" to explore multiple effects. Here, there are three blur effects that you can utilize: Mosaic, Tilt-shift Circle, and Tilt-shift Linear.
@@ -98,8 +101,9 @@ Drag and drop the photo in the timeline to proceed. Now go to the Effects tab an
 ![access the video effects](https://images.wondershare.com/filmora/article-images/2022/12/radial-blur-effect-to-photos-7.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##### Step 3 Adjust the Blur Settings
 
 Choose your preferred effect and drop it into the timeline. Now increase the duration of your effect according to the clip. Once done, double-click on the effect to open its properties. Here, you can adjust the size, intensity, and other elements of the blur effect.
@@ -112,9 +116,6 @@ You can also edit the clip by adding titles or more effects. Once done with the 
 
 ![export the photo with radial blur](https://images.wondershare.com/filmora/article-images/2022/12/radial-blur-effect-to-photos-9.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Conclusion
 
 Many photographers and professionals apply different techniques or effects to enhance their photos. One of the trending effects that can add an artistic element to the fast-moving objects in your photos is the radial blur effect. This effect can bring attention and focus to your photos.
@@ -127,10 +128,6 @@ For photo and video editing, Filmora provides several features such as Split Scr
 
 When it comes to effects, Filmora provides tons of vibrant effects such as Boris FX, Chroma Key, Mask and Blend, NewBlue FX, etc. Besides being a great photo and video editor, you can use this platform to edit and alter audio clips.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
-DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
-<!-- affiliate ads end -->
 ### Steps to Create Radial Blur Effect Using Filmora
 
 Creating a radial blur effect in Filmora is extremely simple and easy. Its intuitive interface allows you to add a radial blur effect instantly with a few clicks. For your convenience, we have mentioned precise and authentic instructions below to create a radial blur effect in Filmora:
@@ -142,9 +139,9 @@ Begin by launching Wondershare Filmora on your PC. Afterward, tap on the "Create
 ![import the photo in filmora](https://images.wondershare.com/filmora/article-images/2022/12/radial-blur-effect-to-photos-6.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
-The ultimate burning program for all your needs!</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##### Step 2 Add the Required Effect
 
 Drag and drop the photo in the timeline to proceed. Now go to the Effects tab and tap on the "Video Effects" option. From there, tap on "Utility" to explore multiple effects. Here, there are three blur effects that you can utilize: Mosaic, Tilt-shift Circle, and Tilt-shift Linear.
@@ -157,14 +154,15 @@ Choose your preferred effect and drop it into the timeline. Now increase the dur
 
 ![adjust the added blur settings](https://images.wondershare.com/filmora/article-images/2022/12/radial-blur-effect-to-photos-8.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 ##### Step 4 Edit the Clip
 
 You can also edit the clip by adding titles or more effects. Once done with the edits, hit the "Export" button given on top.
 
 ![export the photo with radial blur](https://images.wondershare.com/filmora/article-images/2022/12/radial-blur-effect-to-photos-9.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -194,4 +192,22 @@ By reading this article, you have learned how to add a radial blur effect using 
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-a-beginners-primer-on-virtual-reality-concepts-for-2024/"><u>[New] A Beginner's Primer on Virtual Reality Concepts for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-proven-methods-to-elevate-patient-testimonial-videos/"><u>[New] In 2024, Proven Methods to Elevate Patient Testimonial Videos</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-zip-to-srt-converting-zip-extracts-to-subtitle-files/"><u>[New] Zip to SRT Converting ZIP Extracts to Subtitle Files</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-audio-excellence-with-windows-11-a-beginner-written-by-your-name-for-2024/"><u>[Updated] Audio Excellence with Windows 11 A Beginner' Written by [Your Name] for 2024</u></a></li>
+<li><a href="https://win-blog.techidaily.com/acrocefexeexe-application-failure-heres-how-you-can-repair-it/"><u>acrocefexe.exe Application Failure? Here's How You Can Repair It!</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/boost-your-apple-watchs-endurance-with-these-essential-battery-saving-tweaks-expert-tips/"><u>Boost Your Apple Watch's Endurance with These Essential Battery-Saving Tweaks - Expert Tips</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/commanding-the-screen-top-10-women-gamers-yt/"><u>Commanding the Screen Top 10 Women Gamers YT</u></a></li>
+<li><a href="https://techtrends.techidaily.com/detailed-fix-for-the-elusive-mfc4eb0adll-not-found-or-missing-error/"><u>Detailed Fix for the Elusive MFC4EB0A.dll: Not Found or Missing Error</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/efficiently-change-zip-to-srt-file-format-for-2024/"><u>Efficiently Change ZIP to SRT File Format for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/ideal-extra-memory-for-sony-a7c-model-for-2024/"><u>Ideal Extra Memory for Sony A7C Model for 2024</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-easiest-guide-how-to-clone-asus-rog-phone-8-pro-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Easiest Guide How to Clone Asus ROG Phone 8 Pro Phone? | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-fix-ipad-or-iphone-6s-plus-stuck-on-activation-lock-by-drfone-ios/"><u>In 2024, How to Fix iPad or iPhone 6s Plus Stuck On Activation Lock?</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-tech-hack-for-free-swiftly-remove-red-eyes-from-iphone-photos/"><u>In 2024, Tech Hack for Free Swiftly Remove Red Eyes From iPhone Photos</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/newly-updated-set-of-chat-starters-for-podcast-success/"><u>Newly Updated Set of Chat Starters for Podcast Success</u></a></li>
+<li><a href="https://program-issues.techidaily.com/pc-players-unite-conquer-persistent-crashes-during-horizon-forbidden-west-gameplay/"><u>PC Players Unite! Conquer Persistent Crashes During Horizon Forbidden West Gameplay</u></a></li>
+</ul></div>
 

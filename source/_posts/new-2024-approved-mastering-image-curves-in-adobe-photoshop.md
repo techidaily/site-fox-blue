@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Mastering Image Curves in Adobe Photoshop\""
-date: 2024-12-20T18:46:21.821Z
-updated: 2024-12-25T19:54:21.879Z
+date: 2025-01-01T23:53:27.620Z
+updated: 2025-01-04T03:32:37.446Z
 tags: 
   - screen-recording
   - ai video
@@ -28,7 +28,7 @@ In this Photoshop tutorial, we're going to carve an image using four simple step
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Simple Steps to Curve an Image in Photoshop
@@ -60,7 +60,7 @@ Play around with the settings in the options bar. There are quite a few differen
 ![change horizontal distortion photoshop](https://images.wondershare.com/filmora/article-images/2022/09/change-horizontal-distortion-photoshop.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Vertical Distortion** makes the image look as if it's leaning backward.
@@ -72,12 +72,16 @@ The **Bend Direction** option rotates the angle of the bend.
 ![bend direction image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/bend-direction-image-photoshop.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Flip any of these effects in the opposite direction by placing a negative sign in front of the percentage. Here's -20% in the **Bend** box with a vertical bend.
 
 ![flip effect image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/flip-effect-image-photoshop.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ##### Step4Save the Image
 
@@ -86,11 +90,7 @@ Once you're happy with the way your image looks, go to File > Save As in the men
 ![save curve image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/save-curve-image-photoshop.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -127,18 +127,20 @@ We hope this post has helped you learn how to curve an image in Photoshop. The b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/ontinuous-streams-perfect-loops-of-youtube-videos-for-tvs/"><u>[New] Continuous Streams Perfect Loops of YouTube Videos for TVs</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-harmonizing-hearts-interacting-with-a-diverse-subscriber-base/"><u>[New] Harmonizing Hearts Interacting with a Diverse Subscriber Base</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-splash-to-fame-surfers-choice-camera-picks-2e3/"><u>[New] In 2024, Splash to Fame Surfer's Choice Camera Picks (2E3)</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-quick-ig-post-featuring-podcast-insight/"><u>[Updated] 2024 Approved Quick IG Post Featuring Podcast Insight</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-how-much-can-you-earn-on-youtube-via-ad-revenue/"><u>[Updated] How Much Can You Earn on YouTube via Ad Revenue?</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-groove-gatherers-try-our-cost-free-beats-scanners/"><u>[Updated] In 2024, Groove Gatherers Try Our Cost-Free Beats Scanners</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-ethereal-evenings-select-10-websites-for-hd-astronomical-shots/"><u>2024 Approved Ethereal Evenings Select 10 Websites for HD Astronomical Shots</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/breaking-down-the-barriers-of-interlace-artifacts/"><u>Breaking Down the Barriers of Interlace Artifacts</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-affordable-hd-action-cam-hits-top-list/"><u>In 2024, Affordable HD Action Cam Hits Top List</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-tech-battle-royale-comparing-the-latest-action-cams-gopro-and-garmin-virb/"><u>In 2024, Tech Battle Royale Comparing the Latest Action Cams, GoPro & Garmin VIRB</u></a></li>
-<li><a href="https://win-blog.techidaily.com/swtor-not-starting-discover-the-proven-techniques-to-get-back-in-game/"><u>SWTOR Not Starting? Discover the Proven Techniques to Get Back in Game</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/unleash-creativity-on-the-fly-android-and-iphones-video-magic-for-2024/"><u>Unleash Creativity on the Fly Android & iPhone's Video Magic for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/1726029735859-youtube/"><u>YouTubeビデオ字幕抽出方法詳細解説</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-stabilize-your-story-a-guide-to-steadying-handheld-gopro-recordings/"><u>[Updated] 2024 Approved Stabilize Your Story A Guide to Steadying Handheld GoPro Recordings</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-iphone-filmmaking-masterclass-8-steps-to-pro-video-excellence/"><u>[Updated] In 2024, IPhone Filmmaking Masterclass 8 Steps to Pro Video Excellence</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-unraveling-online-video-discussions/"><u>[Updated] In 2024, Unraveling Online Video Discussions</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-navigating-through-youtube-settings-to-mute-snapshots/"><u>[Updated] Navigating Through YouTube Settings to Mute Snapshots</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-top-30-pro-windows-10-mastery-hacks/"><u>[Updated] Top 30 Pro Windows 10 Mastery Hacks</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/a-practical-guide-to-using-vsco-for-professionals/"><u>A Practical Guide to Using VSCO for Professionals</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/all-you-need-to-know-about-streaming-the-2024-olympiad-a-step-by-step-guide/"><u>All You Need to Know About Streaming the 2024 Olympiad – A Step-by-Step Guide</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/analyzing-the-hp-stream-14-navigating-trade-offs-for-economical-computing/"><u>Analyzing the HP Stream 14: Navigating Trade-Offs for Economical Computing</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/cookiebot-integration-key-to-unlocking-next-level-data-insights-for-sites/"><u>Cookiebot Integration: Key to Unlocking Next-Level Data Insights for Sites</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/embark-on-a-cinematic-journey-step-by-step-tutorial-for-creating-slow-motion-video-from-stills-online/"><u>Embark on a Cinematic Journey Step-by-Step Tutorial for Creating Slow-Motion Video From Stills Online</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/get-more-for-less-with-the-amazing-value-and-efficiency-of-arcshells-ar-5-reviewed-here/"><u>Get More for Less with the Amazing Value and Efficiency of ArcShell's AR-5 Reviewed Here!</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-to-bypass-oneplus-open-s-lock-screen-pattern-pin-or-password-by-drfone-android-unlock-android-unlock/"><u>How to bypass OnePlus Open’s lock screen pattern, PIN or password</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/isolated-audio-interruption-fixed-guide-for-2024/"><u>Isolated Audio Interruption Fixed Guide for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/oculus-troubleshooting-masterclass-overcoming-hardware-challenges/"><u>Oculus Troubleshooting Masterclass: Overcoming Hardware Challenges</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/visionary-ai-devices-unveiling-the-top-5-pioneering-tech-marvels/"><u>Visionary AI Devices: Unveiling the Top 5 Pioneering Tech Marvels</u></a></li>
 </ul></div>
 

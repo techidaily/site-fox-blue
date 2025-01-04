@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Ancient Artifacts – iPhone X Selfies"
-date: 2024-12-19T22:33:01.575Z
-updated: 2024-12-25T21:29:43.467Z
+date: 2024-12-30T01:09:14.044Z
+updated: 2025-01-03T22:57:54.347Z
 tags: 
   - screen-recording
   - ai video
@@ -36,7 +36,7 @@ In this article, we are going to show you how to take photos in Portrait Mode, o
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Tips for iPhone portrait photos
@@ -45,7 +45,7 @@ In this article, we are going to show you how to take photos in Portrait Mode, o
 * [Part 1: For iPhone 8, 7 or older iPhones users](#part2)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### For iPhone 7 Plus/8 Plus/X users
@@ -75,7 +75,7 @@ Launch the Camera app, and swipe to the Portrait option, and then tap on the Cam
 If there is not enough light or if you are too far away from the camera, the app will show messages that remind you to add more light to your shot or hold the camera closer to the subject of the photo. It is worth noting that the app will not let you take a photo until you do everything that messages on the screen demand from you. However, the Portrait Mode doesn't allow you to take several photos at once, but it still produces amazing pictures that can be easily shared on social media.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### For iPhone 8, 7 or older iPhones users
@@ -89,7 +89,7 @@ If there is not enough light or if you are too far away from the camera, the app
 ![ezy-watermark-lite-photo](https://images.wondershare.com/filmora/article-images/ezy-watermark-lite-photo.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Older iPhone models may not have a twin-lens system, but with the aid of a camera app such as FabFocus, iPhone photographers can easily take photos with smooth blurry backgrounds. The Automatic Depth of Field and Bokeh options enable you to add as much blur as you want to your photos and create DSLR-like images. The app also contains basic photo editing tools that can be used to touch-up the photo before you share it with your friends.
@@ -122,13 +122,13 @@ The term Bokeh comes from the Japanese language and it represents the aesthetic 
 
 ![my-watermarks-a-personal-logo-signature-maker](https://images.wondershare.com/filmora/article-images/my-watermarks-a-personal-logo-signature-maker.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The plethora of blur options provided by the Defocus camera app is impressive. Dynamic Blur and Pain Blur tools provide a lot of creative freedom to the app's users while uploading a photo from the iPhone's camera roll and adding a bokeh effect to a photo is also an option. Defocus offers superb photo sharing features, which means that you can share your photos on any social media network directly from the app.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -155,24 +155,20 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-diy-tips-for-affordable-youtube-introend-videos-for-2024/"><u>[New] DIY Tips for Affordable YouTube Intro/End Videos for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-the-art-of-earning-money-with-your-facebook-page/"><u>[New] The Art of Earning Money with Your Facebook Page</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-best-yt-storytellers-for-enthralling-viewing-experience/"><u>2024 Approved Best YT Storytellers for Enthralling Viewing Experience</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-discover-the-top-15-free-web-based-editing-solutions/"><u>2024 Approved Discover the Top 15 FREE Web-Based Editing Solutions</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-extract-and-save-still-images-from-movies-in-windows-photos/"><u>2024 Approved Extract and Save Still Images From Movies in Windows Photos</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-hollywood-hacks-a-filmmakers-guide-to-cinematic-excellence/"><u>2024 Approved Hollywood Hacks A Filmmaker’s Guide to Cinematic Excellence</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-hot-hands-on-10-must-have-vr-peripherals/"><u>2024 Approved Hot Hands-On 10 Must-Have VR Peripherals</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-quantum-hdrs-role-in-modern-photography-trends/"><u>2024 Approved Quantum HDR's Role in Modern Photography Trends</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-quick-corrections-for-iphone-shot-blur-issues/"><u>2024 Approved Quick Corrections for iPhone Shot Blur Issues</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-seamless-audio-edits-with-garageband-features/"><u>2024 Approved Seamless Audio Edits with GarageBand Features</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-sony-snapshot-standstill-no-video-viewing/"><u>2024 Approved Sony Snapshot Standstill No Video Viewing</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/comment-transformer-un-fichier-mkv-gratuitement-en-dvd-avec-winx-dvd-author-sous-windows-10-8-ou-7/"><u>Comment Transformer Un Fichier MKV Gratuitement en DVD Avec WinX DVD Author Sous Windows 10, 8 Ou 7?</u></a></li>
-<li><a href="https://win-cloud.techidaily.com/exploring-the-reasons-behind-microsoft-words-frequent-crashes-during-save-operations/"><u>Exploring the Reasons Behind Microsoft Word's Frequent Crashes During Save Operations</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/garmin-vivomove-hr-smartwatch-review-a-chic-timepiece-perfect-for-active-living/"><u>Garmin Vivomove HR Smartwatch Review: A Chic Timepiece Perfect for Active Living</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-optimal-steadicams-for-professional-grade-dslr-shoots/"><u>In 2024, Optimal Steadicams for Professional-Grade DSLR Shoots</u></a></li>
-<li><a href="https://techtrends.techidaily.com/iphone-xs-and-xs-max-mastery-guide-unlocking-advanced-functionality-benefits-and-specifications/"><u>IPhone XS & XS Max Mastery Guide: Unlocking Advanced Functionality, Benefits, and Specifications</u></a></li>
-<li><a href="https://win-answers.techidaily.com/revive-your-steelseries-gg-controller-troubleshooting-the-non-responsive-engine-issue-in-windows/"><u>Revive Your SteelSeries GG Controller: Troubleshooting the Non-Responsive Engine Issue in Windows</u></a></li>
-<li><a href="https://article-helps.techidaily.com/unlocking-the-secrets-of-effective-podcast-names-plus-50plus-inspirations/"><u>Unlocking the Secrets of Effective Podcast Names, Plus 50+ Inspirations</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-social-media-personalization-is-unchangeable/"><u>Why Social Media Personalization Is Unchangeable?</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-the-ultimate-guide-to-proficiently-navigating-win-10/"><u>[New] 2024 Approved The Ultimate Guide to Proficiently Navigating Win 10</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-unlocking-viral-potential-with-ai-driven-video-titles/"><u>[New] 2024 Approved Unlocking Viral Potential with AI-Driven Video Titles</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-download-your-favorite-videos-without-limits/"><u>[New] In 2024, Download Your Favorite Videos Without Limits</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-the-photographers-guide-mobile-for-high-angle-views/"><u>[New] In 2024, The Photographer's Guide Mobile for High-Angle Views</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-innovative-approaches-to-enhancing-google-meet-visibility-for-2024/"><u>[New] Innovative Approaches to Enhancing Google Meet Visibility for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-pro-photoshop-power-top-10-canva-design-secrets/"><u>[Updated] In 2024, Pro Photoshop Power Top 10 Canva Design Secrets</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-unveil-top-8-sites-providing-free-download-of-3d-text-psdfiles/"><u>[Updated] Unveil Top 8 Sites Providing Free Download of 3D Text PSDFiles</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-immediate-screenshot-recorder-chrome/"><u>2024 Approved Immediate Screenshot Recorder (Chrome)</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/buy-the-best-screen-record-apps-on-the-market-shop-now/"><u>Buy the Best Screen Record Apps on The Market - Shop Now!</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/enhancements-coming-to-your-google-assistant-hub-whats-new-with-the-google-home-app/"><u>Enhancements Coming to Your Google Assistant Hub: What's New with the Google Home App</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/how-to-enable-cross-platform-fun-accessing-android-applications-in-windows-11-environment/"><u>How to Enable Cross-Platform Fun: Accessing Android Applications in Windows 11 Environment</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-fix-when-apple-account-locked-from-apple-iphone-12-mini-by-drfone-ios/"><u>How to Fix when Apple Account Locked From Apple iPhone 12 mini?</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-photo-sharpening-mastery-with-1-10-online-editors/"><u>In 2024, Photo Sharpening Mastery with #1-10 Online Editors</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/masterclass-in-choosing-your-best-live-streamer-for-2024/"><u>Masterclass in Choosing Your Best Live Streamer for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshooting-windows-10-cast-to-device-problems-solutions-included/"><u>Troubleshooting Windows # 10 Cast To Device Problems - Solutions Included</u></a></li>
 </ul></div>
 

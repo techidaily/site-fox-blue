@@ -1,7 +1,7 @@
 ---
 title: "[New] Expert Tips on Mastering the Preview Application on Mac for 2024"
-date: 2024-12-20T18:24:09.312Z
-updated: 2024-12-25T20:28:51.257Z
+date: 2024-12-31T00:56:23.170Z
+updated: 2025-01-03T21:18:00.011Z
 tags: 
   - screen-recording
   - ai video
@@ -35,10 +35,6 @@ That said, the sections below explain **how to use Preview on Mac** for elementa
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: How to Use Preview to Edit Images \[Complete Guide\]
 
 Being the default image editor for Mac, Apple tried to make the **Preview app** as simple as possible. Therefore, modifying the photos in the program isn’t much complicated as compared to its competitors from different vendors.
@@ -46,7 +42,7 @@ Being the default image editor for Mac, Apple tried to make the **Preview app** 
 The instructions given in the following sections explain how to edit pictures with the **Preview app for Mac**:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### How to View and Edit Photos in Preview on Mac
@@ -77,6 +73,10 @@ Click the **Hide Markup Tools** icon from the upper-right area to hide **Markup 
 
 **Note:** Throughout this demonstration, the **Markup Toolbar** is kept visible to access the editing tools easily.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### How to Crop in Preview
 
 In order to crop a photo in the **Preview app**:
@@ -93,10 +93,6 @@ Drag the mouse pointer over the area of the photo you want to keep. If need be, 
 
 Keeping the area of interest on the photo selected, click **Crop** from the **Markup Toolbar** at the top to crop the image.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### How to Rotate Image in Preview
 
 Rotating an image in the **Preview app** is fairly simple. To do so:
@@ -110,7 +106,7 @@ Use the method explained above to open the photo in Preview.
 Click the **Rotate Left** icon from the upper-right area of the standard toolbar to rotate the image anticlockwise. Alternatively, you can also click **Tools** from the top, and choose your preferred rotation direction or flipping orientation from the menu that comes down next.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### How to Add Text to Image in Preview
@@ -174,7 +170,7 @@ After opening an image, click **File** from the menu bar at the top, and click *
 Choose a destination folder in the **Where** field, select your preferred format from the **Format** drop-down list, and click **Save** to convert the image.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Part 2: FAQs About Preview App on Mac
@@ -211,6 +207,10 @@ Choose a destination folder in the **Where** field, select your preferred format
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -236,21 +236,24 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-hints.techidaily.com/new-a-comprehensible-approach-to-masterful-gopro-studio-edits/"><u>[New] A Comprehensible Approach to Masterful GoPro Studio Edits</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-crafting-visual-impact-a-guide-to-color-balancing-mastery-for-2024/"><u>[New] Crafting Visual Impact A Guide to Color Balancing Mastery for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-envision-amusing-meme-concepts-adobe-based/"><u>[New] Envision Amusing Meme Concepts, Adobe-Based</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-2023-revised-insights-on-samsungs-ubd-k850u/"><u>[Updated] 2024 Approved 2023 Revised Insights on Samsung's UBD-K850U</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-crafting-the-perfect-mobile-chime-how-to-download-and-personalize-whatsapp-tones-for-iphonesandroids/"><u>[Updated] In 2024, Crafting the Perfect Mobile Chime How to Download & Personalize WhatsApp Tones for iPhones/Androids</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-infusing-musical-streams-of-youtube-in-videos/"><u>[Updated] Infusing Musical Streams of YouTube in Videos</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-lens-legends-best-video-cameras-for-professional-use-for-2024/"><u>[Updated] Lens Legends Best Video Cameras for Professional Use for 2024</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-the-insiders-guide-to-captivating-unboxing-on-ig/"><u>[Updated] The Insider's Guide to Captivating Unboxing on IG</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/best-no-cost-cross-platform-laptop-dvd-decoders-for-2024/"><u>Best No-Cost, Cross-Platform Laptop DVD Decoders for 2024</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/delving-into-the-depths-integrating-deep-learning-in-bing-android-app/"><u>Delving Into the Depths: Integrating Deep Learning in Bing Android App</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-introduction-to-moving-graphics-core-principles/"><u>In 2024, Introduction to Moving Graphics Core Principles</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/navigate-a-2023-hack-steps-to-regain-fb-access-for-2024/"><u>Navigate a 2023 Hack Steps to Regain FB Access for 2024</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/navigating-advanced-tech-insights-on-tome-hardware-hub/"><u>Navigating Advanced Tech Insights on Tom'e Hardware Hub</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/premium-animated-design-kits-for-2024/"><u>Premium Animated Design Kits for 2024</u></a></li>
-<li><a href="https://win-able.techidaily.com/solving-the-mystery-top-6-troubleshooting-tips-when-your-steam-vr-isnt-showing-up/"><u>Solving the Mystery: Top 6 Troubleshooting Tips When Your Steam VR Isn't Showing Up</u></a></li>
-<li><a href="https://windows11.techidaily.com/streamlining-permission-fixes-for-installer-problems/"><u>Streamlining Permission Fixes for Installer Problems</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/days-gone-a-riders-tale-of-survival-and-adventure-during-zombie-apocalypse/"><u>'Days Gone': A Rider's Tale of Survival and Adventure During Zombie Apocalypse</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-15-best-luts-to-enhance-gopro-action-camera-footage/"><u>[New] 2024 Approved 15 Best LUTs To Enhance GoPro Action Camera Footage</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-the-rise-of-remote-therapeutic-platforms/"><u>[New] 2024 Approved The Rise of Remote Therapeutic Platforms</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-innovations-in-office-layout-for-enhanced-productivity/"><u>[New] In 2024, Innovations in Office Layout for Enhanced Productivity</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-unlocking-viral-potential-with-ai-driven-video-titles/"><u>[New] Unlocking Viral Potential with AI-Driven Video Titles</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-best-undersea-gopro-enhancements/"><u>[Updated] 2024 Approved Best Undersea Gopro Enhancements</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-how-to-fade-music-on-windowsmac/"><u>[Updated] How to Fade Music on Windows/Mac</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-inside-out-a-review-of-individual-3d-printing-journey/"><u>[Updated] Inside Out A Review of Individual 3D Printing Journey</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-palette-perfection-a-guide-to-grading-filmmaking/"><u>[Updated] Palette Perfection A Guide to Grading Filmmaking</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-the-cutting-edge-of-vid-extraction-top-5-free-fast-pinterest-tools-for-2024/"><u>[Updated] The Cutting Edge of Vid Extraction Top 5 Free, Fast Pinterest Tools for 2024</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/1726221139112-pgm-jpg-movavi/"><u>免費在線 PGM至 JPG 格式轉換 - 運用 Movavi 工具</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/apprendre-a-visionner-des-dvd-gratis-pas-besoin-dun-decodeur-pour-votre-confort-cinemal/"><u>Apprendre À Visionner Des DVD Gratis - Pas Besoin D'un Décodeur Pour Votre Confort Cinémal</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/1725285338903-digiarty/"><u>Digiarty에서 도움이 필요한 기사: 솔루션 및 자세 정보</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/foundations-of-mixing-adobe-auditions-fade-in-technique/"><u>Foundations of Mixing Adobe Audition’s Fade In Technique</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-strategies-for-capturing-high-quality-periscope-broadcasts/"><u>In 2024, Strategies for Capturing High-Quality Periscope Broadcasts</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/pro-camera-drones-10-elevating-film-and-photography/"><u>Pro Camera Drones #10 Elevating Film & Photography</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/turn-standard-alerts-into-personalized-unique-sounds-on-android-devices-for-2024/"><u>Turn Standard Alerts Into Personalized, Unique Sounds on Android Devices for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/ultimate-guide-to-get-the-meltan-box-pokemon-go-for-tecno-spark-10-5g-drfone-by-drfone-virtual-android/"><u>Ultimate guide to get the meltan box pokemon go For Tecno Spark 10 5G | Dr.fone</u></a></li>
+<li><a href="https://windows11.techidaily.com/unlocking-the-secrets-of-winservicesexe/"><u>Unlocking the Secrets of Winservices.exe</u></a></li>
 </ul></div>
 

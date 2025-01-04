@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Exploring Chromatics  From Theory to Tangible\""
-date: 2024-08-15T10:29:44.440Z
-updated: 2024-08-16T10:29:44.440Z
+date: 2024-12-29T02:51:30.201Z
+updated: 2025-01-03T16:09:11.681Z
 tags: 
   - screen-recording
   - ai video
@@ -29,15 +29,17 @@ Color theory consists of many elements that could fill a library on its own but 
 There are many color wheels out there and all require understanding and research into that particular color arrangement but for this guide I will be focusing on the more widely used RGB which derives from the primary colors red green and blue, If you're thinking why red green and blue not red yellow and blue then you are observant, while RYB is taught as the three primary colors we will be using what is known as additive primary colors of light meaning the more you add of these colors the closer to white you get, the reason we will be using this combination is due to the fact RYB misses a lot of hues around the violet area and the blue-greens meaning we achieve a higher range of color to pick from. With this in mind let's start.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## The Color Wheel
 
 Using red, green and blue as primary colors we can mix the colors to one another to get our secondary colors giving us yellow, magenta and cyan. We can mix these to one another to create our tertiary colors which are raspberry, orange, sprig green, turquoise, ocean and violet giving us something which looks like this
 
 ![colcor wheel](https://images.wondershare.com/filmora/article-images/2024/color-wheel.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 As you can see, we have every color available in this wheel and they are arranged in a unison with the mixed colors starting with red, green and blue and working towards each other.
@@ -47,9 +49,6 @@ As you can see, we have every color available in this wheel and they are arrange
 So now we know how the wheel is made and what it looks like. What does it do? We can use this wheel now to gather our palette. Within color theory we talk about harmonious colors that work together in a pleasant way creating less stress on the eyes to find information in your scene.
 
 ![color harmony](https://images.wondershare.com/filmora/article-images/2022/08/color-harmony.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
-<!-- affiliate ads end -->
 
 One such harmony is complementary colors and luckily for us this is very easy to find. You take your base color and find the opposite color on the wheel. In this example the complementary color to blue is yellow depicted with a red line.
 
@@ -59,16 +58,14 @@ The blue lines represent what is known as split contrasting colors and these wil
 
 The corners of the black rectangle land on what is known as tetradic complement and allows you to add four colors with the understanding that they will complement each other perfectly. Lastly is the purple line which represents the analogous complementary colors, you can pick these neighboring colors with the peace of mind that they will harmonize with each other. There are many more but these four are the main ones that you will use more often than any other, by selecting colors using these four main types you can create a palette for your scenes and allow the viewer to effortlessly enjoy your content. These types work no matter where you start from on the wheel so long as you keep the distances the same.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
-<!-- affiliate ads end -->
 ## But How Do I Use This
 
 You may still be unsure as to how to implement color theory into your videos. Let's look at some scenarios that color theory may help your creations.
 
 ![apply color theory video](https://images.wondershare.com/filmora/article-images/2022/08/apply-color-theory-video.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 In this scene the director decided that the backdrop should complement the top the actor is wearing, looking at our wheel we can see the complementary color would be dark purple so they started with that, to create a more dynamic scene they then used the analogous colors of that purple being pink and red and created the backdrop. This creates a harmony within the scene and makes it effortless to see all the key elements straight away.
@@ -77,11 +74,16 @@ As you can see from this example the base color for the scene is a dark blue/pur
 
 ![movie cover with color theory](https://images.wondershare.com/filmora/article-images/2022/08/movie-cover-with-color-theory.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 As you can see from all the movie covers above, they all use complementary colors from the blues to the war yellows and oranges, this creates high contrast and balance and is something done within the movie industry in every scene. It's no coincidence that the joker is purple and green or that the iron man is red and gold, this is well prepared and researched in the planning stages of everything a visual artist creates.
 
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Conclusion
 
 By including this into your thought process when creating videos with [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) you will achieve well balanced and harmonious content for your viewer to enjoy and create better engagement. It's not by chance these things happen though, it's through research and planning that the most iconic scenes and characters are created and this is just one small brick in the foundations of content creation. With practice this will become second nature to you and that is the main goal of this guide.
@@ -114,4 +116,23 @@ By including this into your thought process when creating videos with [Filmora](
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-framing-photos-and-videos-playing-with-text-deformation/"><u>[New] In 2024, Framing Photos & Videos Playing With Text Deformation</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-reinstate-your-airdrop-linkages-simple-fixes-for-iosmacos-issues/"><u>[New] In 2024, Reinstate Your AirDrop Linkages Simple Fixes for iOS/macOS Issues</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-sculpting-soundscapes-the-fading-trick/"><u>[New] In 2024, Sculpting Soundscapes The Fading Trick</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-unlocking-the-potential-with-samsungs-latest-photo-editor/"><u>[New] In 2024, Unlocking the Potential with Samsung's Latest Photo Editor</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-total-insight-navigating-through-googles-podcast-app-for-2024/"><u>[New] Total Insight Navigating Through Google's Podcast App for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-elite-d-class-dungeons-topping-the-list-for-2024/"><u>[Updated] Elite D-Class Dungeons Topping the List for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-illuminating-your-photos-with-iphones-hdr-capabilities/"><u>[Updated] In 2024, Illuminating Your Photos with iPhone’s HDR Capabilities</u></a></li>
+<li><a href="https://discover-bits.techidaily.com/1728480738713-windows-server-2008/"><u>安全なサービス環境を作成するためのWindows Server 2008システムコピー</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/best-iphone-drivers-for-windows-11-users-free-downloads-and-instructions/"><u>Best iPhone Drivers for Windows 11 Users - Free Downloads & Instructions</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/effortless-hid-keyboard-drivers-quick-guide-on-downloading-and-updating/"><u>Effortless HID Keyboard Drivers: Quick Guide on Downloading & Updating</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/expert-strategies-in-photo-editing-for-profound-impact-for-2024/"><u>Expert Strategies in Photo Editing for Profound Impact for 2024</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-android-to-apple-how-to-transfer-photos-from-lava-blaze-2-pro-to-ipad-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Android to Apple How To Transfer Photos From Lava Blaze 2 Pro to iPad Easily | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/integrating-linktree-a-step-by-step-approach-to-tiktok-bio-enhancement/"><u>Integrating Linktree A Step-by-Step Approach to TikTok Bio Enhancement</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210626126-9781087963686-on-my-way-to-greatness/"><u>On My Way to Greatness | Free Book</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/understanding-the-malicious-potential-5-uses-of-ai-by-digital-outlaws/"><u>Understanding the Malicious Potential: 5 Uses of AI by Digital Outlaws</u></a></li>
+<li><a href="https://windows11.techidaily.com/win11-mastery-unveiling-the-best-techniques-for-credential-management/"><u>Win11 Mastery: Unveiling the Best Techniques for Credential Management</u></a></li>
+</ul></div>
 

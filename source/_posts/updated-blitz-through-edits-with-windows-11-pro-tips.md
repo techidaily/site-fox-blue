@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Blitz Through Edits with Windows 11 Pro Tips"
-date: 2024-08-15T10:31:46.899Z
-updated: 2024-08-16T10:31:46.899Z
+date: 2024-12-27T22:27:07.769Z
+updated: 2025-01-04T06:26:12.463Z
 tags: 
   - screen-recording
   - ai video
@@ -50,9 +50,6 @@ When you can add a personal touch to your videos and photos, it becomes all the 
 
 When you draw on the image or video, the ink can be attached to a particular object or person within the video. As you move the camera angle or the object, the ink stays or moves along. You just need to select the anchor icon and link it to the object in the video.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
 ## Part 2: How to Draw on Photos Online
 
 Are you looking forward to drawing on Photos online? [LunaPic](https://www140.lunapic.com/editor/?action=draw) is one such tool that lets you draw on your photos easily online. It is more of a paint tool that lets you edit, adjust, draw borders, add filters, effects, art, animation, and more. It has more than 200 effects option to choose from. To draw on photos online with LunaPic, follow the below-mentioned steps-
@@ -63,9 +60,9 @@ Are you looking forward to drawing on Photos online? [LunaPic](https://www140.lu
 * You get 7 options for tool selection – filled polygon, filled ellipse, ellipse, filled rectangle, rectangle, straight line, and free hand pencil. Select the free hand pencil option
 
 ![draw on photos in windows 10](https://images.wondershare.com/filmora/article-images/lunapic-drawing.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Select the color from the range of palette available
@@ -73,27 +70,31 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 * Click on apply if you are all set to draw or click on clear if you wish to make changes
 
 ![draw on photos in windows 10](https://images.wondershare.com/filmora/article-images/editing-drawings-on-windows-10.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * To save your drawing on the image, you must click on Apply after each action you make with the tool
 
 <!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Conclusion
 
 The Photos app has an interface that is restructured with dark theme options and new drawing and editing features making it a great tool. If you want to draw on Photos in Windows 10, follow the above steps and make your actions easier. If you want to have more options to edit videos with drawing in Windows 10, why not choose [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)? You can edit your video with various drawing and text style.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -119,4 +120,21 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-elevate-your-youtube-channel-perfecting-video-scriptwriting-skills/"><u>[New] 2024 Approved Elevate Your YouTube Channel Perfecting Video Scriptwriting Skills</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-pioneering-digital-realms-comparing-metaverse-and-omniverse/"><u>[Updated] 2024 Approved Pioneering Digital Realms Comparing Metaverse & Omniverse</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-data-handling-done-right-fastest-5-ways-to-move-files-onto-your-computer-for-2024/"><u>[Updated] Data Handling Done Right Fastest 5 Ways To Move Files Onto Your Computer for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-highest-rated-20-public-domain-pubg-combos/"><u>[Updated] Highest-Rated 20 Public Domain PUBG Combos</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-in-depth-kinetics-evaluation-2023/"><u>[Updated] In 2024, In-Depth Kinetics Evaluation 2023</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-spice-up-content-kapwings-meme-builder-for-2024/"><u>[Updated] Spice Up Content Kapwing's Meme Builder for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-the-comprehensive-approach-to-linking-your-tiktok-profile-for-2024/"><u>[Updated] The Comprehensive Approach to Linking Your TikTok Profile for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-windowsmacos-visual-enhancement-a-guide-to-text-embellishments-in-photos-for-2024/"><u>[Updated] Windows/MacOS Visual Enhancement A Guide to Text Embellishments in Photos for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-comprehensive-guide-to-android-screenshotting/"><u>2024 Approved Comprehensive Guide to Android Screenshotting</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/discover-premier-portable-audio/"><u>Discover Premier Portable Audio</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/exclusive-list-top-20-open-source-pubg-slideshows/"><u>Exclusive List Top 20 Open-Source PUBG Slideshows</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/exploring-techs-new-frontier-highlights-and-must-see-releases-at-ces-2023-featured-by-zdnet/"><u>Exploring Tech's New Frontier: Highlights and Must-See Releases at CES 2023, Featured by ZDNet</u></a></li>
+<li><a href="https://driver-error.techidaily.com/how-to-stop-bluetooth-on-windows-11/"><u>How to Stop Bluetooth On Windows 11</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-oppo-reno-8t-drfone-by-drfone-virtual-android/"><u>The Magnificent Art of Pokemon Go Streaming On Oppo Reno 8T? | Dr.fone</u></a></li>
+</ul></div>
 

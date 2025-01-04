@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Turning Pics Into Time Capsules With Videos"
-date: 2024-08-15T10:28:22.105Z
-updated: 2024-08-16T10:28:22.105Z
+date: 2024-12-27T23:31:00.209Z
+updated: 2025-01-04T07:11:25.581Z
 tags: 
   - screen-recording
   - ai video
@@ -60,9 +60,17 @@ Some popular photo scanners that you can consider using are Scanner Pro, PhotoSc
 
 ![Photo Scanner App](https://images.wondershare.com/filmora/article-images/photo-scanner-app.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 4\. Get in Touch with a Professional
 
 In case you have a lot of pictures that you wish to scan and little time, then you can also get in touch with some professionals. There are tons of photo digitization services that you can explore in almost every major city to get dedicated assistance.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Convert Old Photos into a Video Effortlessly?
 
@@ -78,6 +86,10 @@ To convert your old photos into stunning videos, you can take the assistance of 
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 To learn how to come up with an impressive video collage using Filmora, just follow these steps:
 
 #### 1\.  Import your digitized photos
@@ -85,27 +97,18 @@ To learn how to come up with an impressive video collage using Filmora, just fol
 To start with, you can just launch Filmora on your system and import your photos to the application. Simply click on the “Import” button from the toolbar to insert selective pictures or an entire folder. This will open a browser window, letting you locate and load the photos of your choice.
 
 ![import Digitized Photos](https://images.wondershare.com/filmora/article-images/import-digitized-photos.jpg)
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### 2\. Create a timeline for your photos
 
 Once you have imported your photos, you can include them in the timeline. To do this, you can click on the “+” button that is located on the top of the photo’s thumbnail. You can also just drag any photo and drop it on the preferred location in the timeline.
 
 ![create timeline for photos ](https://images.wondershare.com/filmora/article-images/create-timeline-for-photos.jpg)
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
-<!-- affiliate ads end -->
 
 #### 3\. Edit the video
 
 Just above the timeline, you can find all kinds of tools to edit your video. For instance, you can crop your photos, split the video, delete pictures, correct their coloring, and so on. To explore more options, you can click on the edit icon here.
 
 ![Edit Digitized Photos ](https://images.wondershare.com/filmora/article-images/edit-digitized-photos.jpg)
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
-<!-- affiliate ads end -->
 
 The edit option will present tons of additional features that you can implement on the video. Here, you can go to the “Motion” feature to get different transitions for your photos. This will let you select how any photo would appear in the video collage.
 
@@ -114,16 +117,10 @@ The edit option will present tons of additional features that you can implement 
 As stated above, you can find a wide range of video editing options to explore in Fimora. On top of the interface, you can switch between audio, transition, effects, titles, and other options. You can just go to any feature here (like effects) to apply it to the video.
 
 ![Add Effects to Digitized Photos ](https://images.wondershare.com/filmora/article-images/add-effects-to-old-photo-video.jpg)
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
-<!-- affiliate ads end -->
 
 To add text to your videos, just go to the “Titles” option here. This will let you select a text effect, letting you add the content of your choice.
 
 ![Add Title to Digitized Photos ](https://images.wondershare.com/filmora/article-images/add-title-old-photo-video.jpg)
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 
 Besides that, you can also add a track to the video by visiting the “Audio” feature. Here, you will get access to tons to royalty-free audio tracks. Furthermore, you can also import any other audio track or click on the microphone icon (at the bottom of the preview panel) to record a voiceover for the video.
 
@@ -135,7 +132,15 @@ That’s it! After making all the changes, you can preview your video on the rig
 
 ![Export Book Trailer File](https://images.wondershare.com/filmora/article-images/book-trailer-export-file.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Find more fancy ways to make the best photo and video slideshow with Filmora!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## More Editing Tips for Creating Memorable Videos
 
@@ -168,9 +173,6 @@ Most importantly, pick a user-friendly and effective video editor like Filmora. 
 There you go! I’m sure that after reading this guide, you would be able to digitize photos pretty easily. Not just that, you can also come up with memorable videos using your old photographs with a tool like Filmora. The resourceful application offers a wide range of video editing tools that will certainly come handy to you on numerous occasions.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-<!-- affiliate ads begin -->
-<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -195,4 +197,18 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-bargain-bin-chinese-vr-technology/"><u>[New] 2024 Approved Bargain Bin Chinese VR Technology</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-essential-screen-capture-software-top-picks-ranked/"><u>[New] 2024 Approved Essential Screen Capture Software - Top Picks Ranked</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-gamers-choice-top-software-for-live-scenes/"><u>[New] 2024 Approved Gamers' Choice Top Software for Live Scenes</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-novice-writers-best-enhancements-for-gopro/"><u>[New] Novice’ Writers Best Enhancements for GoPro</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-shake-free-video-post-capture-tips-and-tricks/"><u>[New] Shake-Free Video Post-Capture Tips & Tricks</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-optimal-mkv-watcher-for-laptops/"><u>[Updated] In 2024, Optimal MKV Watcher for Laptops</u></a></li>
+<li><a href="https://common-error.techidaily.com/best-practices-curbing-elevated-cpu-usage-with-windows-driver-foundation-fixes/"><u>Best Practices: Curbing Elevated CPU Usage with Windows Driver Foundation Fixes</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/comprehensive-fixes-for-handling-opengl32dll-errors-on-windows-systems/"><u>Comprehensive Fixes for Handling OpenGL32.dll Errors on Windows Systems</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/mastering-viewer-discussions-on-youtube/"><u>Mastering Viewer Discussions on YouTube</u></a></li>
+<li><a href="https://some-skills.techidaily.com/the-ultimate-guide-to-basic-hdr-imaging-for-2024/"><u>The Ultimate Guide to Basic HDR Imaging for 2024</u></a></li>
+<li><a href="https://techidaily.com/three-solutions-to-hard-reset-honor-80-pro-straight-screen-edition-drfone-by-drfone-reset-android-reset-android/"><u>Three Solutions to Hard Reset Honor 80 Pro Straight Screen Edition? | Dr.fone</u></a></li>
+</ul></div>
 

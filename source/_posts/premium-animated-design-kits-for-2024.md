@@ -1,7 +1,7 @@
 ---
 title: "Premium Animated Design Kits for 2024"
-date: 2024-08-15T10:32:54.204Z
-updated: 2024-08-16T10:32:54.204Z
+date: 2024-12-31T18:59:10.846Z
+updated: 2025-01-03T18:28:57.382Z
 tags: 
   - screen-recording
   - ai video
@@ -28,13 +28,22 @@ Glitch text effect is a trendy effect that gets the viewers’ attention immedia
 
 ![glitch text effect toolkit ae](https://images.wondershare.com/filmora/article-images/2022/07/glitch-text-effect-toolkit-ae.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2\. Liquid Text Animation
 
 You get 110 animated elements that you can apply to the text in your video. The effects are perfectly suitable for videos where comedy is the main theme. The liquid text effect looks organic and natural, and the colors are eye-catching to grab everyone’s attention. There are 8 text scenes and one text preset present, along with 110 animated presets. The effects are HD in resolution, and they are modular and adjustable. It is time to download and use them to make your video dynamic.
 
 ![liquid text animation effect ae](https://images.wondershare.com/filmora/article-images/2022/07/liquid-text-animation-effect-ae.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3\. Dynamic Text Animations
@@ -42,9 +51,9 @@ You get 110 animated elements that you can apply to the text in your video. The 
 There is always a high demand for dynamic text animations in After Effects. This pack focuses on three types of animations namely bounce, kinetic and overshoot. You get 50 presets, 20 title scenes as well as 10 different typography scenes. You can animate texts, titles, as well as characters. You can even adjust the properties to match your video content as per your requirements. In fact, there are advanced controls available for further customization.
 
 ![dynamic text animations ae](https://images.wondershare.com/filmora/article-images/2022/07/dynamic-text-animations-ae.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 4\. Squash & Stretch Preset
@@ -53,25 +62,20 @@ If you want to add texts and titles in your video that looks like the games mean
 
 ![squash stretch preset ae](https://images.wondershare.com/filmora/article-images/2022/07/squash-stretch-preset-ae.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 5\. CounterPro Preset
 
 In this pack, you will find unique text effects, and you can animate text with keyframe. You can animate numbers as well as characters, and it is mostly used to animate numbers to show counting. You can change different parameters of the animations and effects as per your preference. Furthermore, you can use it as a timer on your video to countdown. There are different styles available to apply to your texts and numbers.
 
 ![counterpro preset ae](https://images.wondershare.com/filmora/article-images/2022/07/counterpro-preset-ae.jpg)
-<!-- affiliate ads begin -->
-<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
-<!-- affiliate ads end -->
 
 ## 6\. Text Library
 
 If there is a must-have preset you should manage to have in After Effects is Text Library. There are as many as 1000 text presets available and this will serve all your requirements completely. Starting from animations and effects to transitions, everything is available in different categories for you to choose from and apply to your text. The pack keeps on updating to include trendy and funky text effects so that you do not miss out anything.
 
 ![text library effect ae](https://images.wondershare.com/filmora/article-images/2022/07/text-library-effect-ae.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 7\. Kinetic Text Animation
@@ -79,8 +83,9 @@ If there is a must-have preset you should manage to have in After Effects is Tex
 Kinetic text effect is a part of dynamic text effects and there is a high demand for kinetic text animation. In this pack, you get 56 text animations and all the effects have full HD resolution. The effect will literally transform your video content and help you to get a proper branding on the video. There are different types of animations available and you videos will not look boring by any chance.
 
 ![kinetic text aniamtion ae](https://images.wondershare.com/filmora/article-images/2022/07/kinetic-text-aniamtion-ae.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 8\. Text Animation Lower Third
@@ -88,9 +93,6 @@ Kinetic text effect is a part of dynamic text effects and there is a high demand
 You get eleven styles of elements in the pack, and you can customize the designs to get into any size as per your requirements. You get the elements in HD and Full HD resolution, and you can use them in the intro or outro of the video to show text and title credits. You can also use them to show quotes or keywords. Most of them have highlighted background, and technically, they are referred to as lower thirds.
 
 ![text animation lower thirds ae](https://images.wondershare.com/filmora/article-images/2022/07/text-animation-lower-thirds-ae.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 
 ## The Bottom Line
 
@@ -124,4 +126,20 @@ As the saying goes, the more the merrier and the more presets you have, the more
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-exclusive-lineup-top-10-sources-for-vector-imagery/"><u>[New] Exclusive Lineup Top 10 Sources for Vector Imagery</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-high-definition-wonders-our-favorites-list-for-2024/"><u>[New] High Definition Wonders Our Favorites List for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-sound-sleuths-unite-free-beats-tracking-tools/"><u>[New] In 2024, Sound Sleuths Unite! Free Beats-Tracking Tools</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-how-to-record-webinar-for-free/"><u>[Updated] 2024 Approved How to Record Webinar for Free</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-mastering-podcast-playback-iphone-edition/"><u>[Updated] Mastering Podcast Playback IPhone Edition</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-top-8-suggestions-for-high-quality-iphone-videography-projects/"><u>[Updated] Top 8 Suggestions for High-Quality iPhone Videography Projects</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/mkvmp45/"><u>劣化無くMKVをMP4に変換:おすすめの5つの無料ソフトウェア</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/a-beginners-guide-to-quantum-hdr-systems-for-2024/"><u>A Beginner’s Guide to Quantum HDR Systems for 2024</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95935405-9781844093281-ascension-through-orbs/"><u>Ascension Through Orbs | Free Book</u></a></li>
+<li><a href="https://some-tips.techidaily.com/choosing-the-right-device-chromebook-or-laptop-a-comprehensive-guide/"><u>Choosing the Right Device: Chromebook or Laptop - A Comprehensive Guide</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-move-contacts-from-oneplus-nord-ce-3-5g-to-iphone-131415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways to Move Contacts From OnePlus Nord CE 3 5G to iPhone (13/14/15) | Dr.fone</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/mastering-optimal-performance-solving-gta-5-frame-rate-problems-instantly/"><u>Mastering Optimal Performance: Solving GTA 5 Frame-Rate Problems Instantly</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/the-essential-techniques-for-fast-forwarding-in-spotify-for-2024/"><u>The Essential Techniques for Fast-Forwarding in Spotify for 2024</u></a></li>
+</ul></div>
 

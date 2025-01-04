@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Flattening Lines  Easy Curve Transformation\""
-date: 2024-12-22T20:14:13.289Z
-updated: 2024-12-25T23:02:58.396Z
+date: 2025-01-02T06:37:12.267Z
+updated: 2025-01-04T06:22:48.829Z
 tags: 
   - screen-recording
   - ai video
@@ -40,7 +40,7 @@ After creating the new document, open the image that you want to curve. You may 
 ![place image in photoshop](https://images.wondershare.com/filmora/article-images/2022/09/place-image-in-photoshop.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ##### Step3Warp the Image
@@ -49,34 +49,34 @@ Now we'll curve the image using the Warp Tool. Select the Warp Tool by clicking 
 
 ![wrap image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/wrap-image-photoshop.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 With the Warp Tool selected, hover your cursor over the image. You'll see a grid appear over the image. Click and drag one of the middle nodes in the horizontal direction to begin curving the image. As you drag, you'll see the image curve along with your cursor. If you want to increase or decrease the amount of curvature, simply press and hold the Shift key while dragging the node.
 
 Play around with the settings in the options bar. There are quite a few different looks you can achieve just by adjusting these.
 
 ![change image height photoshop](https://images.wondershare.com/filmora/article-images/2022/09/change-image-height-photoshop.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 20% **Horizontal Distortion** makes one side of the image appear larger than the other. This is what my photo looks like at 20%.
 
 ![change horizontal distortion photoshop](https://images.wondershare.com/filmora/article-images/2022/09/change-horizontal-distortion-photoshop.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Vertical Distortion** makes the image look as if it's leaning backward.
 
 ![verticle distortion image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/verticle-distortion-image-photoshop.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 The **Bend Direction** option rotates the angle of the bend.
 
 ![bend direction image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/bend-direction-image-photoshop.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Flip any of these effects in the opposite direction by placing a negative sign in front of the percentage. Here's -20% in the **Bend** box with a vertical bend.
@@ -90,7 +90,7 @@ Once you're happy with the way your image looks, go to File > Save As in the men
 ![save curve image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/save-curve-image-photoshop.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -127,17 +127,24 @@ We hope this post has helped you learn how to curve an image in Photoshop. The b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-ensuring-privacy-4-steps-to-safely-log-fb-calls-for-2024/"><u>[New] Ensuring Privacy 4 Steps to Safely Log FB Calls for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-unlock-creative-expression-mastering-jump-cut-usage/"><u>[New] Unlock Creative Expression Mastering Jump Cut Usage</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-elevate-note-management-embrace-mematic/"><u>[Updated] Elevate Note Management - Embrace Mematic</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-mastering-green-screen-techniques-in-kinemaster-a-step-by-step-guide-for-2024/"><u>[Updated] Mastering Green Screen Techniques in Kinemaster - A Step-by-Step Guide for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-accelerate-your-sluggish-vids-to-speedy-shots-on-android/"><u>2024 Approved Accelerate Your Sluggish Vids to Speedy Shots on Android</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-perfect-kid-cameras-for-first-timers-and-wet-weather-filming-adventures/"><u>2024 Approved Perfect Kid Cameras for First-Timers & Wet Weather Filming Adventures</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-secure-value-discovering-the-top-7-artwork-to-nft-services/"><u>2024 Approved Secure Value Discovering the Top 7 Artwork-to-NFT Services</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-stages-of-change/"><u>2024 Approved Stages of Change</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-exit-android-factory-mode-on-nokia-g310-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Exit Android Factory Mode On Nokia G310? | Dr.fone</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/improving-detail-on-far-crys-rendering/"><u>Improving Detail on Far Cry's Rendering</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-read-this-guide-to-find-a-reliable-alternative-to-fake-gps-on-xiaomi-redmi-12-drfone-by-drfone-virtual-android/"><u>In 2024, Read This Guide to Find a Reliable Alternative to Fake GPS On Xiaomi Redmi 12 | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/learn-the-basics-of-facebook-metrics-easily-for-2024/"><u>Learn the Basics of Facebook Metrics, Easily for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-dslr-and-mirrorless-excellence-with-ideal-gimbals/"><u>[New] 2024 Approved DSLR & Mirrorless Excellence with Ideal Gimbals</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-optimal-mac-animation-storer/"><u>[New] In 2024, Optimal Mac Animation Storer</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-no-experience-no-obstacle-the-ultimate-guide-to-profits-on-reddit/"><u>[New] No Experience? No Obstacle The Ultimate Guide to Profits on Reddit</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-how-to-ensure-periscope-videos-are-secured-post-record/"><u>[Updated] How to Ensure Periscope Videos Are Secured Post-Record</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-investment-edutainment-the-best-channels-reviewed/"><u>[Updated] In 2024, Investment Edutainment The Best Channels Reviewed</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-perfect-your-soundtracks-essential-edits-for-crafting-podcasts-in-garageband/"><u>[Updated] Perfect Your Soundtracks Essential Edits for Crafting Podcasts in GarageBand</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-unbeatable-freebie-subtitle-services-our-top-picks-for-2024/"><u>[Updated] Unbeatable Freebie Subtitle Services Our Top Picks for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-audiovisual-allure-crafting-irresistible-podcast-previews/"><u>2024 Approved Audiovisual Allure Crafting Irresistible Podcast Previews</u></a></li>
+<li><a href="https://techidaily.com/drive-your-website-traffic-with-our-effective-cookiebot-powered-solutions/"><u>Drive Your Website Traffic with Our Effective Cookiebot-Powered Solutions</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/evaluating-kensuns-compact-tire-inflator-durability-and-mobility-assessed/"><u>Evaluating Kensun's Compact Tire Inflator: Durability & Mobility Assessed</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-cooldown-chart-on-infinix-smart-7-hd-drfone-by-drfone-virtual-android/"><u>In 2024, Pokémon Go Cooldown Chart On Infinix Smart 7 HD | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/leading-uav-models-suited-for-gopro-cameras-for-2024/"><u>Leading UAV Models Suited for GoPro Cameras for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/macbook-pro-versus-ipad-pro-what-sets-them-apart/"><u>MacBook Pro versus iPad Pro - What Sets Them Apart?</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/navigating-the-world-of-filmmaking-best-cameras-for-novices/"><u>Navigating the World of Filmmaking Best Cameras for Novices</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/novices-guide-to-vectors-insight-into-types-and-software-choices/"><u>Novice's Guide to Vectors Insight Into Types & Software Choices</u></a></li>
+<li><a href="https://techtrends.techidaily.com/ps4-controller-flashing-lights-demystified-what-blue-white-red-or-orange-colors-mean/"><u>PS4 Controller Flashing Lights Demystified: What Blue, White, Red, or Orange Colors Mean</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/sim-unlock-xiaomi-redmi-13c-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>Sim Unlock Xiaomi Redmi 13C Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/unlocking-the-potential-of-virtual-collaboration-starting-zoom-calls-on-android/"><u>Unlocking the Potential of Virtual Collaboration Starting Zoom Calls on Android</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/windows-10-display-glitch-resolved/"><u>Windows 10 Display Glitch - Resolved</u></a></li>
 </ul></div>
 

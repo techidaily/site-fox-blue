@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Switch On/Off YouTube's PIP Mode on Your iPhone\""
-date: 2024-08-15T10:30:43.286Z
-updated: 2024-08-16T10:30:43.286Z
+date: 2024-12-27T16:14:41.452Z
+updated: 2025-01-04T01:31:41.236Z
 tags: 
   - screen-recording
   - ai video
@@ -39,6 +39,10 @@ On iOS 14.5 or 14.6, here is a simple step-by-step guide to enable Picture in Pi
 
 ![shortcut application](https://images.wondershare.com/filmora/article-images/2022/07/picture-in-picture-for-youtube-on-iphone-2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Tap **Allow Untrusted Shortcuts** in the Shortcut Application on your device
 2. Now go to the actual YouTube App and start to play a video
 3. As the video plays, tap on the **Share icon** then scroll to the right end of the list of sharing options for platforms and Apps. Tap the **More icon** at the right end.
@@ -57,11 +61,12 @@ On iOS 14.5 or 14.6, here is a simple step-by-step guide to enable Picture in Pi
 
 ![floating screen](https://images.wondershare.com/filmora/article-images/2022/07/picture-in-picture-for-youtube-on-iphone-5.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 And there you go, now you will be able to watch your videos on a floating screen. This procedure may be pretty tedious, but it is all worth it if you follow keenly to the end. You will do it only once.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 2\. How to Disable Picture in Picture for YouTube on iPhone
 
 To use PIP on iPhone effectively, you may sometime need to deactivate it so that everything goes your way. And here is a very simple way to disable Picture in Picture in YouTube on your iPhone.
@@ -72,17 +77,10 @@ To use PIP on iPhone effectively, you may sometime need to deactivate it so that
 4. Scroll down. You will see the **Picture-in-Picture**
 5. Tap the switch button to switch it off. And there you are. You have disabled PIP for YouTube on iPhone.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 3\. How to enable Picture in Picture for YouTube on Mac and iPad
 
 Picture in Picture is now a native quality utility feature on many Apps on different platforms. PIP has stayed for some time since it was developed and introduced for third-party utilization. However, YouTube is still left out of this. To enable PIP on Mac, you will need to go a step ahead to do it. Enjoying PIP on an iPad is also not a straightforward thing. All the same, Mac and iPad require very simple instructions to allow you to use Picture in Picture with them.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ### PIP on iPad
 
 To activate PIP on your iPad, you only need your phone settings and a supported browser like Safari. However, you have to update your iPad to the iOS 14 version that fully supports the feature.
@@ -102,13 +100,15 @@ Before you use Picture in Picture in YouTube, you require two Apps on your devic
 5. Tap **YouTube PIP** and select **OK** on the burner that appears on the screen. This will produce a new floating window automatically on the screen. You can select a window resolution that fits you and go back to Home Screen. Your video will play in a floating window on your home screen.
 
 ![floating window](https://images.wondershare.com/filmora/article-images/2022/07/picture-in-picture-for-youtube-on-iphone-6.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### PIP on Mac
 
 On your Mac, there are two ways to get into Picture in Picture mode. You can use Control Command and Mouse together, or simply the mouse itself/touchpad. And here is how to do it with a Mouse only.
@@ -125,8 +125,9 @@ And with the Control Commands, you can get into PIP on Mac very easily in only t
 2. Press and hold on to the **Ctrl key** on your keyboard as you **left click** on the video twice, and you will be successful.
 
 ![get into pip on mac](https://images.wondershare.com/filmora/article-images/2022/07/picture-in-picture-for-youtube-on-iphone-7.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -161,4 +162,20 @@ Picture in Picture is a computer utility feature in the USA. It has not been lau
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-from-screenshot-to-ringtone-your-guide-to-tiktok-song-selection-for-2024/"><u>[New] From Screenshot to Ringtone Your Guide to TikTok Song Selection for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-savvy-sentries-of-the-mind-top-quizzes/"><u>[New] Savvy Sentries of the Mind Top Quizzes</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-top-10-hilarious-song-mock-ups-laughter-unleashed/"><u>[New] Top 10 Hilarious Song Mock-Ups Laughter Unleashed</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-discover-the-top-6-android-music-video-platforms/"><u>[Updated] 2024 Approved Discover the Top 6 Android Music Video Platforms</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-no-expense-required-remove-coffee-stains-from-iphone-photos/"><u>[Updated] 2024 Approved No Expense Required Remove Coffee Stains From iPhone Photos</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-harness-the-power-of-windows-photos-and-story-remix-for-editing-for-2024/"><u>[Updated] Harness the Power of Windows Photos & Story Remix for Editing for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-step-by-step-username-modification-guide-for-meet-sessions/"><u>[Updated] Step-by-Step Username Modification Guide for Meet Sessions</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-streamlining-color-grading-incorenasive-guide-to-lut-integration-in-obs/"><u>2024 Approved Streamlining Color Grading Incorenasive Guide to LUT Integration in OBS</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/3-solutions-to-find-your-honor-70-lite-5g-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>3 Solutions to Find Your Honor 70 Lite 5G Current Location of a Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-fast-setup-moving-media-from-pc-to-your-iphone/"><u>In 2024, Fast Setup Moving Media From PC To Your iPhone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/maximizing-visual-variety-with-b-roll-elements/"><u>Maximizing Visual Variety with B Roll Elements</u></a></li>
+<li><a href="https://windows11.techidaily.com/overcoming-obstacles-fixing-outlook-issues-in-windows/"><u>Overcoming Obstacles: Fixing Outlook Issues in Windows</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/1722973653860-toshiba-copier-drivers-downloads-for-windows-users-fast-and-easy-setup/"><u>Toshiba Copier Drivers Downloads for Windows Users - Fast and Easy Setup!</u></a></li>
+</ul></div>
 

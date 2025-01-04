@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Short Track Olympics - Highlights From '22 for 2024\""
-date: 2024-08-15T10:29:21.467Z
-updated: 2024-08-16T10:29:21.467Z
+date: 2024-12-30T02:35:52.294Z
+updated: 2025-01-03T21:11:38.038Z
 tags: 
   - screen-recording
   - ai video
@@ -22,7 +22,15 @@ Putting aside the controversy of getting disqualified in 1000 meter short track 
 
 Just two nights ago, the Beijing 2022 Olympic Winter Games was marred with controversy after the questionable disqualification of South Korean speed skaters - Hwang and Lee in 1000 meter skating. Paying no heed to the controversy and unfortunate loss, skater Hwang Dae-heon captured his first gold medal in his career and brought back everyone’s focus to the game. Check out the short track speed skating highlights and learn how to create a video with highlights of a tournament like Beijing 2022 Olympic Winter Games.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Watch Video: 10 Best Winter Olympics Highlight Moment \[2022\]
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1\. Introduce some highlights in short track speed skating with images
 
@@ -31,15 +39,17 @@ Here are the main highlights of 1500 meter short track speed skating held at the
 Short track speed skating Korea Hwang Dae-heon wins the gold medal.
 
 ![dae heon wins the gold medal](https://images.wondershare.com/filmora/article-images/dae-heon-wins-the-gold-medal.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Canada’s Steven Dubois wins the silver medal.
 
 ![steven dubois wins the silver medal](https://images.wondershare.com/filmora/article-images/steven-dubois-wins-the-silver-medal.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Russia’s Semen Elistratov wins the bronze medal.
@@ -49,9 +59,6 @@ Russia’s Semen Elistratov wins the bronze medal.
 Hwang Dae-heon beats Steven Dubois by the tightest margin of 0.035 seconds.
 
 ![hwang beats steven dubois](https://images.wondershare.com/filmora/article-images/hwang-beats-steven-dubois.jpg)
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 
 Ren Ziwei shoved Hungarian Shaolin Sandor Liu during the event. The Hungarian naturally could not cope up with time.
 
@@ -68,13 +75,11 @@ The last leg of competition among skaters before reaching the finishing line at 
 Gold medalist Hwang Dae-heon of South Korea poses for the cameras during the awarding ceremony in short track speed skating Olympics 2022.
 
 ![gold medalist hwang](https://images.wondershare.com/filmora/article-images/gold-medalist-hwang.jpg)
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 2\. How to create a video to combine the highlights of short track speed skating 2022?
 
 The best way to present any news related to any sports event is to create a short video containing all the highlights of the event. For example, you can create a video combining all the highlights of short track speed skating 2022 that we have presented in the previous section. You can also collect short clips of the event from social media platforms that have been captured by audiences.
@@ -89,9 +94,6 @@ To create such a highlight video on any sports event, there are certain videos e
 
 **Pan and Zoom** – Pan and Zoom is the most commonly used video effect that is applied to still footage. While the footage zooms out, texts and titles are shown or a voiceover is played so that the graphic on the screen does not stay static.
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BScreen%2BRecorder%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/f026b149-fc7c-fd54-5f3e-1460bbb19b6b.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### A Professional [Video Editor](https://tools.techidaily.com/wondershare/filmora/download/)
 
 To create a video based on any sport event such as short track speed skating highlights, you need a professional video editor where you can get all the video effects and elements in one place. We recommend Wondershare Filmora where you get a wide range of video effects and editing tools to make your video stand out easily.
@@ -141,4 +143,24 @@ South Korean skater Hwang Dae-heon has won the gold medal in men’s short track
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-maximizing-your-social-media-impact-group-photosvideos-on-ig/"><u>[New] 2024 Approved Maximizing Your Social Media Impact Group Photos/Videos on IG</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-smile-saver-essential-free-meme-templates/"><u>[New] 2024 Approved Smile Saver Essential Free Meme Templates</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-gaming-memories-made-easy-with-fraps-for-2024/"><u>[New] Gaming Memories Made Easy with Fraps for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-omni-angle-mounting-mechanisms-for-2024/"><u>[New] Omni-Angle Mounting Mechanisms for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-enablingdisabling-safaris-dual-screen-feature/"><u>[Updated] 2024 Approved Enabling/Disabling Safari's Dual-Screen Feature</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-snapcutsolutions-reviews-extensive-critique/"><u>[Updated] 2024 Approved SnapCutSolutions Reviews – Extensive Critique</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-dive-into-the-future-of-video-editing-with-vivacut-a-2024-perspective/"><u>[Updated] Dive Into the Future of Video Editing with VivaCut A 2024 Perspective</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-step-by-step-crafting-photos-into-engaging-videos-in-pixiz/"><u>[Updated] In 2024, Step-by-Step Crafting Photos Into Engaging Videos in Pixiz</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-screencast-o-matic-review-for-2024/"><u>[Updated] Screencast-O-Matic Review for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-gaming-frontier-exploration-premium-oculus-players-guide/"><u>2024 Approved Gaming Frontier Exploration Premium Oculus Players Guide</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-from-abrupt-shifts-to-serene-journeys-expert-crossfade-guidance-with-audacity/"><u>In 2024, From Abrupt Shifts to Serene Journeys Expert Crossfade Guidance with Audacity</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-what-is-geo-blocking-and-how-to-bypass-it-on-itel-a05s-drfone-by-drfone-virtual-android/"><u>In 2024, What is Geo-Blocking and How to Bypass it On Itel A05s? | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/lively-captions-how-to-add-motion-to-instagram-posts/"><u>Lively Captions How to Add Motion to Instagram Posts</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/next-level-drivers-route-guides-automotive-edition/"><u>Next-Level Drivers' Route Guides: Automotive Edition</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/stealthy-editing-blur-faces-with-picsart-for-2024/"><u>Stealthy Editing Blur Faces With Picsart for 2024</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210692657-9781801520331-the-tree-of-life-and-death/"><u>The Tree of Life and Death | Free Book</u></a></li>
+<li><a href="https://article-tips.techidaily.com/the-ultimate-guide-to-profiting-off-reddit-13-ways-here/"><u>The Ultimate Guide to Profiting Off Reddit - 13 Ways Here</u></a></li>
+</ul></div>
 
