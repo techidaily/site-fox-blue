@@ -1,7 +1,7 @@
 ---
 title: "\"Top Picks  HD Cameras Under $100 for Extreme Sports\""
-date: 2024-08-08T04:47:13.870Z
-updated: 2024-08-09T04:47:13.870Z
+date: 2025-01-04T19:20:34.451Z
+updated: 2025-01-10T20:55:38.186Z
 tags: 
   - screen-recording
   - ai video
@@ -20,9 +20,6 @@ thumbnail: https://thmb.techidaily.com/596dd6315d1559e3cb5b3aa52b6f2b9825ab34a39
 
 # Top 5 Best Full HD Action Cameras Below $100
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
@@ -31,17 +28,15 @@ thumbnail: https://thmb.techidaily.com/596dd6315d1559e3cb5b3aa52b6f2b9825ab34a39
 
  If you are planning to buy a new action camera then probably you have a big list to choose from. Presently, almost all big brands like Sony and GoPro etc. are launching their classic and feature rich action cameras so you may find it little difficult to choose the best one that can suit your needs. The article below will help you to collect some useful information about best action cameras that are priced below $100 and still offer Full HD content quality with frame rate ranging somewhere between 60 to 30 fps.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Top 5 Best Full HD Action Cameras Below $100
 
 #### 1. Drift Innovation STEALTH-2
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 ![drift ghost s](//images.wondershare.com/filmora/article-images/drift-innocations-ghost-s-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 [Check at Amazon](https://www.amazon.com/gp/product/B00MCWWL0G/ref=as%5Fli%5Fqf%5Fsp%5Fasin%5Fil%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00MCWWL0G&linkId=18467dac61fdbb82717c78990474d825)
 
@@ -58,6 +53,10 @@ This device copies so many features from the all time favorite Ghost-S action ca
 
 ![polaroid xs 100i](https://images.wondershare.com/filmora/article-images/polaroid-xs-100i-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 [Check at Amazon](https://www.amazon.com/gp/product/B00F46UQ4K/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00F46UQ4K&linkId=6d1cf73dd040f47f4ac8a8a14ac9643f)
 
 **Max Video Resolution:** 1080P/720P | **Weight:**  136g | **Battery life:**  1200 mAh | **Stills resolution:** 16MP | **1080:**  30fps | **Waterproof:** Yes, up to 30’ |
@@ -71,10 +70,11 @@ This device copies so many features from the all time favorite Ghost-S action ca
 
 #### 3. Polaroid Cube + 1440p Wi-Fi
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
-<!-- affiliate ads end -->
 ![polaroid cube plus](https://images.wondershare.com/filmora/article-images/polaroid-cube-plus.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 [Check at Amazon](https://www.amazon.com/gp/product/B011OUSSL2/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B011OUSSL2&linkId=8468cb3fa9694ab9e09d99e5f9a7587e)
 
@@ -91,6 +91,10 @@ This device copies so many features from the all time favorite Ghost-S action ca
 
 ![yi action amera](https://images.wondershare.com/filmora/article-images/yi-action-camera.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 [Check at Amazon](https://www.amazon.com/gp/product/B01C89GCHU/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01C89GCHU&linkId=0fa33bbe15256887fcfa7957bd8e3a3a)
 
 **Max Video Resolution:** 1080P/60fps | **Weight:** 76.6 g | **Battery life:** 90 mins | **Stills resolution:** 16MP | **1080:** 30/25 fps | **Waterproof:** Yes |
@@ -104,10 +108,11 @@ This device copies so many features from the all time favorite Ghost-S action ca
 
 #### 5. iON Camera Air Pro 2
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 ![ino airpro2](https://images.wondershare.com/filmora/article-images/ino-air-pro-3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 [Check at Amazon](https://www.amazon.com/gp/product/B00CKPMHSQ/ref=as%5Fli%5Fqf%5Fsp%5Fasin%5Fil%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00CKPMHSQ&linkId=10f82ce1fa07ee60640f908cfbf0d05c)
 
@@ -120,9 +125,6 @@ This device copies so many features from the all time favorite Ghost-S action ca
 
  iON Air action camera unit is waterproof as well as mountable even without any additional housing, it can easily go up to 30 feet under water. This device is preferred by most of professionals due to its lighter weight and compact size. It is easier to obtain immersive photo quality with its 14MP sensor whereas wide field of view can go up to 180 degrees. Users can record videos with easy selection to resolution level 1080p, 960p and 720p with different frame rates. Professionals call iON Air a solid choice in budget friendly action camera list that can be easily mounted on different types of mounts to avail footage from critical angles.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 Max Wales
@@ -148,4 +150,20 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-information.techidaily.com/new-access-unparalleled-image-clarity-for-no-charge/"><u>[New] Access Unparalleled Image Clarity for No Charge</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-auditory-storytelling-in-cinematic-openings/"><u>[New] In 2024, Auditory Storytelling in Cinematic Openings</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-mastering-selfies-on-iphone-try-these-best-free-enhancers-for-2024/"><u>[New] Mastering Selfies on iPhone? Try These Best Free Enhancers for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-significant-20-public-domain-pubg-snapshot-packs-for-2024/"><u>[New] Significant 20 Public Domain PUBG Snapshot Packs for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-from-standard-to-personalized-installing-unique-ringtones-and-sounds-on-android/"><u>[Updated] 2024 Approved From Standard to Personalized Installing Unique Ringtones & Sounds on Android</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-premier-racing-experience-series-top-5/"><u>[Updated] In 2024, Premier Racing Experience Series (Top 5)</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-overview-of-various-cameras-used-in-film-and-tv-for-2024/"><u>[Updated] Overview of Various Cameras Used in Film & TV for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/elite-drones-the-ten-to-watch/"><u>Elite Drones The Ten To Watch</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/embracing-the-undead-a-review-on-how-7-days-to-die-successfully-reinvents-classic-zombie-lore-for-modern-gamers/"><u>Embracing the Undead: A Review on How '7 Days to Die' Successfully Reinvents Classic Zombie Lore for Modern Gamers.</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/expert-tips-on-correcting-and-preventing-windows-update-error-0x80240017/"><u>Expert Tips on Correcting and Preventing Windows Update Error 0X80240017</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-real-time-game-recording-powered-by-obs/"><u>In 2024, Real-Time Game Recording Powered by OBS</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/taking-it-upward-panning-high-with-your-phone/"><u>Taking It Upward Panning High with Your Phone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/transformez-vos-videos-mpeg-en-mov-facilement-et-gratuitement-services-en-ligne-movavi/"><u>Transformez Vos Vidéos MPEG en MOV Facilement Et Gratuitement - Services en Ligne Movavi</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In-Depth Syma X8C Evaluation for 2024\""
-date: 2024-12-30T19:46:35.615Z
-updated: 2025-01-03T19:00:46.036Z
+date: 2025-01-07T17:26:24.038Z
+updated: 2025-01-11T02:09:08.954Z
 tags: 
   - screen-recording
   - ai video
@@ -38,7 +38,7 @@ thumbnail: https://thmb.techidaily.com/5ee746dbc8ada474503544ca04e806e436db5d410
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Pros and Cons of Syma X8C
@@ -83,7 +83,7 @@ thumbnail: https://thmb.techidaily.com/5ee746dbc8ada474503544ca04e806e436db5d410
 ![syma vs phantom design](https://images.wondershare.com/filmora/article-images/syma-vs-phantom-design.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  If we consider the appearance then it looks close to the Phantom drone but no doubt to say that few variations exists and they make it unique. The overall dimension of this drone unit is 20x20x6.5 whereas maximum weight goes up to 450 grams thus it cannot be called as a tiny drone. When weighted with camera and prop guards, then this unit has overall weight of 600 grams. This dimension and weight makes this drone much stable in air.
@@ -102,10 +102,6 @@ thumbnail: https://thmb.techidaily.com/5ee746dbc8ada474503544ca04e806e436db5d410
 
 ![syma x8c controller](https://images.wondershare.com/filmora/article-images/syma-x8c-controller.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Controller or the transmitter of X8C device is small enough that fits perfectly in user’s hands. Construction is completed with ABS plastic material that leads to light weight structure and this controller makes use of 2.4GHz frequency band to send control signals towards drone in air. The best thing to know about Syma X8C is that it can cover the 100 meter range impressively.
 
 #### 6\.  Camera
@@ -113,10 +109,14 @@ thumbnail: https://thmb.techidaily.com/5ee746dbc8ada474503544ca04e806e436db5d410
 ![syma x8c camera](https://images.wondershare.com/filmora/article-images/syma-x8c-camera.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  A drone cannot be complete without a camera mounted on its top; hence Syma has taken care of users need and they developed Syma X8C with a camera that can record everything in air. Although, it is not able to collect video information with HD quality but you will be glad to know that it is detachable and one can also make additional adjustments over its angles to adjust focus. All the recorded videos are stored inside a 4GB MicroSD card. Further, the attached gimbal assists in much stable footage.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -125,7 +125,7 @@ thumbnail: https://thmb.techidaily.com/5ee746dbc8ada474503544ca04e806e436db5d410
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Max Wales
@@ -153,24 +153,17 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-unleash-the-magic-of-tiktok-a-macbook-users-guide/"><u>[New] 2024 Approved Unleash the Magic of TikTok A MacBook User's Guide</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-diving-into-the-ultra-hd-waters-an-lg-27uhd68-monitor-guide/"><u>[New] In 2024, Diving Into the Ultra HD Waters An LG 27UHD68 Monitor Guide</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/n-2024-how-does-youtube-pay-you/"><u>[New] In 2024, How Does YouTube Pay You?</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-layers-of-cinematic-dialogue-design/"><u>[New] In 2024, Layers of Cinematic Dialogue Design</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-powerful-tactics-leveraging-youtube-links-for-fb-exposure/"><u>[New] Powerful Tactics Leveraging YouTube Links for FB Exposure</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-expert-techniques-implementing-luts-in-adobe-ae/"><u>[Updated] 2024 Approved Expert Techniques Implementing LUTs in Adobe AE</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-lightning-fast-the-art-of-windows-file-scanning/"><u>[Updated] 2024 Approved Lightning-Fast The Art of Windows File Scanning</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-android-melody-manual-best-free-youtube-downloader-tools-for-2024/"><u>[Updated] Android Melody Manual Best Free YouTube Downloader Tools for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-dynamic-color-balance-helper/"><u>[Updated] Dynamic Color Balance Helper</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-haste-in-video-supercharge-facebook-videos-with-proxies-and-tools/"><u>[Updated] In 2024, Haste in Video Supercharge Facebook Videos with Proxies and Tools</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-how-to-add-youtube-annotations-and-cards/"><u>[Updated] In 2024, How to Add YouTube Annotations and Cards?</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-the-complete-guide-to-canva-audio-amendments-for-2024/"><u>[Updated] The Complete Guide to Canva Audio Amendments for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-utilizing-zoom-services-directly-from-your-inbox-gmail-edition-for-2024/"><u>[Updated] Utilizing Zoom Services Directly From Your Inbox - Gmail Edition for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-8-best-open-source-video-conferencing-software-for-enterprise/"><u>2024 Approved 8 Best Open Source Video Conferencing Software for Enterprise</u></a></li>
-<li><a href="https://howto.techidaily.com/4-solutions-to-fix-unfortunately-your-app-has-stopped-error-on-asus-rog-phone-7-ultimate-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Solutions to Fix Unfortunately Your App Has Stopped Error on Asus ROG Phone 7 Ultimate | Dr.fone</u></a></li>
-<li><a href="https://win11.techidaily.com/expert-tips-to-effortlessly-setup-the-jdk-on-windows-11/"><u>Expert Tips to Effortlessly Setup the JDK on Windows 11</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-hidefake-snapchat-location-on-your-apple-iphone-15-drfone-by-drfone-virtual-ios/"><u>How to Hide/Fake Snapchat Location on Your Apple iPhone 15 | Dr.fone</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/strategic-approaches-for-creating-impactful-youtubes-finality-for-2024/"><u>Strategic Approaches for Creating Impactful Youtubes' Finality for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/streamlined-techniques-for-accumulating-large-tiktok-datasets/"><u>Streamlined Techniques for Accumulating Large TikTok Datasets</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-ultimate-guide-recording-your-youtube-livestreams/"><u>[New] 2024 Approved Ultimate Guide Recording Your YouTube Livestreams</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-thriving-in-the-digital-age-mastering-facebook-interaction/"><u>[Updated] 2024 Approved Thriving in the Digital Age Mastering Facebook Interaction</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-framemaker-hd-recorder-tips/"><u>[Updated] FrameMaker HD Recorder Tips</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-simplify-viewing-incorporating-subtitles-into-wmp-for-2024/"><u>[Updated] Simplify Viewing Incorporating Subtitles Into WMP for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-the-top-ten-webcam-enhancers-master-stream-quality-for-2024/"><u>[Updated] The Top-Ten Webcam Enhancers Master Stream Quality for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-unravel-the-power-of-wmp-in-audio-transition-from-cds/"><u>[Updated] Unravel the Power of WMP in Audio Transition From Cds</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/essential-compilation-top-8-4k-ultra-hd-players-for-2024/"><u>Essential Compilation Top 8 4K Ultra HD Players for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-mastering-pip-macos-sierras-guide-to-multimedia-magic/"><u>In 2024, Mastering PIP MacOS Sierra's Guide to Multimedia Magic</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-pioneering-websites-for-modern-letterforms/"><u>In 2024, Pioneering Websites for Modern Letterforms</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-unleash-creativity-best-android-edits/"><u>In 2024, Unleash Creativity Best Android Edits</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/mp4avchd/"><u>MP4ファイルをAVCHD形式に自由に変換する手順</u></a></li>
+<li><a href="https://techtrends.techidaily.com/ultimate-tips-for-finding-your-dream-cellphone-cover/"><u>Ultimate Tips for Finding Your Dream Cellphone Cover</u></a></li>
 </ul></div>
 

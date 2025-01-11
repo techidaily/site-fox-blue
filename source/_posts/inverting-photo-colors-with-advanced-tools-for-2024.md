@@ -1,7 +1,7 @@
 ---
 title: "Inverting Photo Colors with Advanced Tools for 2024"
-date: 2025-01-02T23:34:04.991Z
-updated: 2025-01-04T07:16:58.149Z
+date: 2025-01-07T20:01:42.397Z
+updated: 2025-01-10T16:07:57.009Z
 tags: 
   - screen-recording
   - ai video
@@ -41,7 +41,7 @@ The Invert option is commonly used to invert a scanned film negative to color, b
 ![ Invert image color](https://images.wondershare.com/filmora/article-images/ms-paint-invert-color.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Open the photo you’d like to invert with MS Paint, and then choose the **Select All option** from the **Select Menu**. **Right-click** on the picture and click on the **Invert Color** option. The colors in the image will be automatically inverted, so you can then head over to the **Save As submenu** in the **File menu** to select the file format of the new photo.
@@ -58,10 +58,6 @@ Besides creating image negatives, the Preview app lets you convert image files a
 
 ![ Invert image color](https://images.wondershare.com/filmora/article-images/mac-preview-invert-color-original.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Clicking on the **Adjust Color feature** will bring up the color adjustment panel that contains **Black Level and White Level** sliders. To invert the colors in the photo you have to drag the **Black Level slider to the right** and the **White Level Slider to the left.**
 
 ![ Invert image color](https://images.wondershare.com/filmora/article-images/mac-preview-invert-color.jpg)
@@ -77,7 +73,7 @@ You can experiment with the values you assign to each of these sliders in order 
 ![ Covert color](https://images.wondershare.com/filmora/article-images/pinetools-invert-image-colors.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 The platform’s homepage contains a number of categories of tools such as **Colors, Numbers, Text and Lists or Images**. Clicking on the **Images category** will grant you the access to all photo editing tools PineTools offers, so you just have to click on the **Invert Colors** options to start the process of inverting a photo online. Once the **Invert Colors window** loads, you can click on the **Choose File button** to select a photo you’d like to invert. When the upload is completed, simply click on the **Invert button** located near the bottom of the screen and the platform will automatically invert the colors in your photo. To save the watermark-free image with inverted colors you just have to click on **PNG, JPEG or WEBP file** formats that are displayed above the preview of the picture.
@@ -91,7 +87,7 @@ The platform’s homepage contains a number of categories of tools such as **Col
 ![ Covert color](https://images.wondershare.com/filmora/article-images/imageconverter-tjshome.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 In addition to a rich selection of effects you can apply to images, tjshome also lets you browse through **Funny Dumb Laws, Famous Quotes or Funny Status Messages** categories. Click on the **Image Filter** category in order to view all effects the platform offers. Make sure that the **Reverse Colors/Negate effect** is selected, and then scroll further down the page to **upload the photo you’d like to invert.** When the upload process is completed, you can check the Make **Public checkbox** if you want to add your photo to the tjshome’s gallery. Click on the **Submit** button, and then proceed to save the picture to your computer. This platform lets you invert images in three easy steps, but if you want to have more control over the process, it is better to use a more powerful photo editor.
@@ -105,7 +101,7 @@ In addition to a rich selection of effects you can apply to images, tjshome also
 ![ Covert color](https://images.wondershare.com/filmora/article-images/ps-convert-color.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 After you open a photo in Adobe Photoshop, you can invert it in just a few clicks. **Expand the Image menu** and the go-to **Adjustments submenu** where you can find the **Invert option**. Alternatively, you can use the **CTRL+I** shortcut if you are a PC user or a **Command+I** if you are using a Mac computer. Moreover, Photoshop lets you **mask parts of a photo** which enables you to precisely define an area of an image you’d like to invert. Other photo editing tools like **Curves, Brightness/Contrast or Photo Filter** can make an image with inverted colors look more convincing. Keep in mind that working with multiple layers requires a lot of patience because failing to mask an object properly can produce some unwanted side issues.
@@ -142,6 +138,10 @@ Inverting colors in a photo is not a complicated process, but finding creative w
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -167,22 +167,18 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-ideal-extras-for-enhancing-dji-phantom-4/"><u>[New] 2024 Approved Ideal Extras for Enhancing DJI Phantom 4</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-4k-monitor-buying-guide-how-to-choose-the-right-monitor/"><u>[New] 4K Monitor Buying Guide How to Choose the Right Monitor</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-7-star-rated-apps-for-effortless-youtube-live-broadcast-from-iphone-and-android/"><u>[New] In 2024, 7 Star-Rated Apps for Effortless YouTube LIVE Broadcast From iPhone and Android</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-podcast-logo-basics-key-principles-for-striking-art/"><u>[New] In 2024, Podcast Logo Basics Key Principles for Striking Art</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-demystifying-camera-technology-in-auto-and-ai-enhanced-hdr-for-2024/"><u>[Updated] Demystifying Camera Technology in Auto and AI-Enhanced HDR for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-intensify-your-videoleap-images-through-precision-zooming-for-2024/"><u>[Updated] Intensify Your Videoleap Images Through Precision Zooming for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-samsung-gear-360-alternatives-updated-list-2023-for-2024/"><u>[Updated] Samsung Gear 360 Alternatives Updated List 2023 for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-yearly-top-unpacking-channel-guide-the-best-of-2024/"><u>[Updated] Yearly Top-Unpacking Channel Guide - The Best of 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/an-intuitive-approach-to-easily-observing-loved-youtube-feedback/"><u>An Intuitive Approach to Easily Observing Loved YouTube Feedback</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-ffmpeg-audioscape-maintaining-original-audio-formats/"><u>In 2024, FFmpeg Audioscape Maintaining Original Audio Formats</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-leading-5-drones-the-ultimate-professional-buy-guide/"><u>In 2024, Leading 5 Drones - The Ultimate Professional Buy Guide</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-seamless-video-production-youtube-studios-cutting-edge-editing/"><u>In 2024, Seamless Video Production YouTube Studio's Cutting-Edge Editing</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/moment-in-time-windows-108-screenshots-explained/"><u>Moment in Time Windows 10/8 Screenshots Explained</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/new-in-2024-mac-video-editing-software-the-ultimate-guide/"><u>New In 2024, Mac Video Editing Software The Ultimate Guide</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/new-turn-your-photos-into-funny-cartoons-online-for-2024/"><u>New Turn Your Photos Into Funny Cartoons Online for 2024</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/step-by-step-solution-to-deal-with-missing-library-errors-on-windows/"><u>Step-by-Step Solution to Deal with Missing Library Errors on Windows</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/updated-create-stunning-visual-stories-best-online-collage-software-for-2024/"><u>Updated Create Stunning Visual Stories Best Online Collage Software for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-from-obscurity-to-the-top-the-seo-playbook-for-podcasters/"><u>[New] 2024 Approved From Obscurity to the Top The SEO Playbook for Podcasters</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-step-by-step-guide-to-video-upgrade-version-22-for-2024/"><u>[New] Step-by-Step Guide to Video Upgrade - Version 2.2 for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-best-10-drones-for-high-quality-cinematography/"><u>[Updated] Best 10 Drones for High-Quality Cinematography</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-grandview-alliance-how-to-settle-on-a-cms/"><u>[Updated] In 2024, Grandview Alliance How to Settle on a CMS</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-mastering-the-art-of-3d-animation-with-elite-design-applications-for-2024/"><u>[Updated] Mastering the Art of 3D Animation with Elite Design Applications for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-try-these-free-online-tempo-trackers-today/"><u>[Updated] Try These FREE Online Tempo Trackers Today</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-unveiling-the-mysteries-of-firefoxs-pip-mode-for-2024/"><u>[Updated] Unveiling the Mysteries of Firefox’s PIP Mode for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/essential-skills-for-podcast-description-writers/"><u>Essential Skills for Podcast Description Writers</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/find-and-install-the-newest-amd-smbus-drivers-in-minutes/"><u>Find & Install the Newest AMD SMBus Drivers in Minutes!</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/implementing-soft-decline-in-logic-pro-audio/"><u>Implementing Soft Decline in Logic Pro Audio</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-unlocking-obs-potential-incorporating-luts-seamlessly/"><u>In 2024, Unlocking OBS' Potential Incorporating LUTs Seamlessly</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-discover-the-best-free-green-screen-tools-for-android-and-ios-devices-for-2024/"><u>New Discover the Best Free Green Screen Tools for Android and iOS Devices for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/unleashing-virtual-reality-the-ultimate-iphone-experience/"><u>Unleashing Virtual Reality The Ultimate IPhone Experience</u></a></li>
 </ul></div>
 

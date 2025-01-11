@@ -1,7 +1,7 @@
 ---
 title: "[New] Amped Arcs & Zigzags in Olympic Speed"
-date: 2024-08-08T04:43:30.056Z
-updated: 2024-08-09T04:43:30.056Z
+date: 2025-01-04T19:52:34.794Z
+updated: 2025-01-11T01:05:25.567Z
 tags: 
   - screen-recording
   - ai video
@@ -22,9 +22,6 @@ Putting aside the controversy of getting disqualified in 1000 meter short track 
 
 Just two nights ago, the Beijing 2022 Olympic Winter Games was marred with controversy after the questionable disqualification of South Korean speed skaters - Hwang and Lee in 1000 meter skating. Paying no heed to the controversy and unfortunate loss, skater Hwang Dae-heon captured his first gold medal in his career and brought back everyone’s focus to the game. Check out the short track speed skating highlights and learn how to create a video with highlights of a tournament like Beijing 2022 Olympic Winter Games.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
-<!-- affiliate ads end -->
 ### Watch Video: 10 Best Winter Olympics Highlight Moment \[2022\]
 
 ## Part 1\. Introduce some highlights in short track speed skating with images
@@ -35,36 +32,36 @@ Short track speed skating Korea Hwang Dae-heon wins the gold medal.
 
 ![dae heon wins the gold medal](https://images.wondershare.com/filmora/article-images/dae-heon-wins-the-gold-medal.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Canada’s Steven Dubois wins the silver medal.
 
 ![steven dubois wins the silver medal](https://images.wondershare.com/filmora/article-images/steven-dubois-wins-the-silver-medal.jpg)
 
 Russia’s Semen Elistratov wins the bronze medal.
 
-<!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![elistratovb wins the bronze medal](https://images.wondershare.com/filmora/article-images/elistratov-wins-the-bronze-medal.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Hwang Dae-heon beats Steven Dubois by the tightest margin of 0.035 seconds.
 
-<!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![hwang beats steven dubois](https://images.wondershare.com/filmora/article-images/hwang-beats-steven-dubois.jpg)
 
 Ren Ziwei shoved Hungarian Shaolin Sandor Liu during the event. The Hungarian naturally could not cope up with time.
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
-<!-- affiliate ads end -->
 ![ren ziwei shoved hungarian](https://images.wondershare.com/filmora/article-images/ren-ziwei-shoved-hungarian.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Ren Ziwei was disqualified for arm blocking Liu. Ren Ziwei has won in 1000 meter short track speed skating previously.
 
-<!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![ren ziwei was disqualified](https://images.wondershare.com/filmora/article-images/ren-ziwei-was-disqualified.jpg)
 
 The last leg of competition among skaters before reaching the finishing line at men’s short track speed skating 1500m event.
@@ -73,14 +70,12 @@ The last leg of competition among skaters before reaching the finishing line at 
 
 Gold medalist Hwang Dae-heon of South Korea poses for the cameras during the awarding ceremony in short track speed skating Olympics 2022.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![gold medalist hwang](https://images.wondershare.com/filmora/article-images/gold-medalist-hwang.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 2\. How to create a video to combine the highlights of short track speed skating 2022?
 
 The best way to present any news related to any sports event is to create a short video containing all the highlights of the event. For example, you can create a video combining all the highlights of short track speed skating 2022 that we have presented in the previous section. You can also collect short clips of the event from social media platforms that have been captured by audiences.
@@ -113,6 +108,10 @@ Step 1: Download and install Filmora on your computer. Launch the application an
 
 ![filmora screen recorder](https://images.wondershare.com/filmora/article-images/filmora-record-screen.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step 2: Go to File > Project Settings and set the aspect ratio and resolution as well as frame rate as required.
 
 Step 3: Go to Import > Import Media Files and bring in all the still footages and short clips you have collected. You can also use the option Import with Instant Cutter Tool to trim the footages and clips for uniformity.
@@ -144,4 +143,24 @@ South Korean skater Hwang Dae-heon has won the gold medal in men’s short track
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-lecture-transcription-at-zero-expense/"><u>[New] 2024 Approved Lecture Transcription at Zero Expense</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-turn-mess-into-mastery-efficient-edits-on-bulky-tiktok-drafts/"><u>[New] 2024 Approved Turn Mess Into Mastery Efficient Edits on Bulky TikTok Drafts</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-start-shooting-smart-top-15-shot-techniques-for-beginners/"><u>[New] In 2024, Start Shooting Smart Top 15 Shot Techniques for Beginners</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-thank-you-in-motion-templates-for-every-budget-level/"><u>[New] Thank You in Motion Templates for Every Budget Level</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-elite-hdr-cameras-a-buyers-selection-guide/"><u>[Updated] In 2024, Elite HDR Cameras A Buyer's Selection Guide</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-superior-video-cutting-edge-tools-devices/"><u>[Updated] Superior Video Cutting-Edge Tools (Devices)</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-unveiling-the-premium-cameras-of-2024/"><u>[Updated] Unveiling the Premium Cameras of 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-cutting-edge-recording-win-11s-superior-camcorders/"><u>2024 Approved Cutting-Edge Recording Win 11'S Superior Camcorders</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/2024-approved-zero-cost-downloads-for-high-quality-audios-discover-this-list-of-23-tools/"><u>2024 Approved Zero Cost Downloads for High-Quality Audios Discover This List of 23 Tools</u></a></li>
+<li><a href="https://win-hacks.techidaily.com/comment-rapidement-recuperer-et-reparer-un-ssd-adata-solutions-innovantes-explorees/"><u>Comment Rapidement Récupérer Et Réparer Un SSD Adata : Solutions Innovantes Explorées</u></a></li>
+<li><a href="https://win-web3.techidaily.com/comment-resoudre-les-problemes-de-declenchement-du-touchpad-pc/"><u>Comment Résoudre Les Problèmes De Déclenchement Du Touchpad PC</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-free-top-6-best-apps-to-remove-objects-from-photo-on-iphone/"><u>In 2024, FREE Top 6 Best Apps to Remove Objects From Photo on iPhone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/is-gsm-flasher-adb-legit-full-review-to-bypass-your-vivo-s17frp-lock-by-drfone-android/"><u>Is GSM Flasher ADB Legit? Full Review To Bypass Your Vivo S17FRP Lock</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/premium-lineup-essential-bd-software-free-to-pay-on-windows-macos-for-2024/"><u>Premium Lineup Essential BD Software (Free to Pay) on Windows, macOS for 2024</u></a></li>
+<li><a href="https://discover-deluxe.techidaily.com/the-ultimate-guide-revamp-your-system-with-yl-softwares-driver-updates/"><u>The Ultimate Guide: Revamp Your System with YL Software’s Driver Updates</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/twitters-most-popular-amazon-originals-in-2e23/"><u>Twitter's Most Popular Amazon Originals in 2E'23</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-sony-vegas-vs-adobe-premiere-which-one-is-better-in-2024/"><u>Updated Sony Vegas VS Adobe Premiere, Which One Is Better, In 2024</u></a></li>
+</ul></div>
 

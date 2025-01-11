@@ -1,7 +1,7 @@
 ---
 title: "\"Taking It Upward  Panning High with Your Phone\""
-date: 2024-12-29T23:53:15.154Z
-updated: 2025-01-04T00:23:54.447Z
+date: 2025-01-07T19:19:17.983Z
+updated: 2025-01-10T22:59:12.340Z
 tags: 
   - screen-recording
   - ai video
@@ -40,7 +40,7 @@ thumbnail: https://thmb.techidaily.com/b366957cb2f5f0bbc845d34641faf6413a6383aa8
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to take vertical panorama photography with your respective Smartphone
@@ -49,7 +49,7 @@ thumbnail: https://thmb.techidaily.com/b366957cb2f5f0bbc845d34641faf6413a6383aa8
 * [Part 2: For Android Users](#part2)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### For iPhone users
@@ -61,14 +61,14 @@ thumbnail: https://thmb.techidaily.com/b366957cb2f5f0bbc845d34641faf6413a6383aa8
 
 ![](https://images.wondershare.com/filmora/article-images/iphone-panorama-mode.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Image source: mac-fusion
 
 * Begin to go along with the upward arrow on the screen to capture the desired vertorama.
 * Once finished and satisfied, just tap on "Done" option.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### For Android users
 
@@ -79,15 +79,15 @@ thumbnail: https://thmb.techidaily.com/b366957cb2f5f0bbc845d34641faf6413a6383aa8
 
 ![](https://images.wondershare.com/filmora/article-images/vertical-panorama-android.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Image source: mac-fusion
 
 * To shoot picture, keep holding the target circle on the gray dot until it vanishes.
 * Repeat the same with other dots as well. In other words, move camera towards the gray dots one by one until they get disappear.
 * Tap on "Done" when completed.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Some Beneficial Tips for shooting vertical panorama photo
 
@@ -99,7 +99,7 @@ thumbnail: https://thmb.techidaily.com/b366957cb2f5f0bbc845d34641faf6413a6383aa8
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Ollie Mattison
@@ -127,24 +127,15 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-excellence-in-detail-a-curated-list-of-8k-cameras-for-2024/"><u>[New] Excellence in Detail A Curated List of 8K Cameras for 2024</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-olympic-ice-rush-speed-skaters-best-from-games/"><u>[New] Olympic Ice Rush Speed Skaters' Best From Games</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-asus-proart-pa-329q-in-focus-the-comprehensive-4k-professional-display-analysis/"><u>[Updated] 2024 Approved Asus ProArt PA 329Q in Focus – The Comprehensive 4K Professional Display Analysis</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-top-6-respectful-android-recorder-apps/"><u>[Updated] 2024 Approved Top 6 Respectful Android Recorder Apps</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-from-current-applications-to-future-drone-horizons/"><u>[Updated] From Current Applications to Future Drone Horizons</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-eliminating-shake-effects-photographyvideo-guide/"><u>[Updated] In 2024, Eliminating Shake Effects Photography/Video Guide</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-the-ultimate-meme-playbook-no-10-essentials/"><u>[Updated] In 2024, The Ultimate Meme Playbook No. 10 Essentials</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/6-strategies-enhancing-googles-bard-with-advanced-palm-2-capabilities/"><u>6 Strategies Enhancing Google's Bard with Advanced PaLM 2 Capabilities</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/9-easy-methods-to-convert-mpeg-files-into-mp4-format-on-pc-and-mac/"><u>9 Easy Methods to Convert MPEG Files Into MP4 Format on PC & Mac</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/change-your-virtual-rooms-palette-with-google-meet-for-2024/"><u>Change Your Virtual Room's Palette with Google Meet for 2024</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/connecting-fire-stick-to-a-smartphone-hotspot-a-comprehensive-walkthrough/"><u>Connecting Fire Stick to a Smartphone Hotspot – A Comprehensive Walkthrough</u></a></li>
-<li><a href="https://win11.techidaily.com/cut-down-time-on-mass-file-naming-with-powertools/"><u>Cut Down Time on Mass File Naming with PowerTools</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/gourmet-visuals-in-motion-food-shot-tips-and-tricks-for-2024/"><u>Gourmet Visuals in Motion Food Shot Tips & Tricks for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-merging-youtube-soundtracks-to-cinematic-scenes/"><u>In 2024, Merging YouTube Soundtracks to Cinematic Scenes</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-pixizs-pathway-from-picture-taking-to-storytelling-through-videos/"><u>In 2024, Pixiz's Pathway From Picture Taking to Storytelling Through Videos</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/insightful-analysis-of-the-lavish-and-rapid-glion-dolly-electric-scooter/"><u>Insightful Analysis of the Lavish & Rapid Glion Dolly Electric Scooter</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/novice-guide-to-earning-on-periscope-live-streaming-for-2024/"><u>Novice Guide to Earning on Periscope Live Streaming for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/ongeveer-830000-vlam-van-stock-videos-om-je-kreatief-potentie-te-vergroten/"><u>Ongeveer 830.000 Vlam Van Stock-Videos Om Je Kreatief Potentie Te Vergroten</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/streamlined-guide-5-efficient-windows-11-audio-recording-tips/"><u>Streamlined Guide 5 Efficient Windows 11 Audio Recording Tips</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-mastering-video-top-10-camcorders-reviewed/"><u>[New] In 2024, Mastering Video - Top 10 Camcorders Reviewed</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-perfect-plays-in-a-minute-tiktok-templates-for-stellar-videos-for-2024/"><u>[New] Perfect Plays in a Minute TikTok Templates for Stellar Videos for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-evaluating-lg-bp350-ergonomics-design-and-display-quality/"><u>[Updated] 2024 Approved Evaluating LG BP350 - Ergonomics, Design & Display Quality</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-streamlined-guide-to-ingesting-ipodcast-content/"><u>[Updated] 2024 Approved Streamlined Guide to Ingesting IPodcast Content</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-elevate-your-audio-game-with-free-vocal-effects-for-2024/"><u>[Updated] Elevate Your Audio Game with Free Vocal Effects for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-navigating-through-grids-in-google-meet-webinar-for-2024/"><u>[Updated] Navigating Through Grids in Google Meet Webinar for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-poco-m6-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to get the dragon scale and evolution-enabled pokemon On Poco M6 5G? | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-secrets-unveiled-successful-podcast-on-apple-store/"><u>In 2024, Secrets Unveiled Successful Podcast on Apple Store</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/sprint-showcase-short-track-22-glory/"><u>Sprint Showcase Short Track '22 Glory</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/top-pickup-game-systems-the-ultimate-guide-to-the-best-handheld-consoles/"><u>Top Pickup Game Systems: The Ultimate Guide to the Best Handheld Consoles</u></a></li>
 </ul></div>
 

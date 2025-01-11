@@ -1,7 +1,7 @@
 ---
 title: "Fix USB Not Installing Issue: Access Is Denied"
-date: 2024-08-08T04:45:46.269Z
-updated: 2024-08-09T04:45:46.269Z
+date: 2025-01-06T21:41:30.496Z
+updated: 2025-01-10T19:17:58.466Z
 tags:
   - win11
   - win10
@@ -17,32 +17,20 @@ thumbnail: https://thmb.techidaily.com/baa9af4e7b434bdeaa9a3b01163bb4bc26127160d
 
 If you can’t install any new USB devices due to error “Access is denied”, it can be frustrating. But don’t worry, here you will find the solution to fix the problem.  
   
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
-<!-- affiliate ads end -->
 ![](https://images.drivereasy.com/wp-content/uploads/2016/08/img_57c6862c6dbe8.png) .
 
 First, make sure that you login to computer as Administrator. If you are not logged in with Administrator, follow steps below to switch it to Administrator.  
   
 1\. Go to**Control Panel**and View by**Category**. Click**User Accounts**.(In your case, this may be “User Accounts and Family Safety”.)  
   
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
-<!-- affiliate ads end -->
 ![](https://images.drivereasy.com/wp-content/uploads/2016/08/img_57c68c5d7bf6a.jpg)
   
 2\. Click **Change your account type** and enter your password if necessary.
   
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.drivereasy.com/wp-content/uploads/2016/07/img_5791ba4e50787.png)
   
  3\. Then click**Start** button and choose to **Log off**  of Windows, and then log back in again.
   
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
-<!-- affiliate ads end -->
 ![](https://images.drivereasy.com/wp-content/uploads/2016/07/img_5791bab2104ee.png)
 
 After that, reinstall the driver again.  
@@ -58,18 +46,6 @@ If the problem could not be resolved, the USBSTOR registry key most probably has
 1\. Press**Win+R**(Windows key and R key) at the same time. A Run dialog will open.  
 2\. Type**regedit**in the run box and click**OK**button.
   
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.drivereasy.com/wp-content/uploads/2016/08/img_57c6905ba04f8.png)
   
  3\. Go to **HKEY\_LOCAL\_MACHINE\\SYSTEM\\CurrentControlSet\\Services\\USBSTOR.** Right-click on it and select**Permissions…** from the context menu.
@@ -78,9 +54,6 @@ If the problem could not be resolved, the USBSTOR registry key most probably has
   
  4\. Select**SYSTEM** from the Group or user names. In Permissions for SYSTEM section, make sure the Full Control Allow checkbox is checked and uncheck any Deny checkbox. Click Apply button to apply the changes.  
   
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.drivereasy.com/wp-content/uploads/2016/08/img_57c6933c3f709.png)
 
  Also check your user account and see if it has full control of the system and any deny checkbox is unchecked.
@@ -96,8 +69,6 @@ If the problem could not be resolved, the USBSTOR registry key most probably has
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -105,4 +76,30 @@ If the problem could not be resolved, the USBSTOR registry key most probably has
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-manycam-review-is-there-a-better-alternative/"><u>[New] In 2024, ManyCam Review Is There A Better Alternative?</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-joke-junction-ultimate-free-comic-templates/"><u>[New] Joke Junction Ultimate Free Comic Templates</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-unseen-streamers-handbook-going-incognito-on-ig-live/"><u>[Updated] 2024 Approved Unseen Streamer's Handbook Going Incognito on IG Live</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-blurry-looks-simple-ways-to-hide-identities-in-pictures/"><u>[Updated] Blurry Looks Simple Ways to Hide Identities in Pictures</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-cutting-edge-creations-yearly-free-text-files/"><u>[Updated] Cutting-Edge Creations Yearly, Free Text Files</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-discovering-top-8-android-videomosaic-creators-for-both-free-and-paid-users/"><u>[Updated] In 2024, Discovering Top 8 Android Videomosaic Creators for Both Free & Paid Users</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-the-art-of-focusing-on-roblox-elements-closeup/"><u>[Updated] The Art of Focusing on Roblox Elements Closeup</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-upgrade-your-content-reach-with-youtube-to-facebook-posting/"><u>[Updated] Upgrade Your Content Reach with YouTube-to-Facebook Posting</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/comparative-study-vidma-vs-other-screen-recorders/"><u>Comparative Study Vidma vs Other Screen Recorders</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-novel-approach-outshines-apple-with-user-centric-linkage-services/"><u>Facebook’s Novel Approach Outshines Apple with User-Centric Linkage Services</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/full-guide-to-unlock-your-sony-xperia-10-v-by-drfone-android/"><u>Full Guide to Unlock Your Sony Xperia 10 V</u></a></li>
+<li><a href="https://extra-information.techidaily.com/how-to-seamlessly-observe-the-most-praised-youtube-comments/"><u>How to Seamlessly Observe the Most Praised YouTube Comments</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-detailed-pathway-to-download-wm6/"><u>In 2024, Detailed Pathway to Download WM6</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-perfectly-pivoted-videos-the-ultimate-android-editing-guide/"><u>In 2024, Perfectly Pivoted Videos The Ultimate Android Editing Guide</u></a></li>
+<li><a href="https://games-able.techidaily.com/steam-deck-optimization-9-best-emulators-uncovered/"><u>Steam Deck Optimization: 9 Best Emulators Uncovered</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/strategies-for-securing-product-sponsors-on-youtube-for-2024/"><u>Strategies for Securing Product Sponsors on YouTube for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/tailoring-drone-video-quality-with-expert-gimbal-choices-for-2024/"><u>Tailoring Drone Video Quality with Expert Gimbal Choices for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/top-10-user-friendly-budget-optimizing-passport-photo-creators-for-2024/"><u>Top 10 User-Friendly, Budget-Optimizing Passport Photo Creators for 2024</u></a></li>
+<li><a href="https://windows11.techidaily.com/unleashing-the-potential-for-in-depth-storage-analysis-with-diskusage-on-windows/"><u>Unleashing the Potential for In-Depth Storage Analysis with DiskUsage on Windows</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
