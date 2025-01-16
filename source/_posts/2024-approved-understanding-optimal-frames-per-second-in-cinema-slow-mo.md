@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Understanding Optimal Frames Per Second in Cinema Slow-Mo\""
-date: 2024-07-29T03:56:29.084Z
-updated: 2024-07-30T03:56:29.084Z
+date: 2025-01-09T16:19:29.907Z
+updated: 2025-01-16T16:21:10.221Z
 tags: 
   - screen-recording
   - ai video
@@ -23,8 +23,9 @@ Frame rate is an extremely important parameter in videography. Frame rate is the
 The shooting frame rate determines how slow your video will look. If you shoot at 120 frames per second(fps) and display it at 30 fps, the video will play at 4 times slower. If you shoot at 480 fps, you are primarily shooting for super slow motion videos. We will explain all the different shooting frame rates for slow motion and state the best situations to use them.
 
 <!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 1\. 60 fps
 
 Anything higher than 30 fps is for creating slow-motion videos. 60 fps is the standard slow motion frame rate for Hollywood movies. You must have come across scenes where the superhero walks out slowly in a dramatic manner. Such scenes are shot at 60fps and displayed at 24 or 30 fps. Besides, this frame rate is suitable for capturing character's emotions as well.
@@ -35,9 +36,6 @@ Best Situation - When you are shooting slow-motion video for any action that is 
 
 ![60 fps slow motion video](https://images.wondershare.com/filmora/article-images/60-fps-for-slow-motion-video.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 2\. 120 fps
 
 Let us assume that you are shooting at 120 fps and displaying at 30 fps. The video will play 4 times slower than it is in real life. The slow-motion effect will be two times slower than shooting at 60fps. If you shoot slow action at 120 fps, the output will be unusually slow and visually unpleasant. Therefore, you should shoot fast action scenes at 120 fps.
@@ -46,14 +44,12 @@ Some of the examples are someone running, playing slow sports, or drifting a car
 
 Best Situation - When you are shooting slow-motion video for fast-paced action and fast moving subjects.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![120 fps slow motion](https://images.wondershare.com/filmora/article-images/120-fps-for-slow-motion-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 3\. 180 fps
 
 The scenes that are suitable for 120 fps are also suitable for 180 fps. This means you can shoot fast-moving subjects, objects, and elements. Some of the examples are horse riding, subject running, riding a bike, and likewise. But when you shoot at 180 fps, your objective is to show down the action much further.
@@ -65,8 +61,13 @@ Best Situation - When you are shooting slow-motion video for fast moving action 
 ![180 fps slow motion](https://images.wondershare.com/filmora/article-images/180-fps-for-slow-motion-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 4\. 240 fps
 
 When you are capturing an action that is too fast for your eyes to see, you should use 240 fps. For example, when you are watching a fast-paced sports event, your eyes cannot capture all movements. When you capture those scenes at 240 fps, the output video will look more comfortable for the eyes. The use of 240 fps is very popular in sports like cricket.
@@ -88,8 +89,9 @@ Best Situation - When you are shooting extremely fast actions and show in super 
 ![480 fps slow motion](https://images.wondershare.com/filmora/article-images/480-fps-for-slow-motion-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Conclusion
 
 There is no definite answer to which is the best frame rate for slow motion. It completely depends on what you are shooting. Yes, it is true that 60 fps is the standard slow motion fps. But 60 fps is only suitable when the action is low as well. Different frame rates are suitable for different scenes. The faster the action you are shooting, the higher should be the frame rate. For smooth super slow motion video, you should consider shooting at 480 fps. Frame rate beyond 480 is suitable for capturing slow-motion explosion videos.
@@ -115,4 +117,19 @@ The shooting frame rate determines how slow your video will look. If you shoot a
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/new-embrace-classic-gaming-leading-ps3-tools-for-pcs/"><u>[New] Embrace Classic Gaming Leading PS3 Tools for PCs</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-the-best-of-both-worlds-2023s-device-agnostic-editors-for-2024/"><u>[New] The Best of Both Worlds 2023’S Device-Agnostic Editors for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-bridging-the-gap-understanding-and-using-slug-lines/"><u>[Updated] 2024 Approved Bridging the Gap Understanding & Using Slug Lines</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-masterpiece-narratives-across-the-eightfold-genre-spectrum-for-2024/"><u>[Updated] Masterpiece Narratives Across the Eightfold Genre Spectrum for 2024</u></a></li>
+<li><a href="https://win-dash.techidaily.com/download-free-m-audio-fast-track-ultra-drivers-high-quality-audio/"><u>Download Free M-Audio Fast Track Ultra Drivers - High Quality Audio</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/enhancing-facebook-live-via-zoom-techniques/"><u>Enhancing Facebook Live via Zoom Techniques</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-comparison-of-googles-ar-embellishments-to-competitors/"><u>In 2024, Comparison of Google's AR Embellishments to Competitors</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-create-an-apple-developer-account-on-apple-iphone-12-by-drfone-ios/"><u>In 2024, How To Create an Apple Developer Account On Apple iPhone 12</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-understanding-youtubes-revenue-streams-for-creators/"><u>In 2024, Understanding YouTube's Revenue Streams for Creators</u></a></li>
+<li><a href="https://win-news.techidaily.com/recover-vanished-files-and-ink-incident/"><u>Recover, Vanished Files, and Ink Incident.</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-guide-fixing-logitech-g533-microphone-issues/"><u>Troubleshooting Guide: Fixing Logitech G533 Microphone Issues</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/updated-in-2024-learn-how-to-make-a-gaming-montage-guide-and-tips/"><u>Updated In 2024, Learn How to Make a Gaming Montage - Guide & Tips</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Strategies to Keep Windows 11 Photos App Running Smoothly\""
-date: 2025-01-09T22:21:50.202Z
-updated: 2025-01-10T22:15:24.183Z
+date: 2025-01-14T16:27:16.441Z
+updated: 2025-01-16T16:42:05.710Z
 tags: 
   - screen-recording
   - ai video
@@ -46,14 +46,10 @@ In this article, we have compiled the best solutions for you to get rid of Windo
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to fix Windows 10 Photos app crashes
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Solution 1: Use the Troubleshooter
 
@@ -67,7 +63,7 @@ Here is how to troubleshoot –
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/Troubleshooter.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 1. From the list of Apps displayed on the screen, click ‘Windows Store Apps’ and press the ‘Next’ button.
@@ -85,10 +81,6 @@ Restoring the default libraries would resolve the Windows 10 Photos App crash is
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/windows-10-photos-app-crashes-restore.jpg)
 
 1. Lastly, click on ‘Apply’ followed by ‘OK’ and the issue will be resolved.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Solution 3: Reset it
 
@@ -111,6 +103,10 @@ Let’s fix the issue by repairing the Photos App package installed on your comp
 3. Allow few minutes to make the changes effective and then restart the Windows 10 computer.
 4. Now, the Windows 10 Photos App won’t crash.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Solution 5: Reinstall Windows 10 Photos app
 
 Alternatively, if nothing works out in your favor, you can always fix Windows 10 Photos App crash issue by reinstalling Windows 10 Photos App. A corrupted Photos App might create disturbance for you, so reinstalling would get a fresh and bug free version on your system from the Microsoft Store.
@@ -129,10 +125,14 @@ From the above article, we have concluded that experiencing Windows 10 Photos Ap
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -159,20 +159,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-android-video-enhancement-strategies/"><u>[New] 2024 Approved Android Video Enhancement Strategies</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-essential-steps-for-integrating-streamlabs-in-obs-mac/"><u>[New] 2024 Approved Essential Steps for Integrating Streamlabs in OBS (Mac)</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-exploring-the-4k-marvel-sony-xperia-xz-premium-reviewed-for-2024/"><u>[New] Exploring the 4K Marvel Sony Xperia XZ Premium Reviewed for 2024</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/new-how-to-upload-videos-to-youtube-a-step-by-step-guide-for-2024/"><u>[New] How To Upload Videos to YouTube [a Step-by-Step Guide] for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-kitchen-chronicles-filming-every-bite/"><u>[New] Kitchen Chronicles Filming Every Bite</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-androids-evolving-landscape-in-virtual-reality360-viewing/"><u>[Updated] In 2024, Android's Evolving Landscape in Virtual Reality/360 Viewing</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-navigate-through-windows-11s-best-practices-for-imports/"><u>2024 Approved Navigate Through Windows 11'S Best Practices for Imports</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/how-to-forge-memes-that-captivate-audiences-for-2024/"><u>How to Forge Memes that Captivate Audiences for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-cutting-edge-4k-tools-for-optimal-video-quality/"><u>In 2024, Cutting-Edge 4K Tools for Optimal Video Quality</u></a></li>
-<li><a href="https://article-files.techidaily.com/in-2024-understanding-360-degree-and-virtual-reality-cinematography/"><u>In 2024, Understanding 360-Degree and Virtual Reality Cinematography</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/mastering-multimedia-slides-with-speech-recordings-powerpoint/"><u>Mastering Multimedia Slides with Speech Recordings (PowerPoint)</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/microsoft-word-made-affordable-tips-for-finding-and-using-the-software-at-no-expense/"><u>Microsoft Word Made Affordable: Tips for Finding and Using the Software at No Expense</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/overcome-the-hassle-of-error-0x80072f8f-effective-fixes-for-modern-windows-users/"><u>Overcome the Hassle of Error 0X80072F8f - Effective Fixes for Modern Windows Users</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/quick-fix-how-to-take-out-your-personal-pin-on-windows-11/"><u>Quick Fix: How to Take Out Your Personal Pin on Windows 11</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/vanguard-ventures-newcomers-to-the-panzoid-world/"><u>Vanguard Ventures Newcomers to the Panzoid World</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-swift-windows-document-reviewing-techniques/"><u>[New] In 2024, Swift Windows Document Reviewing Techniques</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-unlock-the-power-of-online-interaction-essential-tips-for-successful-zoom-chats/"><u>[Updated] 2024 Approved Unlock the Power of Online Interaction Essential Tips for Successful Zoom Chats</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-perfecting-videos-a-premier-editor-for-vimeo-professionals-for-2024/"><u>[Updated] Perfecting Videos A Premier Editor for Vimeo Professionals for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-pioneering-3d-design-avoiding-common-pitfalls-in-illustrator-for-2024/"><u>[Updated] Pioneering 3D Design Avoiding Common Pitfalls in Illustrator for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-podcast-versus-visual-media-which-suits-your-content-best/"><u>[Updated] Podcast versus Visual Media Which Suits Your Content Best?</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/avoiding-compression-larger-youtube-videos-for-2024/"><u>Avoiding Compression Larger YouTube Videos for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/breaking-down-augmented-realitys-mysteries/"><u>Breaking Down Augmented Reality's Mysteries</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-come-up-with-the-best-pokemon-team-on-asus-rog-phone-8-drfone-by-drfone-virtual-android/"><u>How to Come up With the Best Pokemon Team On Asus ROG Phone 8? | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-sign-csv-document-with-digital-signature-tutorial-by-ldigisigner-sign-a-excel-sign-a-excel/"><u>How to Sign .csv document with Digital Signature - (Tutorial)</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-unparalleled-background-music-compilation/"><u>In 2024, Unparalleled Background Music Compilation</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/innovative-design-solutions-by-jack-watt-at-digiarty-software-elevating-digital-creativity/"><u>Innovative Design Solutions by Jack Watt at Digiarty Software - Elevating Digital Creativity</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/movavi-yayinada-onemli-mp3lere-donusturulenecek-13-uykudur-youtube-video-hareketleri/"><u>Movavi Yayınada Önemli MP3'lere Dönüştürülenecek 13 Uykudur YouTube Video Hareketleri</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/premium-picks-discover-the-ultimate-4k-uhd-video-players-on-pcmac-detailed-comparisons-and-free-access/"><u>Premium Picks: Discover the Ultimate 4K UHD Video Players on PC/Mac - Detailed Comparisons & Free Access</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/top-kid-approved-wet-weather-cams-for-beginning-filmmakers-for-2024/"><u>Top Kid-Approved Wet Weather Cams for Beginning Filmmakers for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/will-the-ipogo-get-you-banned-and-how-to-solve-it-on-apple-iphone-13-mini-drfone-by-drfone-virtual-ios/"><u>Will the iPogo Get You Banned and How to Solve It On Apple iPhone 13 mini | Dr.fone</u></a></li>
 </ul></div>
 

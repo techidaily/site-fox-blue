@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Preventing Virtual Reality Nausea\""
-date: 2024-08-08T04:36:54.012Z
-updated: 2024-08-09T04:36:54.012Z
+date: 2025-01-10T16:03:18.740Z
+updated: 2025-01-16T17:41:41.775Z
 tags: 
   - screen-recording
   - ai video
@@ -20,9 +20,6 @@ thumbnail: https://thmb.techidaily.com/5b7228f82dd55952004c9e54eccc979f0193c694c
 
 # 10 tips to prevent Oculus Rift VR motion sickness
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
 ##### Benjamin Arango
@@ -30,8 +27,9 @@ thumbnail: https://thmb.techidaily.com/5b7228f82dd55952004c9e54eccc979f0193c694c
  Mar 27, 2024• Proven solutions
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 10 ways to prevent Oculus Rift motion sickness
 
  While using your Oculus Rift development kits you need to take care of few little things in order to avoid getting any kind of sickness during your game. Although the factors vary from individual to individual since it is more of the bodily response rather than the design variation.
@@ -57,18 +55,20 @@ thumbnail: https://thmb.techidaily.com/5b7228f82dd55952004c9e54eccc979f0193c694c
 **10\. Try not to move your head a lot.** Since motion sickness directly corresponds to movement, reducing your head movement left and right and up and down in one place can help you lower the chances of sickness.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What Oculus have done to reduce motion sickness
 
  With the new, innovative VR devices and the head gear technology has taken a huge leap. Oculus Rift has become widely popular among its enthusiastic users. When Oculus released its first Development kit (DevKit 1) the users experienced the symptoms such as nausea, dizziness, sweating and vomiting. Even Oculus CEO Brendan Iribe experienced “motion sickness” with his own product, while using last year’s “DevKit 1” prototype. These sickness issues were so common while using DevKit 1 that its users called it the “Rift Sickness”.
 
  Since Oculus Rift DK1 came to the market, people were really unhappy with the sickness it gave to them. Oculus saw that issue as a big threat, and started to develop DK2 with a much better display. In the original DK1, Oculus Rift used the liquid crystal display (LCD) to display visual in its devices. LCD screen had been of very much advantage because of its brightness, geometric distortion, and less electricity consumption. But it still had been promoting to the sickness issue because of its sluggish motion time response. In replacement of LCD screens, Oculus Rift has introduced OLED (organic light emitting diode) screens which have proved to be a much better idea. Experiments of Oculus Rift with OLED screens have been successful so far in reducing motion sickness to its minimal. OLED has a much faster rate and thus much enhanced positional tracking.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Benjamin Arango
 
@@ -93,6 +93,22 @@ Follow @Benjamin Arango
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-xtreme-old-phone-photos-the-ultimate-archive/"><u>[New] 2024 Approved Xtreme Old Phone Photos – The Ultimate Archive</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-freelancers-dream-top-free-3d-text-psd-arsenal/"><u>[New] Freelancer’s Dream Top FREE 3D Text PSD Arsenal</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-how-to-enhance-networked-stream-quality-with-vlc-for-2024/"><u>[New] How to Enhance Networked Stream Quality with VLC for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-learn-the-easy-way-unlocking-iphone-screen-recording-for-2024/"><u>[New] Learn the Easy Way Unlocking Iphone Screen Recording for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-the-secret-life-of-a-designer-canvas-hidden-edits/"><u>[New] The Secret Life of a Designer Canva's Hidden Edits</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-getting-acquainted-with-picsarts-latest-a-comprehensive-guide-and-review-for-2024/"><u>[Updated] Getting Acquainted with PicsArt's Latest - A Comprehensive Guide and Review for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-the-comprehensive-look-at-apeaksofts-recording-software/"><u>[Updated] The Comprehensive Look at Apeaksoft’s Recording Software</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/hd-1080p72p/"><u>高解像度ビデオをHDにダウンサイジング: 1080Pから72pへの変換手順</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/basic-framework-of-tech-driven-narratives/"><u>Basic Framework of Tech-Driven Narratives</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/blending-pictures-into-a-single-storyboard-image/"><u>Blending Pictures Into a Single Storyboard Image</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/ideal-hubs-for-downloading-popular-youtube-tone-selections/"><u>Ideal Hubs for Downloading Popular YouTube Tone Selections</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/imovie-skills-producing-engaging-and-profitable-square-video-feeds-for-2024/"><u>IMovie Skills Producing Engaging and Profitable Square Video Feeds for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/mastering-hdr-portraiture-an-ultimate-guide-for-2024/"><u>Mastering HDR Portraiture An Ultimate Guide for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/solo-sound-setback-fix-it-now/"><u>Solo Sound Setback Fix It Now</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/your-youtube-snippets-into-memorable-gifs/"><u>Turn Your YouTube Snippets Into Memorable GIFs</u></a></li>
+</ul></div>
 

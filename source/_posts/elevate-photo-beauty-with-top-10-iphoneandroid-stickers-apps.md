@@ -1,7 +1,7 @@
 ---
 title: "Elevate Photo Beauty with Top 10 iPhone/Android Stickers Apps"
-date: 2025-01-04T19:11:02.958Z
-updated: 2025-01-11T02:00:27.061Z
+date: 2025-01-12T18:17:06.159Z
+updated: 2025-01-16T17:53:58.370Z
 tags: 
   - screen-recording
   - ai video
@@ -71,11 +71,19 @@ With the app’s beautifying tools, no picture can be left out of reach. In addi
 
 **Download:** YouCam Perfect is available for [iPhone](https://apps.apple.com/us/app/youcam-perfect-photo-editor/id768469908) users (Free, Offers In-App Purchases), and [Android](https://play.google.com/store/apps/details?id=com.cyberlink.youperfect&hl=en&gl=US) users as well (contains ads, In-app purchases).
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### PicsArt
 
 This is another all-in-one, unique **photo editor app** that is the best fit for **adding stickers to photos**. It allows you to **customize your stickers** to match your taste. With the editing and drawing tools, you can turn your pictures into what you want.
 
 ![picsart](https://images.wondershare.com/filmora/article-images/2022/07/add-stickers-to-photos-2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Key Features**
 
@@ -87,6 +95,10 @@ This is another all-in-one, unique **photo editor app** that is the best fit for
 * Background tools
 
 **Download:** Picsart is available for download for [iPhone](https://apps.apple.com/us/developer/picsart-inc/id587366038) and [Android](https://play.google.com/store/apps/details?id=com.picsart.studio&hl=en&gl=US) users.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Opak – Stickers and Photo Editor
 
@@ -122,10 +134,6 @@ This is a **free photo editing app** you can explore to **add stickers to photos
 
 **Download:** This all-in-one app is available for download on [Android](https://play.google.com/store/apps/details?id=com.apperto.piclabapp&hl=en&gl=US) and [iPhone](https://apps.apple.com/us/app/photo-editor/id597851882).
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### FotoRus
 
 This is another excellent **photo editor**\` you need in your palms to create a special photo effect and beauty just as you like. It provides many stickers with girly, cute, and attractive themes.
@@ -147,10 +155,6 @@ With its numerous collages and beautiful posters, you can make yourself the most
 * Blur
 
 **Download:** Latest version of FotoRus is available on [google play](https://play.google.com/store/apps/details?id=com.photocollage.camera360&hl=en&gl=US) and [Apple store](https://apps.apple.com/us/app/fotorus-camera-photo-editor/id457517348) for download.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Line Camera
 
@@ -233,6 +237,10 @@ The app provides more than 1700 smiley stickers and emoji.
 
 ![emoji photo sticker maker pro](https://images.wondershare.com/filmora/article-images/2022/07/add-stickers-to-photos-10.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Features**
 
 * You can add filters, edit the photo, and add custom text after choosing an emoji to use and pinching the image to resize or rotate it.
@@ -246,10 +254,6 @@ The app provides more than 1700 smiley stickers and emoji.
 No matter how good your photos are, something will always be missing. Therefore, knowing how to **make your stickers** and meme online is important. Now you can **add stickers to photos** and make it happen!
 
 All you need to do is download [Wondershare PixCut](https://pixcut.wondershare.com/personal-use.html), select the photo you want to edit, and choose from thousands of stickers. It's that easy!
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Make It (Meme/Stickers) Online
 
@@ -291,6 +295,10 @@ The best way to make your photos stand out from the crowd is to remove their bac
 
 ![login to wondershare pixcut](https://images.wondershare.com/filmora/article-images/2022/07/add-stickers-to-photos-13.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Click on Remove background, then upload an image with a background, such as black background or anyone with colors.
 
 ![click on remove background](https://images.wondershare.com/filmora/article-images/2022/07/add-stickers-to-photos-14.jpg)
@@ -303,10 +311,18 @@ The best way to make your photos stand out from the crowd is to remove their bac
 
 ![select wanted background to change](https://images.wondershare.com/filmora/article-images/2022/07/add-stickers-to-photos-16.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. If you want to add an effect to the sticker, select it and use it on your image before you clear it (or use copy Image).
 1. Don’t forget to download it before it erases with the blue button top right.
 
 There are several ways you can remove backgrounds from your photos. But if you're new to Photoshop, Wondershare PixCut is pretty easy to navigate. You just need to follow the steps highlighted above and you are in!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -321,10 +337,6 @@ If you need a photo editing sticker online, you can use Wondershare PixCut; it i
 * [Make It (Meme/Stickers) Online](#part2-1)
 * [Can I create something other than memes using the generator](#part2-2)
 * [Remove The Background Of Your Photos](#part2-3)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## The Best 10 Apps to Add Sticker to Your Photos
 
@@ -374,10 +386,6 @@ With over 500 stickers available for you on this app, you can tailor your photos
 
 ![opak stickers and photo editor](https://images.wondershare.com/filmora/article-images/2022/07/add-stickers-to-photos-3.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Key Features**
 
 * Photos Instagram
@@ -443,6 +451,10 @@ This is another unique **photo editor** with enormous effects and features. The 
 
 **Download:** Line camera is available for free download to both [Android](https://play.google.com/store/apps/details?id=jp.naver.linecamera.android&hl=en%5FUS&gl=US) and [iPhone](https://apps.apple.com/app/id516561342) users.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### PhotoFunia
 
 This **online photo editor** can be downloaded for free to make your photo bright and beautiful. It has a wide range of frames, effects, stickers, templates, and filters that add cuteness to your pictures.
@@ -463,6 +475,10 @@ In addition, it has versions that can be downloaded on iOS and Android devices.
 
 **Download:** You can download this app on [Apple](https://apps.apple.com/us/app/photofunia/id321240709)and [Google](https://play.google.com/store/apps/details?id=com.photofunia.android) stores.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Camera 360-Funny Stickers
 
 The Camera360 application is a social network and a camera that lets you share your creativity with others.
@@ -480,10 +496,6 @@ It gives your photo a fantastic look. You can **edit photos with stickers** quic
 * funny 3D stickers
 
 You can download it here for [Apple](https://apps.apple.com/us/app/camera360-selfie-editor/id443354861) and [Android](https://play.google.com/store/apps/details?id=vStudio.Android.Camera360&hl=en&gl=US).
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Thug Life Stickers
 
@@ -503,10 +515,6 @@ You could create your own "Thug Life" photo using this simple editor and use the
 
 **Download:** You can download the app for [iPhone](https://apps.apple.com/us/app/thug-life-photo-sticker/id1076410913) and [Android](https://play.google.com/store/apps/details?id=thug.life.photo.sticker.maker&hl=en&gl=US).
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Emoji Photo Sticker Maker Pro
 
 This app is available for download whenever users want. After that, post your picture to social media with a humorous emoji attached.
@@ -516,6 +524,10 @@ Emoji photo sticker maker pro gives you access to **add stickers to photos** usi
 The app provides more than 1700 smiley stickers and emoji.
 
 ![emoji photo sticker maker pro](https://images.wondershare.com/filmora/article-images/2022/07/add-stickers-to-photos-10.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Features**
 
@@ -530,10 +542,6 @@ The app provides more than 1700 smiley stickers and emoji.
 No matter how good your photos are, something will always be missing. Therefore, knowing how to **make your stickers** and meme online is important. Now you can **add stickers to photos** and make it happen!
 
 All you need to do is download [Wondershare PixCut](https://pixcut.wondershare.com/personal-use.html), select the photo you want to edit, and choose from thousands of stickers. It's that easy!
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Make It (Meme/Stickers) Online
 
@@ -579,10 +587,6 @@ The best way to make your photos stand out from the crowd is to remove their bac
 
 ![click on remove background](https://images.wondershare.com/filmora/article-images/2022/07/add-stickers-to-photos-14.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 1. After uploading a picture, it would load for a few seconds and remove the background you want.
 
 ![wait for removing background](https://images.wondershare.com/filmora/article-images/2022/07/add-stickers-to-photos-15.jpg)
@@ -595,10 +599,6 @@ The best way to make your photos stand out from the crowd is to remove their bac
 1. Don’t forget to download it before it erases with the blue button top right.
 
 There are several ways you can remove backgrounds from your photos. But if you're new to Photoshop, Wondershare PixCut is pretty easy to navigate. You just need to follow the steps highlighted above and you are in!
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -634,19 +634,22 @@ If you need a photo editing sticker online, you can use Wondershare PixCut; it i
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-cutting-edge-recording-best-camcorders-reviewed/"><u>[New] Cutting-Edge Recording Best Camcorders Reviewed</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-dissecting-mobile-photography-with-android-lightroom/"><u>[New] Dissecting Mobile Photography with Android Lightroom</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-easy-insights-into-effective-use-of-showmore-screen-recorder/"><u>[New] In 2024, Easy Insights Into Effective Use of ShowMore Screen Recorder</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-tips-for-using-snap-camera-for-remote-team-collaboration/"><u>[New] In 2024, Tips for Using Snap Camera for Remote Team Collaboration</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-forge-funnies-giphys-playground/"><u>[Updated] Forge Funnies Giphy's Playground</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-the-ultimate-list-of-whatsapp-secrets-and-hacks-for-2024/"><u>[Updated] The Ultimate List of WhatsApp Secrets and Hacks for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-the-updated-comprehensive-bd-review-s3700-for-2024/"><u>[Updated] The Updated Comprehensive BD Review S3700 for 2024</u></a></li>
-<li><a href="https://article-helps.techidaily.com/adventure-seekers-choice-black-hero5-or-star-sj7/"><u>Adventure Seekers Choice Black Hero5 or Star SJ7?</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/craftsmanship-in-photos-and-videos-the-ultimate-8-mobile-enhancement-tools-for-2024/"><u>Craftsmanship in Photos & Videos The Ultimate 8 Mobile Enhancement Tools for 2024</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/forgotten-the-voicemail-password-of-vivo-y36i-try-these-fixes-by-drfone-android/"><u>Forgotten The Voicemail Password Of Vivo Y36i? Try These Fixes</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-the-perfect-pathway-insta-to-tiktok-junction/"><u>In 2024, The Perfect Pathway Insta to TikTok Junction</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/1715701147271-master-the-art-of-organizing-group-conversations-on-skype-irrespective-of-your-systems-os/"><u>Master the Art of Organizing Group Conversations on Skype, Irrespective of Your System's OS.</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/overcoming-unreachable-steam-content-servers-on-desktop-oses/"><u>Overcoming Unreachable Steam Content Servers on Desktop OSes</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/reignite-your-gaming-experience-free-voice-transformation-for-valorant-lovers/"><u>Reignite Your Gaming Experience Free Voice Transformation for Valorant Lovers</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-full-review-for-gopro-hero4-sliver/"><u>[New] 2024 Approved Full Review for GoPro Hero4 Sliver</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-transform-photo-editing-with-top-lunapic-hacks/"><u>[Updated] 2024 Approved Transform Photo Editing with Top LunaPic Hacks</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-discover-the-power-of-pixlr-25-must-use-tips-and-tricks-for-2024/"><u>[Updated] Discover the Power of Pixlr 25 Must-Use Tips and Tricks for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-essential-cloud-hookups-for-android/"><u>[Updated] Essential Cloud Hookups for Android</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-photographic-perfection-in-the-palm-of-your-hands-online/"><u>[Updated] Photographic Perfection in the Palm of Your Hands Online</u></a></li>
+<li><a href="https://win-web3.techidaily.com/1-protegez-votre-ssd-sans-cout-logiciel-de-sauvegarde-innovant-et-eprouve-pour-2024/"><u>1. Protégez Votre SSD Sans Coût : Logiciel De Sauvegarde Innovant Et Éprouvé Pour 2024</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/analyzing-the-amazfit-gts-a-fusion-of-fashion-and-physical-activity-mixed-successes/"><u>Analyzing the Amazfit GTS: A Fusion of Fashion and Physical Activity, Mixed Successes</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/are-phones-with-two-sim-slots-truly-beneficial-for-users/"><u>Are Phones with Two SIM Slots Truly Beneficial for Users?</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/enhance-gaming-experience-with-voice-adjustment-for-2024/"><u>Enhance Gaming Experience with Voice Adjustment for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/from-base-to-brilliance-comparing-gopro-hero5-black-and-hero4-silver-for-2024/"><u>From Base to Brilliance Comparing GoPro Hero5 Black and Hero4 Silver for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-implementing-closed-captions-on-social-video-platforms-snapchat/"><u>In 2024, Implementing Closed Captions on Social Video Platforms (Snapchat)</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/in-2024-saving-every-moment-on-mac-with-screen-recording-tutorial/"><u>In 2024, Saving Every Moment on Mac with Screen Recording Tutorial</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-superior-psd-design-transformations/"><u>In 2024, Superior PSD Design Transformations</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/no-copyrights-required-best-10-melodies-for-zen-practice/"><u>No Copyrights Required - Best 10 Melodies for Zen Practice</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/step-by-step-tutorial-mend-nonfunctional-skype-video-calls-on-windows-10-systems/"><u>Step-by-Step Tutorial: Mend Nonfunctional Skype Video Calls on Windows 10 Systems</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/top-8-suggestions-for-high-quality-iphone-videography-projects-for-2024/"><u>Top 8 Suggestions for High-Quality iPhone Videography Projects for 2024</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/video-system-repaired-driver-running-well/"><u>Video System Repaired: Driver Running Well</u></a></li>
 </ul></div>
 
