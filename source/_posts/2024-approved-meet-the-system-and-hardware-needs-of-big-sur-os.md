@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Meet the System & Hardware Needs of Big Sur OS\""
-date: 2024-08-08T04:37:49.189Z
-updated: 2024-08-09T04:37:49.189Z
+date: 2025-01-17T21:27:19.258Z
+updated: 2025-01-22T21:17:56.783Z
 tags: 
   - screen-recording
   - ai video
@@ -20,18 +20,6 @@ thumbnail: https://thmb.techidaily.com/891c1ef62d1f0cae8f261e14a3ae4e9d18efe066a
 
 # macOS 11 Big Sur: System and Hardware Requirements
 
-<!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 ##### Liza Brown
@@ -43,8 +31,9 @@ Finally, the most awaited moment of the **macOS 11Big Sur** release took place i
 Many Mac users have come across this confusion as Mac's system requirements have gone through a couple of updates regarding Catalina, High Sierra, and Mojave. So, with no delay, let's get into the **macOS Big Sur requirements** in detail.
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 1: System Requirements for macOS 11 Big Sur
 
 First, let’s look at the **Big Sur system requirements** in this session.
@@ -58,8 +47,9 @@ First, let’s look at the **Big Sur system requirements** in this session.
 **Features:** Some features require an Apple ID or a compatible internet service provider.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 2: Hardware Requirements - Mac Models Compatible with macOS 11 Big Sur
 
 So, what are the **macOS Big Sur hardware requirements** that my Mac device should meet for the successful accomplishment of the upgrade? The Mac devices compatible with the **Big Sur minimum requirements** are as follows:
@@ -83,8 +73,9 @@ So, what are the **macOS Big Sur hardware requirements** that my Mac device shou
 Another option to check **macOS Big Sur hardware requirements** about your Mac model is to click the “Apple’s” icon on the top-left of the screen and choose the “About This Mac” option to check the **macOS Big Sur compatibility**.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 3: Tips on Using macOS 11 Big Sur
 
 Got a clear-cut view regarding **Big Sur requirements**? Once updated, the chances might seem overwhelming at first glance and challenging to sort out things. Now, it's time to view some tips and tricks on using macOS Big Sur to experience a little better experience.
@@ -122,16 +113,18 @@ Designed exclusively for the inspired, discover the real world of storytelling w
 * Create without limits, as you can try Wondershare Filmora for free to hit play on your imagination.
 
 <!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Conclusion
 
 Now that we have discussed the **Big Sur Mac requirements** in terms of system and hardware put the tactics discussed above in this article for smooth handling of Big Sur. Besides, whatever Mac version upgrade, MacBook Pro models jump by a year or so. Without a doubt, Wondershare Filmora will continue to be the all-in-one [Mac video editor](https://tools.techidaily.com/wondershare/filmora/download/) of all time!
 
-<!-- affiliate ads begin -->
-<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -156,6 +149,22 @@ Follow @Liza Brown
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-a-celebrated-list-top-15-classic-stop-motion-flicks/"><u>[New] 2024 Approved A Celebrated List Top 15 Classic Stop-Motion Flicks</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-rapid-reel-sound-mixed-screenshotting/"><u>[New] In 2024, Rapid Reel Sound-Mixed Screenshotting</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-spotlight-on-snapchat-a-users-handbook-for-highlights-for-2024/"><u>[New] Spotlight on Snapchat A User's Handbook for Highlights for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-the-cutting-edge-professional-cameras-a-360-overview-2023-for-2024/"><u>[New] The Cutting-Edge Professional Cameras - A 360° Overview, 2023 for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-exploring-virtual-worlds-with-samsung-gear-vr-games/"><u>[Updated] 2024 Approved Exploring Virtual Worlds with Samsung Gear VR Games</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-the-definitive-guide-to-affordable-video-calls-online/"><u>[Updated] In 2024, The Definitive Guide to Affordable Video Calls Online</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-songsyncing-simplified-your-guide-to-turning-tamil-music-into-alerts/"><u>[Updated] SongSyncing Simplified Your Guide to Turning Tamil Music Into Alerts</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-travel-film-kit-the-necessary-arsenal-for-2024/"><u>[Updated] Travel Film Kit The Necessary Arsenal for 2024</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/blue-screen-error-solutions-how-to-stop-volsnapsys-from-causing-system-failures-in-windows/"><u>Blue Screen Error Solutions: How to Stop Volsnap.sys From Causing System Failures in Windows</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/easy-guide-how-to-bypass-infinix-zero-30-5g-frp-android-10111213-by-drfone-android/"><u>Easy Guide How To Bypass Infinix Zero 30 5G FRP Android 10/11/12/13</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/how-to-safely-delete-photos-from-icloud-while-preserving-iphone-versions/"><u>How to Safely Delete Photos From iCloud While Preserving iPhone Versions</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95769593-9781786781147-impossible-truths/"><u>Impossible Truths | Free Book</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-universal-srt-to-various-subtitle-formats-handbook/"><u>In 2024, Universal SRT to Various Subtitle Formats Handbook</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/the-finest-places-to-source-high-quality-vectors/"><u>The Finest Places to Source High-Quality Vectors</u></a></li>
+<li><a href="https://games-able.techidaily.com/valves-10-year-milestone-reinvigorates-family-sharing-on-steam/"><u>Valve’s 10-Year Milestone: Reinvigorates Family Sharing on Steam</u></a></li>
+</ul></div>
 

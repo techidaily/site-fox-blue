@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  A Step-by-Step Guide to Easy Video Cuts on Windows Phones\""
-date: 2025-01-15T16:54:58.930Z
-updated: 2025-01-16T18:33:12.282Z
+date: 2025-01-15T16:55:42.479Z
+updated: 2025-01-22T17:56:58.407Z
 tags: 
   - screen-recording
   - ai video
@@ -51,21 +51,17 @@ Here is how to trim videos in [Windows 10 Photos](https://www.microsoft.com/en-u
 ![trim videos in windows 10 Photos](https://images.wondershare.com/filmora/article-images/photos-trim.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 3**: On the bottom part of the screen, there are three circles. The start and end of the markers clips are represented by two small white circles. For chopping off the unwanted portions you need to drag and adjust the marker circles. The movement of markers shows a text denoting the total selected length of the clip over the marker. The larger marker represents the present spot of your video clip. Make sure to drag around and adjust the video for including all the important parts within the video.
 
 ![trim videos in windows 10 Photos](https://images.wondershare.com/filmora/article-images/start-trim-photos.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 4**: Once you are happy with the changes, hit the save icon from the top menu. The clip is saved as a copy without impacting your original video in your Windows computer.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: How to trim video in Windows 10 with VLC
@@ -80,6 +76,10 @@ Here comes the step by step guide to trim video in VLC –
 
 ![trim videos in windows 10 using VLC](https://images.wondershare.com/filmora/article-images/vlc-trim-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Upon activation of the 'Advanced controls' option, four additional buttons appear over the VLC media player's play/pause button. Now, you got to add the video by 'Open File'. Well, you can also do that by dragging and dropping the video as well.
 2. Select the position from where you want to keep the video and hit the play and record button together.
 3. Now, tap the 'Record' button again where you want to stop the recording. This clip automatically gets saved as an MP4 media file. You can find it within the 'Libraries/Videos' folder if it's a Windows 7 PC.
@@ -87,7 +87,7 @@ Here comes the step by step guide to trim video in VLC –
 Note: You won't be trimmed by cutting the video here, rather recording the desired part using the inbuilt VLC decoder. Using the 'Frame by frame' button found under the 'Advanced control' section (the last button from the left) move to the exact frame you wish to begin your recording.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -97,7 +97,7 @@ From the above article, we found that **trimming video in VLC and Windows 10 Pho
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
@@ -127,24 +127,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2022s-golden-age-for-ice-dancing-showcases/"><u>[New] 2022'S Golden Age for Ice Dancing Showcases</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-creating-layered-text-the-illustration-expertise/"><u>[New] Creating Layered Text The Illustration Expertise</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-journey-to-blockchain-stardom-discover-the-top-7-generator-tools/"><u>[New] In 2024, Journey to Blockchain Stardom - Discover the Top 7 Generator Tools</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-newcomers-cheat-sheet-unlock-ps-editing-secrets/"><u>[New] Newcomer's Cheat Sheet Unlock PS Editing Secrets</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-innovative-methods-to-enhance-your-twitch-stream/"><u>[Updated] 2024 Approved Innovative Methods to Enhance Your Twitch Stream</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-embark-on-avatar-adventures-building-characters-with-ease/"><u>[Updated] In 2024, Embark on Avatar Adventures Building Characters with Ease</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-how-to-convert-jpg-and-png-images-to-pdf-on-an-iphone/"><u>[Updated] In 2024, How to Convert JPG and PNG Images to PDF on an iPhone</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-visionary-videography-top-cameras/"><u>2024 Approved Visionary Videography Top Cameras</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-webcapture-pro-live-chat-videos/"><u>2024 Approved WebCapture Pro Live Chat Videos</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/downloading-youtubes-srt-subs-three-easy-steps-for-2024/"><u>Downloading YouTube's SRT Subs Three Easy Steps for 2024</u></a></li>
-<li><a href="https://win-answers.techidaily.com/fixes-for-fixing-battlefront-ii-crash-issues-on-windows-systems/"><u>Fixes for Fixing 'Battlefront II' Crash Issues on Windows Systems</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-restore-a-bricked-nokia-c12-plus-back-to-operation-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Restore a Bricked Nokia C12 Plus Back to Operation | Dr.fone</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-your-apple-iphone-15-pro-max-passcode-4-easy-methods-with-or-without-itunes-by-drfone-ios/"><u>In 2024, How to Unlock Your Apple iPhone 15 Pro Max Passcode 4 Easy Methods (With or Without iTunes)</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-the-instagram-image-addition-playbook/"><u>In 2024, The Instagram Image Addition Playbook</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-which-is-the-best-fake-gps-joystick-app-on-apple-iphone-15-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Which is the Best Fake GPS Joystick App On Apple iPhone 15 Pro Max? | Dr.fone</u></a></li>
-<li><a href="https://fox-tips.techidaily.com/mastering-safe-crypto-transactions-with-guidance-from-yl-software-specialists/"><u>Mastering Safe Crypto Transactions with Guidance From YL Software Specialists</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/new-2024-approved-best-7-vocal-remover-to-get-rid-of-vocals-with-ease-online-and-offline/"><u>New 2024 Approved Best 7 Vocal Remover to Get Rid of Vocals with Ease Online & Offline</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/optimal-airdate-for-podcasts-timing-matters-most-for-2024/"><u>Optimal Airdate for Podcasts Timing Matters Most for 2024</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/reviving-input-devices-troubleshoot-unresponsive-mouse-and-keyboard-on-windows-7-systems/"><u>Reviving Input Devices: Troubleshoot Unresponsive Mouse and Keyboard on Windows 7 Systems</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-from-recording-to-broadcast-masterful-podcast-editing-with-garageband-for-2024/"><u>[New] From Recording to Broadcast Masterful Podcast Editing with GarageBand for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-venturing-into-vector-world-starting-point-and-top-tools/"><u>[New] Venturing Into Vector World Starting Point and Top Tools</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-how-to-send-gif-on-snapchat-stey-by-stey-guide/"><u>[Updated] 2024 Approved How to Send Gif on Snapchat [Stey-by-Stey Guide]</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-budget-friendly-camera-guide-best-bargains/"><u>[Updated] In 2024, Budget-Friendly Camera Guide Best Bargains</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-annual-salary-details-for-streaming-sensation-pewdiepie/"><u>2024 Approved Annual Salary Details for Streaming Sensation PewDiePie</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-maximizing-impact-when-to-start-your-podcast/"><u>2024 Approved Maximizing Impact When to Start Your Podcast</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-smart-recording-solutions-for-schools-and-colleges/"><u>2024 Approved Smart Recording Solutions for Schools & Colleges</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761826-9781622037124-a-ceremony-called-life/"><u>A Ceremony Called Life | Free Book</u></a></li>
+<li><a href="https://techtrends.techidaily.com/detailed-fix-for-the-elusive-mfc4eb0adll-not-found-or-missing-error/"><u>Detailed Fix for the Elusive MFC4EB0A.dll: Not Found or Missing Error</u></a></li>
+<li><a href="https://common-error.techidaily.com/diagnosing-unexpected-boot-sequences-for-windows-11-systems/"><u>Diagnosing Unexpected Boot Sequences for Windows 11 Systems</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-examining-the-limitations-of-immersive-tech/"><u>In 2024, Examining the Limitations of Immersive Tech</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-virtual-care-innovations-in-medicine/"><u>In 2024, Virtual Care Innovations in Medicine</u></a></li>
+<li><a href="https://fake-location.techidaily.com/will-the-ipogo-get-you-banned-and-how-to-solve-it-on-vivo-y78plus-t1-edition-drfone-by-drfone-virtual-android/"><u>Will the iPogo Get You Banned and How to Solve It On Vivo Y78+ (T1) Edition | Dr.fone</u></a></li>
 </ul></div>
 

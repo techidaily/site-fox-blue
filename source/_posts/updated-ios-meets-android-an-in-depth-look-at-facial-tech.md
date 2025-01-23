@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] IOS Meets Android  An In-Depth Look at Facial Tech\""
-date: 2025-01-14T16:29:18.512Z
-updated: 2025-01-16T16:28:20.802Z
+date: 2025-01-19T19:18:39.816Z
+updated: 2025-01-22T20:07:39.194Z
 tags: 
   - screen-recording
   - ai video
@@ -39,7 +39,7 @@ thumbnail: https://thmb.techidaily.com/2e9cfa327b9759eb425968540a827a94cde4fe4ea
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: How does it work?
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/2e9cfa327b9759eb425968540a827a94cde4fe4ea
 ![Samsung](https://images.wondershare.com/filmora/article-images/Samsung-Galaxy-S8-Face-Unlock.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: Which one is more Accuracy?
@@ -67,6 +67,10 @@ thumbnail: https://thmb.techidaily.com/2e9cfa327b9759eb425968540a827a94cde4fe4ea
  Being accurate is a considerable issue with face recognition technology if you are using a Samsung device. On the other hand, iPhone X shows accuracy than Samsung since it analyzes the whole face instead of iris. For Samsung’s iris scanner, the camera contains a confined and narrowly designed focus where is exactly your iris needed to be for scanning. The camera will able to recognize only when your iris will be in that same place for long where it focuses. And therefore, there are times when you left with holding your device high for better iris detection. Apple has no such accuracy issue for it takes your face to recognize.
 
 ![iPhone X accuracy](https://images.wondershare.com/filmora/article-images/iphone-x-accuracy.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: The Common Inconvenience
 
@@ -79,7 +83,7 @@ thumbnail: https://thmb.techidaily.com/2e9cfa327b9759eb425968540a827a94cde4fe4ea
 ![face ID incovenience](https://images.wondershare.com/filmora/article-images/face-incovenience.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 4: Safety Issue
@@ -92,10 +96,6 @@ thumbnail: https://thmb.techidaily.com/2e9cfa327b9759eb425968540a827a94cde4fe4ea
 
 ![face ID issue](https://images.wondershare.com/filmora/article-images/face-id-issue.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  On the other hand, Samsung also doesn’t lag behind when it comes to safety and security with face recognition feature. Samsung is the first Android device company to introduce face recognition technology that brought iris scanning technology with its Galaxy Note 7\. The technology does it job by detecting the iris’ pattern of your eyes. As far as security is concerned, the technology gets 10 on 10 since each person possesses unique iris pattern and it becomes difficult to replicate. The devices by Samsung having face recognition technology are designed with infrared diode which is capable
 
  All in all, both the companies have put extra effort in justifying the safety with trending face recognition technology. However, we are not certain for full reliability of them.
@@ -107,7 +107,7 @@ thumbnail: https://thmb.techidaily.com/2e9cfa327b9759eb425968540a827a94cde4fe4ea
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Ollie Mattison
@@ -135,24 +135,21 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-dynamic-dialogue-driven-decks/"><u>[New] 2024 Approved Dynamic Dialogue Driven Decks</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-essential-recommendations-for-maximum-data-keep-for-2024/"><u>[New] Essential Recommendations for Maximum Data Keep for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-foremost-quintet-of-cutting-edge-photo-tech/"><u>[New] Foremost Quintet of Cutting-Edge Photo Tech</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/s-screening-youtube-footage-illegal-for-2024/"><u>[New] Is Screening YouTube Footage Illegal for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-key-platforms-optimizing-youtube-video-views/"><u>[New] Key Platforms Optimizing YouTube Video Views</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-standout-panzoid-design-kits-for-2024/"><u>[New] Standout Panzoid Design Kits for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-evaluating-the-effectiveness-of-shake-reduction-in-adobe-photos/"><u>[Updated] 2024 Approved Evaluating the Effectiveness of 'Shake' Reduction in Adobe Photos</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-pureimage-the-backdrop-cutter-for-2024/"><u>[Updated] PureImage The Backdrop Cutter for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-seamless-sound-synthesis-inshots-audio-guide-for-2024/"><u>[Updated] Seamless Sound Synthesis InShot's Audio Guide for 2024</u></a></li>
-<li><a href="https://extra-information.techidaily.com/2024-approved-comprehensive-hand-tracking-explained/"><u>2024 Approved Comprehensive Hand Tracking Explained</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/effective-fixes-when-your-sound-blaster-microphone-fails/"><u>Effective Fixes When Your Sound Blaster Microphone Fails</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/expertly-selected-8-filters-for-virtual-showcases/"><u>Expertly Selected 8 Filters for Virtual Showcases</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-excellent-spots-for-tamil-ringtones-acquisition-guide/"><u>In 2024, Excellent Spots for Tamil Ringtones Acquisition Guide</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/mastering-cross-platform-use-a-step-by-step-guide-to-running-linux-on-xcode-with-an-ingenious-hack-zdnet-exclusive/"><u>Mastering Cross-Platform Use: A Step-by-Step Guide to Running Linux on Xcode with an Ingenious Hack - ZDNET Exclusive</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/streamline-your-tiktok-creation-process-with-zoom/"><u>Streamline Your TikTok Creation Process with Zoom</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/supercharge-your-tweet-views-for-flawless-hd/"><u>Supercharge Your Tweet Views for Flawless HD</u></a></li>
-<li><a href="https://extra-information.techidaily.com/the-apple-m1-breakdown-a-glimpse-into-the-future/"><u>The Apple M1 Breakdown A Glimpse Into the Future</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/the-ultimate-fix-for-handling-401-unauthorized-responses-online/"><u>The Ultimate Fix for Handling 401 Unauthorized Responses Online</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unlocking-fun-with-the-syma-s111g-remote-controlled-helicopter-your-indoor-adventure-awaits/"><u>Unlocking Fun with the Syma S111G Remote-Controlled Helicopter - Your Indoor Adventure Awaits!</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-dive-into-the-most-effective-online-tools-your-guide-to-perfect-captions/"><u>[New] 2024 Approved Dive Into the Most Effective Online Tools Your Guide to Perfect Captions</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-unveiling-the-top-8-beginner-friendly-cameras-35mm-to-pands/"><u>[New] 2024 Approved Unveiling the Top 8 Beginner-Friendly Cameras (35Mm to P&S)</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-crafted-clicks-guide-to-software-and-sites-for-superior-photo-framing-for-2024/"><u>[New] Crafted Clicks Guide to Software & Sites for Superior Photo Framing for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-creating-impressive-video-tracks-with-a-newbie-mac-user/"><u>[New] Creating Impressive Video Tracks with a Newbie Mac User</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-mastering-audible-content-conversion-into-slide-ready-format-with-powerpoint/"><u>[New] In 2024, Mastering Audible Content Conversion Into Slide-Ready Format with PowerPoint</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-visual-filmmaking-tools-environmentally-friendly/"><u>[Updated] In 2024, Visual Filmmaking Tools Environmentally Friendly</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-twilight-treasures-iphone-night-photography-secrets/"><u>[Updated] Twilight Treasures IPhone Night Photography Secrets</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-ultimate-4k-desktop-screens-full-integration-and-touch-for-2024/"><u>[Updated] Ultimate 4K Desktop Screens Full Integration & Touch for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-aspect-ratios-unveiled-a-complete-youtube-manual/"><u>2024 Approved Aspect Ratios Unveiled A Complete YOUTUBE Manual</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/best-in-class-meme-layout-essentials-for-2024/"><u>Best-in-Class Meme Layout Essentials for 2024</u></a></li>
+<li><a href="https://fox-search.techidaily.com/guida-esclusiva-al-debugging-del-blocco-della-configurazione-di-sistema-in-windows-n11/"><u>Guida Esclusiva Al Debugging Del Blocco Della Configurazione Di Sistema in Windows N.11</u></a></li>
+<li><a href="https://app-tips.techidaily.com/how-essential-is-devops-for-staying-ahead-in-business-ensuring-safety-through-top-strategies-insights-from-zdnet/"><u>How Essential Is DevOps for Staying Ahead in Business: Ensuring Safety Through Top Strategies - Insights From ZDNet</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/phasmophobia-crashes-2024-fixes/"><u>Phasmophobia Crashes - 2024 Fixes</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/reviving-silenced-microphone-for-xbox-console/"><u>Reviving Silenced Microphone for Xbox Console</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/virtual-escapades-explained-the-core-principles-for-2024/"><u>Virtual Escapades Explained The Core Principles for 2024</u></a></li>
+<li><a href="https://win-deluxe.techidaily.com/1728482656081-windowspc/"><u>Windows系統下，從物理PC遷移到雲端計算方法</u></a></li>
 </ul></div>
 

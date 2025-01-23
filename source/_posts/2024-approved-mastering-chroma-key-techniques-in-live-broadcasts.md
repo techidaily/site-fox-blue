@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Mastering Chroma Key Techniques in Live Broadcasts\""
-date: 2024-08-08T04:38:48.559Z
-updated: 2024-08-09T04:38:48.559Z
+date: 2025-01-21T20:15:19.723Z
+updated: 2025-01-22T23:27:45.893Z
 tags: 
   - screen-recording
   - ai video
@@ -20,9 +20,6 @@ thumbnail: https://thmb.techidaily.com/da7fa3270346efb8a59ee9a2227fafe39fab3e809
 
 # How to use Green Screen for Streaming
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -31,9 +28,6 @@ thumbnail: https://thmb.techidaily.com/da7fa3270346efb8a59ee9a2227fafe39fab3e809
 
 The green screen has become the new hot-cake among gamers and other video streamers. It allows them to add the most magnetizing and unreal effects for their streams. These days, it has become easier than ever to set-up your green screen studio and creatively displays your hidden talent.
 
-<!-- affiliate ads begin -->
-<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to set-up your live streaming studio
 
 To set up a green screen studio, there are some things you’ll need to be equipped with first. You’ll need to know which camera to use, which green screen to use, and which lights your broadcast requires.
@@ -50,16 +44,10 @@ The details of the needed equipment for different scenarios are explained below:
 
 If you want to set up a large broadcasting studio the camera you’ll need should have adequate qualities. A live system studio and the broadcasting camera should do the trick if you have a sufficient budget. They can range anywhere from **$2000 to $25000** depending on your need. **A video with a quality of less than 2k resolution is not enough for streaming from a big newsroom studio.**
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
-<!-- affiliate ads end -->
 ![sony hdc 5500 studio camera](https://images.wondershare.com/filmora/Mac-articles/sony-hdc-5500-studio-camera.jpg)
 
 For normal web or twitch streaming a high-quality webcam should be used. It should have good face tracking and great picture quality. **A 1080p resolution** with the capability of 30-60 frames is a bonus. There are some great cameras on the market that you can even land at **under $100**.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
-<!-- affiliate ads end -->
 ![clear one unite pro webcam](https://images.wondershare.com/filmora/Mac-articles/clear-one-unite-pro-webcam.jpg)
 
 * Green Screen
@@ -68,17 +56,22 @@ The green screen requirements are also different for different types of broadcas
 
 ![green screen for studio](https://images.wondershare.com/filmora/Mac-articles/green-screen-for-studio.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 For gamers and other streamers like beauty vloggers, twitch anchors, and YouTubers there are different kinds of green screens in the market depending on the budget. There are foldable ones that can fold into a circle like a small tent. They open up to a considerably decent size. These green screens need to be hanged to keep them standing and come at a considerably lower price range of around $40.
 
 ![foldable green screen](https://images.wondershare.com/filmora/Mac-articles/foldable-green-screen.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Another option of the green screen for streamers is a collapsible green screen. It was introduced by Elgato and is easy to carry and easy to set-up. It can be adjusted to any height and can open and tear down in a matter of seconds. It comes with a relatively high price of around $150 but they are worth the money.
 
 Do remember that any green screen you use should be large enough to give your main subject space to move around. Apart from that, make sure you don’t have any green elements in your subject or your software will also make those areas disappear. **If your subject has blonde hair, a blue screen instead of a green screen is recommended.**
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
 ![elgato green screen stand](https://images.wondershare.com/filmora/Mac-articles/elgato-green-screen-stand.jpg)
 
 * Lights
@@ -90,6 +83,10 @@ If it is a straight background two high-powered lights should be enough. However
 For small setups, the most commonly used set-up is the three-point set-up. It is a formation of a triangle with a key light, fill light, and a backlight to cover the subject or the talent. For a green screen, one light on each side would do the job of providing enough light to keep the screen lit.
 
  ![lighting guide for a green screen](https://images.wondershare.com/filmora/Mac-articles/lighting-guide-for-a-green-screen.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 The two things to remember about lighting are that there is should be no shadow in the background and the green screen should be lit across evenly. It may take some time for you to learn the correct ways but practice and observation will make it perfect.
 
@@ -103,6 +100,10 @@ To start a live stream you need to download [XSplit](https://www.xsplit.com/) br
 
 ![xsplit](https://images.wondershare.com/filmora/Mac-articles/xsplit.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### Conclusion
 
 Green screens were a thing of luxury in the old times only to be used by filmmakers or news broadcasters. Now, with the current technology, it is possible to set up a green screen studio in your room. From gamers to vloggers, each one is trying to be as creative as possible to attract more viewers to the screen.
@@ -111,10 +112,11 @@ To fulfill the needs of all kinds of green screen editing for a newsroom or live
 
 Learn More: [How to use OBS Streamlabs on Mac？>>>](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -141,6 +143,23 @@ Follow @Richard Bennett
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-strengthening-your-presence-networking-techniques-for-youtubers/"><u>[New] 2024 Approved Strengthening Your Presence Networking Techniques for YouTubers</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-the-comprerancial-guide-to-top-webinars/"><u>[New] The Comprerancial Guide to Top Webinars</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-a-step-by-step-approach-to-perfecting-vlog-soundtracks/"><u>[Updated] A Step-by-Step Approach to Perfecting Vlog Soundtracks</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-cut-buffering-time-turn-on-av1-in-youtube-settings/"><u>[Updated] Cut Buffering Time – Turn On AV1 in YouTube Settings</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-dive-deep-into-vlogging-easy-creative-projects-for-2024/"><u>[Updated] Dive Deep Into Vlogging Easy, Creative Projects for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/5-best-photo-editing-app-for-android-phone-for-2024/"><u>5 Best Photo Editing App for Android Phone for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/discover-how-this-enchanting-light-projector-became-my-must-have-smart-home-gadget-zdnet/"><u>Discover How This Enchanting Light Projector Became My Must-Have Smart Home Gadget | ZDNet</u></a></li>
+<li><a href="https://win-blog.techidaily.com/effective-techniques-to-complete-stalled-steam-game-downloads-successfully/"><u>Effective Techniques to Complete Stalled Steam Game Downloads Successfully</u></a></li>
+<li><a href="https://win-answers.techidaily.com/fixing-the-launch-failed-a-guide-for-starfield-players-on-pc-and-xbox/"><u>Fixing the 'Launch Failed': A Guide for Starfield Players on PC and Xbox</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-epic-footage-and-photos-mastering-the-hero5-black-experience/"><u>In 2024, Epic Footage and Photos Mastering the Hero5 Black Experience</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-in-the-rings-rhythm-a-clash-with-streamers/"><u>In 2024, In the Ring's Rhythm A Clash with Streamers</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-premier-text-manipulation-software-for-ae/"><u>In 2024, Premier Text Manipulation Software for AE</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-srgb-efficiency-against-basic-rgb/"><u>In 2024, Srgb Efficiency Against Basic Rgb</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/insightful-analysis-the-dji-inspire-2-story-for-2024/"><u>Insightful Analysis - The DJI Inspire 2 Story for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/rise-from-viewer-emptiness-exploring-why-your-videos-stay-unwatched/"><u>Rise From Viewer Emptiness Exploring Why Your Videos Stay Unwatched</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/unlocking-made-easy-the-best-10-apps-for-unlocking-your-tecno-phantom-v-flip-device-by-drfone-android/"><u>Unlocking Made Easy The Best 10 Apps for Unlocking Your Tecno Phantom V Flip Device</u></a></li>
+</ul></div>
 

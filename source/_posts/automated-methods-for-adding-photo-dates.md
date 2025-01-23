@@ -1,7 +1,7 @@
 ---
 title: "Automated Methods for Adding Photo Dates"
-date: 2025-01-10T17:07:25.914Z
-updated: 2025-01-16T17:54:24.764Z
+date: 2025-01-17T19:43:02.154Z
+updated: 2025-01-22T18:54:13.602Z
 tags: 
   - screen-recording
   - ai video
@@ -56,6 +56,10 @@ Downloading the [Timestamp camera](https://www.timestampcameraapp.com/) is free 
 
 ![downloading the timestamp camera](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step1Go to your phone app store: Apple Store or Play Store.
 
 Step2Install the app after downloading.
@@ -88,10 +92,6 @@ Step4Go back and take a picture to verify if it works.
 
 Step5You should note that the time stamp option could also appear as Watermark.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Use the inbuilt photo app to edit photos on Android and iPhone
 
 You can edit photos on Android and iOS devices. Click your phone's default camera to edit photos on both platforms.
@@ -103,6 +103,10 @@ The stock Android Camera app has full editing features that allow you to crop, r
 #### **iPhone**
 
 The stock iPhone Camera app also has full editing tools that allow you to crop, rotate and adjust the contrast of your photos. You can also add stickers and frames to your photo within this app.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Use other photo editors to edit photos
 
@@ -233,6 +237,10 @@ Step2Select Edit & Create > Edit with Paint 3D in the upper right corner of the 
 
 ![select edit create](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-13.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step3Go to the screen's top and click Text.
 
 ![click on text](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-14.jpg)
@@ -257,21 +265,25 @@ Step7Proceed to click on the Save option.
 
 **You can add dates to photos online** via several platforms. Several websites make that possible. Let’s look at some of the platforms and the features they provide.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1\. [Canva](https://www.canva.com/photo-editor/)
 
 Canva is a standout online photo editor where you can edit your and **add date to photos**. To start, you must **sign up and upload the photo** you want to edit.
 
 ![canva](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-19.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Key Features**
 
 * Smartmockups: Smartmockups are a tool that can bring your best ideas to life.
 * Add depth of field to your image instantly.
 * Background image remover
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. [Fotor](https://www.fotor.com/)
 
@@ -297,10 +309,6 @@ PIXLR is another great online platform that can be used to **edit pictures onlin
 * Photo Resizing
 * Background Remover
 * Retouching of photo
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -330,6 +338,10 @@ Downloading the [Timestamp camera](https://www.timestampcameraapp.com/) is free 
 
 ![downloading the timestamp camera](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step1Go to your phone app store: Apple Store or Play Store.
 
 Step2Install the app after downloading.
@@ -387,7 +399,7 @@ Instasize is an app that you will find quite useful. The app was developed for i
 ![instasize](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-2.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Key features**
@@ -483,11 +495,19 @@ Step4Proceed to add date and time into the text area manually.
 
 ![add data and time](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-10.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step5When ready, drag and slide the date to the area of the image where you wish to stamp it.
 
 ![place the date and time](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-11.jpg)
 
 Step6Finally, select File>Save to add your date to the picture.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Use an inbuilt app to edit photos on Windows
 
@@ -496,10 +516,6 @@ Step1Enter "Photos " in the taskbar's search field. Click on it. Decide the imag
 Step2At the top of your screen, click on Edit & Create to get.
 
 ![click on edit create to get](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-12.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step3After clicking Edit, choose any option (Crop & rotate, Filters, or Adjustments)
 
@@ -524,42 +540,26 @@ Step5Enter the date you want.
 ![enter date](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-16.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step6Select Menu in the upper-left corner.
 
 ![select menu](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-17.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step7Proceed to click on the Save option.
 
 ![click on save option](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-18.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 4\. Edit Photos Online to add date stamps
 
 **You can add dates to photos online** via several platforms. Several websites make that possible. Let’s look at some of the platforms and the features they provide.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 1\. [Canva](https://www.canva.com/photo-editor/)
 
 Canva is a standout online photo editor where you can edit your and **add date to photos**. To start, you must **sign up and upload the photo** you want to edit.
 
 ![canva](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-19.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Key Features**
 
@@ -624,24 +624,24 @@ Hopefully, these steps will be helpful if you ever want to **add a date** or **e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-2024-approved-timing-your-podcast-release-effectively/"><u>[New] 2024 Approved Timing Your Podcast Release Effectively</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-balancing-professional-and-personal-profiles/"><u>[New] Balancing Professional and Personal Profiles</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-seamless-sharing-of-oversized-content-from-iphone-to-macos/"><u>[Updated] 2024 Approved Seamless Sharing of Oversized Content From iPhone to macOS</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-airborne-vigils-the-most-durable-drone-fleet-for-2024/"><u>[Updated] Airborne Vigils The Most Durable Drone Fleet for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-best-settings-audience-focused-screen-shots/"><u>[Updated] In 2024, Best Settings Audience-Focused Screen Shots</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-dusk-to-dawn-expert-iphone-low-light-techniques/"><u>[Updated] In 2024, Dusk to Dawn Expert iPhone Low Light Techniques</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-initiate-your-virtual-presence-with-ease-live-streaming-101-for-2024/"><u>[Updated] Initiate Your Virtual Presence with Ease Live Streaming 101 for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-no-cost-screen-record-the-ultimate-win11-tools-1-5-listing-for-2024/"><u>[Updated] No-Cost Screen Record The Ultimate Win11 Tools #1-5 Listing for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-professional-approach-to-convert-webp-images-to-jpeg-for-2024/"><u>[Updated] Professional Approach to Convert WebP Images to JPEG for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-quickcapturewin-instant-screenshots-for-pcs-for-2024/"><u>[Updated] QuickCaptureWin Instant Screenshots for PCs for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/auto-enhancing-shots-with-innovative-exposure-algorithms/"><u>Auto-Enhancing Shots with Innovative Exposure Algorithms</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/canons-sx420-reviewed-42x-optical-zoom-for-the-budget-snapper/"><u>Canon's SX420 Reviewed: 42X Optical Zoom for the Budget Snapper</u></a></li>
-<li><a href="https://location-social.techidaily.com/edit-and-send-fake-location-on-telegram-for-your-motorola-defy-2-in-3-ways-drfone-by-drfone-virtual-android/"><u>Edit and Send Fake Location on Telegram For your Motorola Defy 2 in 3 Ways | Dr.fone</u></a></li>
-<li><a href="https://win-able.techidaily.com/master-the-art-of-assembling-mdf-and-mds-units-explore-these-three-efficient-mounting-solutions/"><u>Master the Art of Assembling MDF and MDS Units - Explore These Three Efficient Mounting Solutions!</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/1722899708659-mastering-american-sign-language-here-are-16-amazing-free-learning-resources-to-get-started/"><u>Mastering American Sign Language? Here Are 16 Amazing Free Learning Resources to Get Started</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/1719367478733-overcome-windows-obstacles-expert-advice-awaits/"><u>Overcome Windows Obstacles: Expert Advice Awaits</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/simplified-access-how-to-dive-into-youtube-comment-threads/"><u>Simplified Access How to Dive Into YouTube Comment Threads</u></a></li>
-<li><a href="https://win11.techidaily.com/tactics-for-wi-fi-disassociation-in-win-11/"><u>Tactics for Wi-Fi Disassociation in Win 11</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/why-is-ipogo-not-working-on-apple-iphone-11-fixed-drfone-by-drfone-virtual-ios/"><u>Why is iPogo not working On Apple iPhone 11? Fixed | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-premium-6-networks-maximizing-biz-potential/"><u>[New] 2024 Approved Premium 6 Networks Maximizing Biz Potential</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-elevating-tiktok-aesthetics-the-zoom-approach/"><u>[New] In 2024, Elevating TikTok Aesthetics The Zoom Approach</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-the-futures-in-your-hands-with-powerdirector-24-unleashed-for-2024/"><u>[New] The Future's in Your Hands with PowerDirector '24 Unleashed for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-exploring-the-frontier-top-360-cameras-for-industry-pros-2023/"><u>[Updated] 2024 Approved Exploring the Frontier Top 360° Cameras for Industry Pros, 2023</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-glimpsing-at-huawei-p10s-thermal-management-tech/"><u>[Updated] 2024 Approved Glimpsing at Huawei P10's Thermal Management Tech</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-streamline-your-media-with-top-8-convertors-1-8-for-2024/"><u>[Updated] Streamline Your Media with Top 8 Convertors #1-8 for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-simple-process-for-preserving-tweets-imagesvideos/"><u>2024 Approved Simple Process for Preserving Tweets' Images/Videos</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-the-art-of-connecting-a-deep-dive-into-instagram-live/"><u>2024 Approved The Art of Connecting A Deep Dive Into Instagram Live</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/3-facts-you-need-to-know-about-screen-mirroring-samsung-galaxy-m14-4g-drfone-by-drfone-android/"><u>3 Facts You Need to Know about Screen Mirroring Samsung Galaxy M14 4G | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/android-safe-mode-how-to-turn-off-safe-mode-on-motorola-edge-40-neo-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Android Safe Mode - How to Turn off Safe Mode on Motorola Edge 40 Neo? | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/vate-and-conquer-with-customized-content-shorts/"><u>Captivate and Conquer with Customized Content Shorts</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/from-closed-to-open-mastering-srt-files-in-macos/"><u>From Closed to Open Mastering SRT Files in macOS</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-perfecting-trailer-audio-a-step-by-step-approach/"><u>In 2024, Perfecting Trailer Audio A Step-by-Step Approach</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-the-best-price-to-performance-ratio-for-asmr-equipment/"><u>In 2024, The Best Price-to-Performance Ratio for ASMR Equipment</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-top-10-fingerprint-lock-apps-to-lock-your-samsung-galaxy-s23-fe-phone-by-drfone-android/"><u>In 2024, Top 10 Fingerprint Lock Apps to Lock Your Samsung Galaxy S23 FE Phone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/inverting-photo-colors-with-advanced-tools-for-2024/"><u>Inverting Photo Colors with Advanced Tools for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/leading-combo-deals-cable-modems-with-routers/"><u>Leading Combo Deals: Cable Modems with Routers</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-all-inclusive-guide-to-the-best-new-release-samsung-galaxy-s2n-fe-with-cutting-edge-5g-capabilities/"><u>The All-Inclusive Guide to the Best New Release: Samsung Galaxy S2n FE with Cutting-Edge 5G Capabilities</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/uncover-the-best-practices-for-high-quality-android-recordings/"><u>Uncover the Best Practices for High-Quality Android Recordings</u></a></li>
 </ul></div>
 
