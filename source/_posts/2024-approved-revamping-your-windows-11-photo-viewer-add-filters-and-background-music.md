@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Revamping Your Windows 11 Photo Viewer  Add Filters and Background Music\""
-date: 2024-08-15T10:23:38.473Z
-updated: 2024-08-16T10:23:38.473Z
+date: 2025-01-23T04:08:09.045Z
+updated: 2025-01-30T11:29:50.812Z
 tags: 
   - screen-recording
   - ai video
@@ -51,11 +51,16 @@ If you have got Windows 10 Photos app and wish to add filters, though, it is by 
 
 ![add filters on windows 10 photos app](https://images.wondershare.com/filmora/article-images/edit-filters-microsoft-photos.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 5**: Just select one you like. Preview it and then click Done.
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 2: How to add music on Windows 10 Photos App
 
 Now that you have learnt how to **_add filters using Windows 10 Photos app._** Do you think there is any possibility regarding adding music over it? Adding music to your video would make it more enjoyable. The artificial intelligence feature on Windows 10 Photos app helps it add music to videos with a single click. It’s easy to do, but meanwhile there will be some twitches to the way artificial intelligence videos show up as you try to match the volume and tempo of the music. But, you can do it with the help of default Microsoft tools.
@@ -67,34 +72,29 @@ Now that you have learnt how to **_add filters using Windows 10 Photos app._** D
 **Step 3**: Now, hit the ‘Create’ button from the top-right followed by dragging the video to Photos timeline. Later, hit on ‘Auio’ at top right.
 
 ![add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/add-music-to-video-photos-app.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
-
- Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
-
- DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
- PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 4**: Pick ‘Your music’ so that you can set up a custom track. There are over 20 music you can choose. You can also sync music to video's beat. You can visit ‘Recommended’ section for adding default ones.
 
 ![add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/choose-music-to-video-photos-app.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 5**: Hit the ‘Done’ button.
 
-<!-- affiliate ads begin -->
-<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Conclusion
 
 From the above article, we conclude that Windows 10 Photos app is an amazing app when it comes to photo editing and screen capturing from a video. While there are numerous options out there, you can **_add filters using Windows 10 Photos app_** in the best way possible. Moreover, this application enables you enable to even add music to videos using Windows 10 Photos app. The advantages of Windows 10 are innumerable, and with the right tools, you can get the best out of it.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -120,6 +120,26 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-from-novice-to-pro-mastering-spotify-advertisement-techniques/"><u>[New] 2024 Approved From Novice to Pro Mastering Spotify Advertisement Techniques</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/new-explore-30-anime-concepts-dominating-tiktok-feed/"><u>[New] Explore 30 Anime Concepts Dominating TikTok Feed</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-the-ultimate-guide-cropping-and-editing-music-in-canva/"><u>[New] The Ultimate Guide Cropping & Editing Music in Canva</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-top-8-beginners-choices-easy-film-cameras-35mm-to-pands/"><u>[Updated] 2024 Approved Top 8 Beginner's Choices Easy Film Cameras (35Mm to P&S)</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-dissecting-illusions-how-to-detect-fake-likes-and-followers/"><u>[Updated] In 2024, Dissecting Illusions How to Detect Fake Likes and Followers</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-essential-strategies-for-successful-zoom-meetings-using-win10/"><u>[Updated] In 2024, Essential Strategies for Successful Zoom Meetings Using WIN10</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-innovate-your-android-footage-with-astonishing-time-lapses-2024/"><u>[Updated] Innovate Your Android Footage with Astonishing Time-Lapses 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-chromatic-soundscapes-selecting-the-right-tune/"><u>2024 Approved Chromatic Soundscapes Selecting the Right Tune</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-seconds-for-a-high-quality-20mb-video/"><u>2024 Approved Seconds for a High-Quality 20MB Video</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-the-leading-selection-no-cost-outstanding-lut-links/"><u>2024 Approved The Leading Selection No-Cost, Outstanding LUT Links</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-top-10-budget-friendly-cloud-service-providers/"><u>2024 Approved Top 10 Budget-Friendly Cloud Service Providers</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/best-book-trailers-for-impact-for-2024/"><u>Best Book Trailers for Impact for 2024</u></a></li>
+<li><a href="https://android-location.techidaily.com/getting-the-pokemon-go-gps-signal-not-found-11-error-in-samsung-galaxy-f54-5g-drfone-by-drfone-virtual/"><u>Getting the Pokemon Go GPS Signal Not Found 11 Error in Samsung Galaxy F54 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-avoiding-compression-larger-youtube-videos/"><u>In 2024, Avoiding Compression Larger YouTube Videos</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-unbeatable-summer-movie-list-10-familial-classics/"><u>In 2024, Unbeatable Summer Movie List 10 Familial Classics</u></a></li>
+<li><a href="https://win-wonderful.techidaily.com/la-scelta-ottimale-i-piu-eccellenti-programmi-di-riproduzione-specchio-gratuiti-per-sistemi-windows/"><u>La Scelta Ottimale: I Più Eccellenti Programmi Di Riproduzione Specchio Gratuiti per Sistemi Windows</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/top-5-non-bandicamp-capture-tools-for-mac-users-for-2024/"><u>Top 5 Non-Bandicamp Capture Tools for Mac Users for 2024</u></a></li>
+<li><a href="https://fox-that.techidaily.com/top-6-strategies-to-overcome-autocorrect-errors-on-iphone-learn-correct-spelling-now/"><u>Top 6 Strategies to Overcome Autocorrect Errors on iPhone - Learn Correct Spelling Now!</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/top-actions-cameras-reviewed-hero5-vs-yi-in-the-spotlight/"><u>Top Actions Cameras Reviewed Hero5 Vs. YI in the Spotlight</u></a></li>
+</ul></div>
 

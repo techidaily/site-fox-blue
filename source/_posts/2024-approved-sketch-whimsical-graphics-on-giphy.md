@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Sketch Whimsical Graphics on Giphy\""
-date: 2024-08-15T10:22:58.335Z
-updated: 2024-08-16T10:22:58.335Z
+date: 2025-01-27T20:54:48.755Z
+updated: 2025-01-30T01:18:32.178Z
 tags: 
   - screen-recording
   - ai video
@@ -36,6 +36,10 @@ Step2 To upload a video to GIPHY, click Upload. To add a video from your compute
 
 ![upload video to giphy](https://images.wondershare.com/filmora/article-images/2022/07/upload-video-to-giphy.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step3 If you wish to upload a video from a URL, you may do so. After you've submitted your movie, you'll be sent to the next page automatically so that you may cut it.
 
 ![upload video url giphy](https://images.wondershare.com/filmora/article-images/2022/07/upload-video-url-giphy.jpg)
@@ -61,8 +65,9 @@ You may create your own memes for every occasion with the aid of the Filmora mem
 To start a new meme project, open the Filmora video meme creator and choose "New project." In the project options, choose the appropriate aspect ratio before selecting "Import" to submit your video. You may also import your favorite movies and pictures shot with mobile devices using Filmora. Simply choose Import, then carry out the following:
 
 ![import files to filmora](https://images.wondershare.com/filmora/guide/add-titles-win-1.png)
+
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ##### Step3 Include Music and Subtitles
@@ -76,9 +81,9 @@ The video file must then be included in the timeline. Another option is to play 
 If you want to add additional text to your meme, use the features-list menu bar. Additionally, you may use the drop-down menu to move and resize the caption box using the drop-down menu.
 
 ![edit the meme](https://images.wondershare.com/filmora/guide/text-animation-win-1.png)
+
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ##### Step5 Publish or Save Your Meme
@@ -100,9 +105,9 @@ You may create your own memes for every occasion with the aid of the Filmora mem
 To start a new meme project, open the Filmora video meme creator and choose "New project." In the project options, choose the appropriate aspect ratio before selecting "Import" to submit your video. You may also import your favorite movies and pictures shot with mobile devices using Filmora. Simply choose Import, then carry out the following:
 
 ![import files to filmora](https://images.wondershare.com/filmora/guide/add-titles-win-1.png)
+
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
-LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ##### Step3 Include Music and Subtitles
@@ -110,26 +115,21 @@ LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
 The video file must then be included in the timeline. Another option is to play well-known music in the background. You may do this by dragging and dropping the music file into the program's timeline's audio track. For the subtitles for your Meme, refer to the "Title" option, you may choose the text style you wish to use. Enter the text, then alter the caption's typeface, color, and size.
 
 ![include music and subtitles](https://images.wondershare.com/filmora/guide/add-titles-win-2.png)
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ##### Step4 Edit the Meme
 
 If you want to add additional text to your meme, use the features-list menu bar. Additionally, you may use the drop-down menu to move and resize the caption box using the drop-down menu.
 
 ![edit the meme](https://images.wondershare.com/filmora/guide/text-animation-win-1.png)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ##### Step5 Publish or Save Your Meme
 
 Just done with it! you may now start creating as many memes as you wish. A meme has to be circulated extensively online in order to be seen and, presumably, liked. Thus, you need to distribute it across all platforms. You may now click the "Export" button to instantly upload your video meme to Vimeo or YouTube. Save your final meme and upload it right away to your email, Facebook, Twitter, etc. to share it with coworkers or friends.
 
-<!-- affiliate ads begin -->
-<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Conclusion
 
 Additionally, Giphy offers a Giphy Cam software that enables users to create custom GIFs from video footage captured with their smartphone cameras. Users may effortlessly upload video to the website, where Giphy offers desktop GIF creation tools, and then publish their works without any issues elsewhere. You can certainly create a new picture using your own image if you're feeling very creative. Technically, you could do all of this using an image editor on your computer. If you're unfamiliar with this kind of program, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is definitely the best option.
@@ -156,6 +156,19 @@ Additionally, Giphy offers a Giphy Cam software that enables users to create cus
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-curated-interview-insights-engaging-podcast-audience-for-2024/"><u>[New] Curated Interview Insights Engaging Podcast Audience for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-elite-8s-imagery-merging-digital-software/"><u>[New] In 2024, Elite 8’S Imagery Merging Digital Software</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-unleashing-your-camera-roll-in-a-snap-a-snapchat-tutorial/"><u>[New] In 2024, Unleashing Your Camera Roll in a Snap A Snapchat Tutorial</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/astering-background-replacement-get-cost-free-lessons-in-green-screen-effects-from-youtubes-best-for-2024/"><u>[New] Mastering Background Replacement Get Cost-Free Lessons in Green Screen Effects From YouTube's Best for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-prime-tv-streaming-and-local-channel-bundles-for-2024/"><u>[New] Prime TV Streaming & Local Channel Bundles for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-green-screen-glossary-for-novice-visual-effect-enthusiasts/"><u>[Updated] 2024 Approved Green Screen Glossary for Novice Visual Effect Enthusiasts</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-become-a-viral-meme-magician-with-9gag-techniques/"><u>[Updated] Become a Viral Meme Magician with 9GAG Techniques</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-strategic-electrical-power-choices-for-drones-success/"><u>[Updated] Strategic Electrical Power Choices for Drones' Success</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-boosting-engagement-perfect-time-stamping-techniques-for-videos/"><u>2024 Approved Boosting Engagement Perfect Time-Stamping Techniques for Videos</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/broadcasting-e-learning-sessions-for-2024/"><u>Broadcasting E-Learning Sessions for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/freeloading-without-breaking-your-budget-on-aes/"><u>Freeloading Without Breaking Your Budget on AEs</u></a></li>
+<li><a href="https://win-forum.techidaily.com/navigating-the-giants-of-social-platforms-facebook-twitter-instagram-and-youtube/"><u>Navigating the Giants of Social Platforms: Facebook, Twitter, Instagram & Youtube</u></a></li>
+</ul></div>
 

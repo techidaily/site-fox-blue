@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Learn to Turn Your Photos Into Their Opposites\""
-date: 2024-08-15T10:21:15.230Z
-updated: 2024-08-16T10:21:15.230Z
+date: 2025-01-24T09:26:49.486Z
+updated: 2025-01-30T08:19:11.554Z
 tags: 
   - screen-recording
   - ai video
@@ -28,6 +28,10 @@ thumbnail: https://thmb.techidaily.com/190bc8b4a2b2c75fb28f94e31b443bd5a1a2add3f
 
 During the age of analog photography, the image negative was one of the most important artifacts for photographers, because it enabled them to reproduce a picture as many times as they wanted. Years later photographers invert colors in photos for mostly aesthetical reasons since only a small number of photographers still take photos with analog cameras. Regardless of the type of camera you’re using, inverting colors in a photo is a straightforward process that doesn’t require too much effort. In this article, we are going to take you through some of the best options on Mac and PC computers, as well as Android phones and iPhones that let you invert colors in just a few easy steps. So, let’s dive in.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Make Image Negative of a Digital Photo?
 
 The Invert option is commonly used to invert a scanned film negative to color, but this doesn’t’ mean that you can’t use this effect in very different contexts. However, the extensive and unselective use of this effect can ruin a perfect photo. Here’s how you can invert colors in your photos.
@@ -39,6 +43,10 @@ The Invert option is commonly used to invert a scanned film negative to color, b
 **Compatibility:** Windows
 
 ![Invert image color](https://images.wondershare.com/filmora/article-images/ms-paint-invert-color.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Open the photo you’d like to invert with MS Paint, and then choose the **Select All option** from the **Select Menu**. **Right-click** on the picture and click on the **Invert Color** option. The colors in the image will be automatically inverted, so you can then head over to the **Save As submenu** in the **File menu** to select the file format of the new photo.
 
@@ -54,6 +62,10 @@ Besides creating image negatives, the Preview app lets you convert image files a
 
 ![Invert image color](https://images.wondershare.com/filmora/article-images/mac-preview-invert-color-original.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Clicking on the **Adjust Color feature** will bring up the color adjustment panel that contains **Black Level and White Level** sliders. To invert the colors in the photo you have to drag the **Black Level slider to the right** and the **White Level Slider to the left.**
 
 ![Invert image color](https://images.wondershare.com/filmora/article-images/mac-preview-invert-color.jpg)
@@ -68,6 +80,10 @@ You can experiment with the values you assign to each of these sliders in order 
 
 ![Covert color](https://images.wondershare.com/filmora/article-images/pinetools-invert-image-colors.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The platform’s homepage contains a number of categories of tools such as **Colors, Numbers, Text and Lists or Images**. Clicking on the **Images category** will grant you the access to all photo editing tools PineTools offers, so you just have to click on the **Invert Colors** options to start the process of inverting a photo online. Once the **Invert Colors window** loads, you can click on the **Choose File button** to select a photo you’d like to invert. When the upload is completed, simply click on the **Invert button** located near the bottom of the screen and the platform will automatically invert the colors in your photo. To save the watermark-free image with inverted colors you just have to click on **PNG, JPEG or WEBP file** formats that are displayed above the preview of the picture.
 
 #### 4. Inverting colors in tjshome
@@ -77,6 +93,10 @@ The platform’s homepage contains a number of categories of tools such as **Col
 **Compatibility** **:** Online platform
 
 ![Covert color](https://images.wondershare.com/filmora/article-images/imageconverter-tjshome.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 In addition to a rich selection of effects you can apply to images, tjshome also lets you browse through **Funny Dumb Laws, Famous Quotes or Funny Status Messages** categories. Click on the **Image Filter** category in order to view all effects the platform offers. Make sure that the **Reverse Colors/Negate effect** is selected, and then scroll further down the page to **upload the photo you’d like to invert.** When the upload process is completed, you can check the Make **Public checkbox** if you want to add your photo to the tjshome’s gallery. Click on the **Submit** button, and then proceed to save the picture to your computer. This platform lets you invert images in three easy steps, but if you want to have more control over the process, it is better to use a more powerful photo editor.
 
@@ -145,11 +165,20 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-mastering-media-production-magix-video-pro-x-insights/"><u>[New] 2024 Approved Mastering Media Production Magix Video Pro X Insights</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-comprehensive-pathway-to-load-moviemaker-6/"><u>[New] Comprehensive Pathway to Load Moviemaker 6</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-mastering-free-video-text-dynamics-for-2024/"><u>[New] Mastering FREE Video Text Dynamics for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-pinnacle-of-plot-construction-the-worlds-best-8-academies/"><u>[Updated] 2024 Approved Pinnacle of Plot Construction – The World's Best 8 Academies</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-budget-friendly-gopro-purchases-guide-for-2024/"><u>[Updated] Budget-Friendly GoPro Purchases Guide for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-evaluating-artistic-quality-luminances-hdr-capability/"><u>[Updated] Evaluating Artistic Quality Luminance's HDR Capability</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-tailoring-tags-a-guide-for-enhanced-online-visibility/"><u>[Updated] In 2024, Tailoring Tags A Guide for Enhanced Online Visibility</u></a></li>
+<li><a href="https://common-error.techidaily.com/eclipse-of-vision-screen-phenomenon/"><u>Eclipse of Vision: Screen Phenomenon</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/gpt-3-bans-demystified-fixing-the-main-four-obstacles/"><u>GPT-3 Bans Demystified: Fixing the Main Four Obstacles</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/how-to-use-gpt-3-with-python/"><u>How to Use GPT-3 With Python</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-no-money-all-fcp-unveiled-methods/"><u>In 2024, No Money, All FCP – Unveiled Methods</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-the-animators-toolkit-a-detailed-list-of-the-best-cartoon-sounds-available-online-for-2024/"><u>New The Animators Toolkit A Detailed List of the Best Cartoon Sounds Available Online for 2024</u></a></li>
+<li><a href="https://win-advanced.techidaily.com/top-2021-beatsource-chart-hits-years-best-plays-on-pcdj/"><u>Top 2021 Beatsource Chart Hits: Year's Best Plays on PCDJ</u></a></li>
+</ul></div>
 
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->

@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Best Practices for Secondary Footage Selection and Use"
-date: 2025-01-20T16:47:12.300Z
-updated: 2025-01-22T17:00:51.207Z
+date: 2025-01-24T17:06:44.420Z
+updated: 2025-01-29T22:45:39.225Z
 tags: 
   - screen-recording
   - ai video
@@ -28,7 +28,7 @@ Now that we know that, let's dive in!
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 1\. B roll In TV And Movies
@@ -41,10 +41,6 @@ B roll can be utilized for establishing shots as well as close-ups of items. It 
 
 For instance, wider shots are frequently used when someone is giving a speech while seated behind a podium so that we can see both them and their surroundings, such as audience members standing close and applauding or security personnel.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 2\. Methods to use b roll
 
 Now that there are so many stock footage platforms, you have a lot of choices when you need just the right scene for your project. Most of the time, filmmakers don't use B roll footage. One good way to use it is to use it as a way to move from one scene to the next. It can also be used to set the mood for an event or show what time of day it is when filming.
@@ -53,16 +49,24 @@ The ideal way to use B roll is to put it behind interviews. This kind of footage
 
 On the other hand, cutaways can show how different people react to what is being said in an interview. After all, transitions are commonly used to switch from one person's experience with a certain topic to another person's experience with the same topic. All of these different kinds of footage give filmmakers and videographers more freedom to tell their stories without relying too much on dialogue or narration.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 3\. What types of b roll are there?
 
 We'll examine the top 5 uses for B rolls across a variety of video genres and discuss how to implement them effectively in your own projects.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. Archival b roll footage
 
 Aerial B roll is the solution when you like to show your viewers where your film is being recorded or when you are changing locations and want them to know it. The plane takes off and lands in another city, and then shots of the city, its landmarks, its famous streets, etc. are shown. You have probably seen this type of B roll footage in movies and TV shows. These images aid in putting the viewer in the character's current location. Check out this collection of setting images from the Neighbors television series.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2\. Visual detail b roll footage
@@ -83,10 +87,6 @@ When you are sharing a narrative that has been told in the past or that has hist
 
 Have a look at the scenes from the episode "14 Peaks: Nothing Is Impossible" that can be found on Netflix. As a result of the use of archive film footage of b roll from the relevant time period in its production, the audience is able to connect with the narrative on a deeper level.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 6\. Pick-up shots
 
 A pick-up is a tiny shot added to previously captured material. Re-shoots involve redoing entire scenes. Both types of shots are commonly added during film editing to fix, logic, continuity, or quality flaws. These photos happen a while after the sets have been taken down, clothes and props stowed, and the actors and crew have gone on to new projects.
@@ -94,7 +94,7 @@ A pick-up is a tiny shot added to previously captured material. Re-shoots involv
 If flaws were discovered during primary photography, the directors could have requested another take. The producer and director should weigh the cost of rejoining cast and crew against the need for pick-ups or re-shoots to address storyline flaws (or worse) in the final edit.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 7\. A roll vs b roll
@@ -135,19 +135,16 @@ We sincerely hope that this post will be of use to you in making your films more
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-amplify-sales-discover-the-leading-15-facebook-monitoring-tools/"><u>[New] Amplify Sales Discover the Leading 15 Facebook Monitoring Tools</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-enhancing-fb-videos-with-background-tracks-a-guide/"><u>[New] In 2024, Enhancing FB Videos with Background Tracks A Guide</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-the-ultimate-strategy-for-google-podcast-uploads/"><u>[New] In 2024, The Ultimate Strategy for Google Podcast Uploads</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-synergy-of-software-high-quality-text-plugins-reviewed-for-2024/"><u>[New] Synergy of Software High-Quality Text Plugins Reviewed for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-techniques-to-boost-pc-audio-recording-efficiency/"><u>[New] Techniques to Boost PC Audio Recording Efficiency</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-the-ultimate-guide-to-selecting-a-premier-fb-cover-photo-designer/"><u>[Updated] In 2024, The Ultimate Guide to Selecting a Premier FB Cover Photo Designer</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-mastering-sierras-icloud-drive-accessibility-for-2024/"><u>[Updated] Mastering Sierra’s iCloud Drive Accessibility for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-top-30-mobile-video-edits-using-dji-technology-for-2024/"><u>[Updated] Top 30 Mobile Video Edits Using DJi Technology for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/a-primer-on-selecting-superior-free-srt-translator-platforms-for-2024/"><u>A Primer on Selecting Superior Free SRT Translator Platforms for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-from-production-to-publication-streamlining-video-submission/"><u>In 2024, From Production to Publication Streamlining Video Submission</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-your-honor-play-8t-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>In 2024, How to Mirror Your Honor Play 8T Screen to PC with Chromecast | Dr.fone</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/seamless-system-controls-learn-how-to-use-4-techniques-for-disk-editor-on-win11/"><u>Seamless System Controls: Learn How to Use 4 Techniques for Disk Editor on Win11</u></a></li>
-<li><a href="https://article-tips.techidaily.com/stabilized-snapshots-best-tripods-for-iphonesandroids/"><u>Stabilized Snapshots Best Tripods for iPhones/Androids</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/k-the-power-of-beginnings-with-imovies-creative-tools-for-2024/"><u>Unlock the Power of Beginnings with iMovie's Creative Tools for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-in-2024-smart-buying-top-value-action-cam-models/"><u>[Updated] In 2024, Smart Buying Top Value Action Cam Models</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-navigating-the-shift-turning-srt-into-subc/"><u>[Updated] Navigating the Shift Turning SRT Into SUBC</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-enhance-fb-story-visibility-with-these-tips/"><u>2024 Approved Enhance FB Story Visibility with These Tips</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-streamlining-video-calls-leveraging-zoom-on-windows-10-pcs/"><u>2024 Approved Streamlining Video Calls Leveraging Zoom on Windows 10 PCs</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-the-essential-cheat-sheet-for-first-time-final-cut-users/"><u>2024 Approved The Essential Cheat Sheet for First Time Final Cut Users</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-the-new-era-advancements-in-vr-technology/"><u>2024 Approved The New Era Advancements in VR Technology</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-the-ultimate-kinemaster-guide-to-green-screening/"><u>2024 Approved The Ultimate KineMaster Guide to Green Screening</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-unlock-full-potential-mac-plus-obs-plus-streamlabs/"><u>2024 Approved Unlock Full Potential Mac + OBS + Streamlabs</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-netflix-location-to-get-more-country-version-on-oneplus-11-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Netflix Location to Get More Country Version On OnePlus 11 5G | Dr.fone</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-unlock-the-full-potential-of-skype-written-in-spanish-but-not-widely-known-among-english-speakers-it-was-used-as-a-basis-for-creating-new-models-lik/"><u>In 2024, Unlock the Full Potential of Skype’ Written in Spanish, but Not Widely Known Among English Speakers. It Was Used as a Basis for Creating New Models Like BERT and GPT-3. How Can I Access This Model? Is It Free to Use?</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/ultimate-guide-from-vivo-y36i-frp-bypass-by-drfone-android/"><u>Ultimate Guide from Vivo Y36i FRP Bypass</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Strategies to Keep Windows 11 Photos App Running Smoothly\""
-date: 2025-01-21T17:54:21.280Z
-updated: 2025-01-22T21:34:17.620Z
+date: 2025-01-24T08:45:31.402Z
+updated: 2025-01-29T18:34:29.811Z
 tags: 
   - screen-recording
   - ai video
@@ -45,10 +45,6 @@ In this article, we have compiled the best solutions for you to get rid of Windo
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to fix Windows 10 Photos app crashes
 
 ### Solution 1: Use the Troubleshooter
@@ -65,10 +61,6 @@ Here is how to troubleshoot –
 1. From the list of Apps displayed on the screen, click ‘Windows Store Apps’ and press the ‘Next’ button.
 2. Now, the troubleshooter will troubleshoot every app within the Windows Store Applications and fix them in a jiffy.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Solution 2: Restore Default Libraries
 
 Restoring the default libraries would resolve the Windows 10 Photos App crash issues. Resetting the Photo App to its default source to a valid network, path fixes the case.
@@ -83,7 +75,7 @@ Restoring the default libraries would resolve the Windows 10 Photos App crash is
 1. Lastly, click on ‘Apply’ followed by ‘OK’ and the issue will be resolved.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Solution 3: Reset it
@@ -96,10 +88,6 @@ Here is how can you reset it –
 2. Hit ‘Advanced Options’ and click ‘Reset’ button thereafter.
 3. Now, you got to restart your Windows system, so that Windows 10 Photos App crashing problem can be easily resolved.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Solution 4: Repair Photos App package
 
 A corrupted Photos App package might wreak havoc in your photo viewing, as the app doesn’t buzz follow your commands. The least you can do here is repair the package to fix minor glitches within and get it going.
@@ -110,6 +98,10 @@ Let’s fix the issue by repairing the Photos App package installed on your comp
 2. Key in the command followed by ‘Enter’: Get-AppXPackage -AllUsers | Foreach {Add-AppxPackage -DisableDevelopmentMode -Register “$($\_.InstallLocation)\\AppXManifest.xml”}
 3. Allow few minutes to make the changes effective and then restart the Windows 10 computer.
 4. Now, the Windows 10 Photos App won’t crash.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Solution 5: Reinstall Windows 10 Photos app
 
@@ -122,6 +114,10 @@ Here is how to reinstall the Windows 10 Photos App –
 2. Now, visit the ‘Microsoft Store on your computer and find ‘Microsoft Photos.’
 3. Install ‘Microsoft Photos’ after downloading it from there. Your Windows 10 Photos App crashing issue is well taken care of now.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 From the above article, we have concluded that experiencing Windows 10 Photos App crashes is not uncommon. But, resolving them shouldn’t give you nightmares as well. From the above-mentioned process guides, you can fix the Windows 10 Photos App crashes effectively without any hassle. Try following each method until you get the Photos App crash issue fixed, so you can view your photos without any trouble.
@@ -129,10 +125,14 @@ From the above article, we have concluded that experiencing Windows 10 Photos Ap
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -159,21 +159,17 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-fundamental-techniques-from-video-links-to-downloaded-audios/"><u>[New] 2024 Approved Fundamental Techniques From Video Links to Downloaded Audios</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-skin-the-subject-eradicate-bg-in-affinity/"><u>[New] 2024 Approved Skin the Subject, Eradicate Bg in Affinity</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-dive-into-asmrs-nighttime-soothing-benefits/"><u>[New] Dive Into ASMR's Nighttime Soothing Benefits</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-stealthy-spectator-of-online-tales/"><u>[New] Stealthy Spectator of Online Tales</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-ultimate-share-worthiness-creator/"><u>[New] Ultimate Share Worthiness Creator</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-seamless-audio-transfer-best-iphone-tools-for-youtube-to-mp3/"><u>[Updated] 2024 Approved Seamless Audio Transfer Best iPhone Tools for YouTube-to-MP3</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-top-5-effortlessly-converted-gif-to-professional-videos-online/"><u>[Updated] Top 5 Effortlessly Converted GIF to Professional Videos Online</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-choosing-screen-clarity-is-ultrawide-or-uhd-4k-better/"><u>2024 Approved Choosing Screen Clarity Is UltraWide or UHD 4K Better?</u></a></li>
-<li><a href="https://win-web.techidaily.com/4windows-11ssd/"><u>4効果的な手順：Windows 11環境で外部SSDへの写真転送ガイド</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/cold-climate-conquests-unveiling-beijings-olympic-flair-for-2024/"><u>Cold Climate Conquests Unveiling Beijing's Olympic Flair for 2024</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-google-frp-lock-from-honor-v-purse-devices-by-drfone-android/"><u>How to Bypass Google FRP Lock from Honor V Purse Devices</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-fix-my-honor-80-pro-straight-screen-edition-location-is-wrong-drfone-by-drfone-virtual-android/"><u>How to Fix My Honor 80 Pro Straight Screen Edition Location Is Wrong | Dr.fone</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/improving-professional-collaboration-with-strategic-office-planning-for-2024/"><u>Improving Professional Collaboration with Strategic Office Planning for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-explore-best-iphone-selfie-boosters-all-free-and-upgraded/"><u>In 2024, Explore Best iPhone Selfie Boosters - All Free and Upgraded</u></a></li>
-<li><a href="https://driver-install.techidaily.com/master-your-connectivity-install-bluetooth-driver-win11/"><u>Master Your Connectivity: Install Bluetooth Driver Win11</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/polishing-your-tiktok-content-a-guide-to-filters/"><u>Polishing Your TikTok Content A Guide to Filters</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-how-to-blur-a-part-of-a-picture-on-pcmobile/"><u>[New] How to Blur a Part of a Picture on PC/Mobile</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-top-10-showcasing-tiktoks-gaming-innovators/"><u>[New] In 2024, Top 10 Showcasing TikTok's Gaming Innovators</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-podcasting-success-a-complete-seo-guide-for-peak-discoverability/"><u>2024 Approved Podcasting Success A Complete SEO Guide for Peak Discoverability</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-step-by-step-iphone-guide-for-free-downloaded-podcast-episodes/"><u>2024 Approved Step-by-Step iPhone Guide for Free Downloaded Podcast Episodes</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-the-art-of-subscriber-chatter-best-practices-for-comments/"><u>2024 Approved The Art of Subscriber Chatter Best Practices for Comments</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-the-experts-manual-to-windows-10-prowess/"><u>2024 Approved The Expert's Manual to WINDOWS 10 Prowess</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-the-ultimate-guide-to-the-best-iphone-and-ipad-videos-top-10/"><u>2024 Approved The Ultimate Guide to the Best iPhone & iPad Videos (Top 10)</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-ultimate-selection-budget-friendly-4k-cameras-(1k/"><u>2024 Approved Ultimate Selection Budget-Friendly 4K Cameras <$1K</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-unveil-top-8-sites-providing-free-download-of-3d-text-psdfiles/"><u>2024 Approved Unveil Top 8 Sites Providing Free Download of 3D Text PSDFiles</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/3-effective-ways-to-bypass-activation-lock-from-iphone-12-pro-max-by-drfone-ios/"><u>3 Effective Ways to Bypass Activation Lock from iPhone 12 Pro Max</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-in-2024-take-a-screenshot-share-the-fun-a-guide-to-ps4-online-sharing/"><u>Updated In 2024, Take a Screenshot, Share the Fun A Guide to PS4 Online Sharing</u></a></li>
+<li><a href="https://apple-account.techidaily.com/your-account-has-been-disabled-in-the-app-store-and-itunes-on-iphone-6-by-drfone-ios/"><u>Your Account Has Been Disabled in the App Store and iTunes On iPhone 6?</u></a></li>
 </ul></div>
 

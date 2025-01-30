@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  From Novice to Pro  Mastering Mac Preview Features\""
-date: 2024-08-15T10:21:48.131Z
-updated: 2024-08-16T10:21:48.131Z
+date: 2025-01-27T03:54:24.364Z
+updated: 2025-01-29T16:24:06.845Z
 tags: 
   - screen-recording
   - ai video
@@ -36,6 +36,10 @@ Being the default image editor for Mac, Apple tried to make the **Preview app** 
 
 The instructions given in the following sections explain how to edit pictures with the **Preview app for Mac**:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### How to View and Edit Photos in Preview on Mac
 
 As mentioned earlier, the **Preview app** is a default photo viewer on Mac that also has many editing tools. Therefore:
@@ -51,8 +55,9 @@ As mentioned earlier, the **Preview app** is a default photo viewer on Mac that 
 * Alternatively, click **Tools** from the top, and choose your preferred editing option from the menu
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### How to Show Markup Tools in Preview on Mac
 
 Markup Tools gives easy access to the editing tools the **Preview app** has. By default, Markup Tools is kept hidden, but automatically becomes visible when you make some changes to the image. However, you can follow the process given below to manually show Markup Tools in Preview:
@@ -83,9 +88,6 @@ Drag the mouse pointer over the area of the photo you want to keep. If need be, 
 
 Keeping the area of interest on the photo selected, click **Crop** from the **Markup Toolbar** at the top to crop the image.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 ### How to Rotate Image in Preview
 
 Rotating an image in the **Preview app** is fairly simple. To do so:
@@ -99,8 +101,9 @@ Use the method explained above to open the photo in Preview.
 Click the **Rotate Left** icon from the upper-right area of the standard toolbar to rotate the image anticlockwise. Alternatively, you can also click **Tools** from the top, and choose your preferred rotation direction or flipping orientation from the menu that comes down next.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### How to Add Text to Image in Preview
 
 The **Preview app** even lets you annotate the images with ease. To add text to a photo:
@@ -149,9 +152,6 @@ Ensure that Preview opens with both the images listed in the sidebar in the left
 
 After removing the background, press **Command** \+ **A** to select all the remaining elements, and then press **Command** \+ **C** to copy them. Next, select the second photo from the sidebar, and press **Command** \+ **V** to paste the object to combine the pictures. Additionally, you can drag the pasted object or move its side handles to reposition or resize it respectively.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### How to Save Images in Different Formats
 
 The **Preview app** has a built-in image converter as well. To convert an image to a different format with Preview, you must:
@@ -165,8 +165,9 @@ After opening an image, click **File** from the menu bar at the top, and click *
 Choose a destination folder in the **Where** field, select your preferred format from the **Format** drop-down list, and click **Save** to convert the image.
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Part 2: FAQs About Preview App on Mac
 
 #### What is the Preview App?
@@ -200,8 +201,9 @@ Choose a destination folder in the **Where** field, select your preferred format
 * Click **Choose** to convert all the images in a single go
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Ollie Mattison
@@ -227,6 +229,22 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-achieving-flawless-hues-in-gopro-videos/"><u>[New] In 2024, Achieving Flawless Hues in GoPro Videos</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-cosmic-comforts-top-10-starry-night-accessories-for-sj4000/"><u>[New] In 2024, Cosmic Comforts Top 10 Starry Night Accessories for SJ4000</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-in-depth-insight-into-final-cut-pro-editing/"><u>[New] In 2024, In-Depth Insight Into Final Cut Pro Editing</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-navigating-the-world-of-video-timestamps-on-youtube-for-2024/"><u>[New] Navigating the World of Video Timestamps on YouTube for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-the-complete-igtv-user-manual/"><u>[New] The Complete IGTV User Manual</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-expediting-windows-file-reviews-with-ease/"><u>[Updated] 2024 Approved Expediting Windows File Reviews with Ease</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-twitsnap-secure-effortless-methods-for-downloading-tweets-videos/"><u>[Updated] TwitSnap Secure Effortless Methods for Downloading Tweets' Videos</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-5-podcast-apps-for-iphone/"><u>2024 Approved 5 Podcast Apps for iPhone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-starters-journey-mastering-video-quality-and-resolution/"><u>2024 Approved Starter's Journey Mastering Video Quality and Resolution</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/get-your-thrustmaster-t300-steering-wheel-driver-install-files-for-windows-10-and-11/"><u>Get Your Thrustmaster T300 Steering Wheel Driver Install Files for Windows 10 & 11</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-innovative-approaches-to-macos-subtitles-editing/"><u>In 2024, Innovative Approaches to macOS Subtitles Editing</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-cooldown-chart-on-oppo-a78-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Pokémon Go Cooldown Chart On Oppo A78 5G | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-10-best-spy-watches-for-your-vivo-y78-5g-drfone-by-drfone-virtual-android/"><u>Top 10 Best Spy Watches For your Vivo Y78 5G | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/top-rated-winx-mediatrans-superior-app-for-seamless-moving-of-photos-music-and-video-between-iphoneipad-and-computer/"><u>Top-Rated WinX MediaTrans: Superior App for Seamless Moving of Photos, Music & Video Between iPhone/iPad and Computer</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/why-the-499-lenovo-chromebook-plus-is-a-game-changer-for-budget-buyers/"><u>Why the $499 Lenovo Chromebook Plus Is a Game-Changer for Budget Buyers</u></a></li>
+</ul></div>
 

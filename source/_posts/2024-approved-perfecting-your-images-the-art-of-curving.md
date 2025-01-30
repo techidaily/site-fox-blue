@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Perfecting Your Images  The Art of Curving\""
-date: 2024-08-15T10:19:52.240Z
-updated: 2024-08-16T10:19:52.240Z
+date: 2025-01-28T03:42:46.618Z
+updated: 2025-01-30T01:23:45.461Z
 tags: 
   - screen-recording
   - ai video
@@ -34,6 +34,10 @@ After creating the new document, open the image that you want to curve. You may 
 
 ![place image in photoshop](https://images.wondershare.com/filmora/article-images/2022/09/place-image-in-photoshop.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##### Step3Warp the Image
 
 Now we'll curve the image using the Warp Tool. Select the Warp Tool by clicking and holding on the Transform Tool in the toolbar. The Warp Tool is located at the bottom of the Transform Tool's fly-out menu. Alternatively, you may press Ctrl+T or Command+T on your keyboard to open the Transform Tool's fly-out menu and then select the Warp Tool from there.
@@ -46,13 +50,25 @@ Play around with the settings in the options bar. There are quite a few differen
 
 ![change image height photoshop](https://images.wondershare.com/filmora/article-images/2022/09/change-image-height-photoshop.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 20% **Horizontal Distortion** makes one side of the image appear larger than the other. This is what my photo looks like at 20%.
 
 ![change horizontal distortion photoshop](https://images.wondershare.com/filmora/article-images/2022/09/change-horizontal-distortion-photoshop.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Vertical Distortion** makes the image look as if it's leaning backward.
 
 ![verticle distortion image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/verticle-distortion-image-photoshop.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 The **Bend Direction** option rotates the angle of the bend.
 
@@ -69,8 +85,9 @@ Once you're happy with the way your image looks, go to File > Save As in the men
 ![save curve image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/save-curve-image-photoshop.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Conclusion
 
 We hope this post has helped you learn how to curve an image in Photoshop. The best part about it? It's easy to do, and you can do it quickly. So, don't wait another minute! Get out there and start curving your images today (we know we are).
@@ -103,6 +120,19 @@ We hope this post has helped you learn how to curve an image in Photoshop. The b
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-screen-grab.techidaily.com/new-obs-utilization-comprehensive-gameplay-recording/"><u>[New] OBS Utilization Comprehensive Gameplay Recording</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-sounding-superior-a-guide-to-altering-voice-on-reels-and-stories-for-2024/"><u>[New] Sounding Superior A Guide to Altering Voice on Reels & Stories for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-first-steps-in-camera-selection-a-2023-starters-packet/"><u>[Updated] 2024 Approved First Steps in Camera Selection A 2023 Starter's Packet</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-decoding-the-secrets-of-advanced-color-correction-techniques/"><u>[Updated] In 2024, Decoding the Secrets of Advanced Color Correction Techniques</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-breaking-down-advanced-photographic-modes-for-enhanced-results/"><u>2024 Approved Breaking Down Advanced Photographic Modes for Enhanced Results</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-harmonious-guidelines-instagram-and-intellectual-property/"><u>2024 Approved Harmonious Guidelines Instagram & Intellectual Property</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/4k-resolution-unveiled-in-chroma-focused-lenses-for-2024/"><u>4K Resolution Unveiled in Chroma-Focused Lenses for 2024</u></a></li>
+<li><a href="https://win-answers.techidaily.com/breaking-down-the-resolution-destiny-2-broccoli-crash-patched-for-good-in-bungies-2024-update/"><u>Breaking Down the Resolution: Destiny 2 Broccoli Crash Patched for Good in Bungie's 2024 Update</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126936-9781612831268-emergence/"><u>Emergence | Free Book</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/how-to-save-top-cloud-providers-rates-for-2024/"><u>How to Save Top Cloud Providers' Rates for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/idealized-panzoid-blueprints-collection-for-2024/"><u>Idealized Panzoid Blueprints Collection for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-3-facts-you-need-to-know-about-screen-mirroring-itel-s23plus-drfone-by-drfone-android/"><u>In 2024, 3 Facts You Need to Know about Screen Mirroring Itel S23+ | Dr.fone</u></a></li>
+</ul></div>
 
