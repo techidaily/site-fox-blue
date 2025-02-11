@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  AR  Merging Physical and Fictional Worlds\""
-date: 2024-08-22T18:18:54.207Z
-updated: 2024-08-23T18:18:54.207Z
+date: 2025-02-10T14:02:37.373Z
+updated: 2025-02-10T22:54:05.293Z
 tags: 
   - screen-recording
   - ai video
@@ -26,6 +26,10 @@ thumbnail: https://thmb.techidaily.com/c48a785cefdb0843c6e76d439ab755593afd7522a
 
  Mar 27, 2024• Proven solutions
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Definition of AR
 
  Augmented Reality (AR) is the application of technology to superimpose information on digitally rendered images into real world environments to give a sense of virtual reality or create an illusion. For example, images and sounds are superimposed over what users see and hear.
@@ -34,6 +38,10 @@ thumbnail: https://thmb.techidaily.com/c48a785cefdb0843c6e76d439ab755593afd7522a
 
  The presentation of augmented reality is in some form of futuristic technology, despite the fact that it has been around for many years. For example, the heads-up display in many fighter jets utilizes the principles of augmented reality, and these date back to the early 1990s when they were used to show information about altitude, speed and direction of the aircraft.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How does Augmented Reality work
 
  The kind of augmented reality you are likely to experience these days utilizes a range of sensors such as cameras and computer components as well as display devices in creating the illusion of virtual objects in the real world. Some of the smartphones in the market today have all the necessary components needed in the creation of augmented reality hence they are commonly used for most of AR experiences. The basic working of augmented reality is as follows-:
@@ -41,8 +49,9 @@ thumbnail: https://thmb.techidaily.com/c48a785cefdb0843c6e76d439ab755593afd7522a
  In general, the device will search for a particular object, which can be anything, but in most cases, they are usually 2D images like in the form of a movie poster. The augmented reality application will recognize the target through the camera and it will then process the image and augment it in some form through the utilization of sound and pictures. For example, if the target object was a movie poster, you may see it spring into life to play a trailer of the movie. So long as you continue viewing the poster through the “window” of the display object, you will see augmented reality rather than the plain old normal poster in normal reality.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## The future of Augmented Reality
 
  The future of augmented reality has never been brighter as it is at the moment. Though mobile devices are the primary avenues for VR at the moment, this is not expected to remain the case since a lot of developments, enhancements and innovations are currently taking place in the industry. For instance, work is currently on in the development of augmented reality ear buds which will allow users to adjust sounds coming from the environment.
@@ -52,8 +61,9 @@ thumbnail: https://thmb.techidaily.com/c48a785cefdb0843c6e76d439ab755593afd7522a
  Like with every new technology, augmented reality comes with a plethora or ethical and political issues. For example, the Google Glass came along with a lot of privacy concerns, with some people worried that pictures may be snapped or conversations may be recorded surreptitiously. But amidst all these concerns, AR technology is expected to gather more steam in the near future and it will be a part of life for the majority.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Applications of Augmented Reality
 
  Augmented reality is used widely across different industries for various applications, with education and gaming taking the lion’s share of the uses. Discussed below are some of the applications of augmented reality:
@@ -89,8 +99,9 @@ thumbnail: https://thmb.techidaily.com/c48a785cefdb0843c6e76d439ab755593afd7522a
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Benjamin Arango
 
 Benjamin Arango is a writer and a lover of all things video.
@@ -114,8 +125,24 @@ Follow @Benjamin Arango
      data-full-width-responsive="true"></ins>
 
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-secure-your-screen-captures-online/"><u>[New] 2024 Approved Secure Your Screen Captures Online</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-a-step-by-step-approach-to-mastering-the-background-eraser-tool/"><u>[New] In 2024, A Step-by-Step Approach to Mastering the Background Eraser Tool</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-pathways-to-discovering-elite-filmmakers/"><u>[Updated] 2024 Approved Pathways to Discovering Elite Filmmakers</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-navigating-the-auditory-waves-of-iphones-podcast-streaming-for-2024/"><u>[Updated] Navigating the Auditory Waves of iPhone's Podcast Streaming for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-unleash-creativity-the-premier-apps-for-picture-framing-for-2024/"><u>[Updated] Unleash Creativity The Premier Apps for Picture Framing for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/acclaimed-websites-for-google-pixel-tonal-sounds-for-2024/"><u>Acclaimed Websites for Google Pixel Tonal Sounds for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/breakthrough-in-bot-talks-can-claude-outclass-gpt/"><u>Breakthrough in Bot Talks: Can Claude Outclass GPT?</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/getting-into-film-editing-made-easy/"><u>Getting Into Film Editing Made Easy</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/how-to-use-windows-media-player-to-rip-and-burn-cd/"><u>How to Use Windows Media Player to Rip and Burn Cd</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-8-best-apps-for-screen-mirroring-samsung-galaxy-s23-pc-drfone-by-drfone-android/"><u>In 2024, 8 Best Apps for Screen Mirroring Samsung Galaxy S23 PC | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-updated-dialogue-tools-to-engage-audio-audiences/"><u>In 2024, Updated Dialogue Tools to Engage Audio Audiences</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/non-stop-action-and-chuckles-in-plants-vs-zombies-battle-for-neighborville-a-complete-game-evaluation/"><u>Non-Stop Action & Chuckles in Plants Vs. Zombies: Battle for Neighborville: A Complete Game Evaluation</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/phone-speaker-transcriber-voice-logging-iphone-24-for-2024/"><u>Phone Speaker Transcriber Voice Logging (iPhone '24) for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/erdict-on-your-next-step-with-youtube-mncs/"><u>The Verdict on Your Next Step with YouTube MNCs</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/top-walmart-bargains-in-july-2024-exclusive-insights-and-savings/"><u>Top Walmart Bargains in July 2024: Exclusive Insights & Savings</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/ultimate-picks-for-top-rated-free-srt-translation-tools/"><u>Ultimate Picks for Top-Rated Free SRT Translation Tools</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-flip-and-rotate-videos-with-ease-top-10-free-tools-for-2024/"><u>Updated Flip and Rotate Videos with Ease Top 10 Free Tools for 2024</u></a></li>
+</ul></div>
 

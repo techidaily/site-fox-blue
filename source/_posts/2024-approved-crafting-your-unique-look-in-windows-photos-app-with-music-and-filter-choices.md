@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Crafting Your Unique Look in Windows Photos App with Music and Filter Choices\""
-date: 2024-08-22T18:18:17.535Z
-updated: 2024-08-23T18:18:17.535Z
+date: 2025-02-04T06:48:53.981Z
+updated: 2025-02-10T19:41:01.419Z
 tags: 
   - screen-recording
   - ai video
@@ -45,6 +45,10 @@ If you have got Windows 10 Photos app and wish to add filters, though, it is by 
 
 ![add filters on windows 10 photos app](https://images.wondershare.com/filmora/article-images/add-filters.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3**: Now, you will be in an video editing page. You can name your video at start or later.
 
 **Step 4**: Click Filters at tool bar. Microsoft Photos has 14 filters you can use, including classic, adventure, sepia and so on.
@@ -52,6 +56,10 @@ If you have got Windows 10 Photos app and wish to add filters, though, it is by 
 ![add filters on windows 10 photos app](https://images.wondershare.com/filmora/article-images/edit-filters-microsoft-photos.jpg)
 
 **Step 5**: Just select one you like. Preview it and then click Done.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: How to add music on Windows 10 Photos App
 
@@ -65,34 +73,30 @@ Now that you have learnt how to **_add filters using Windows 10 Photos app._** D
 
 ![add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/add-music-to-video-photos-app.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 4**: Pick ‘Your music’ so that you can set up a custom track. There are over 20 music you can choose. You can also sync music to video's beat. You can visit ‘Recommended’ section for adding default ones.
 
 ![add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/choose-music-to-video-photos-app.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 5**: Hit the ‘Done’ button.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599951&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-Epubor Ultimate for Win：Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Conclusion
 
 From the above article, we conclude that Windows 10 Photos app is an amazing app when it comes to photo editing and screen capturing from a video. While there are numerous options out there, you can **_add filters using Windows 10 Photos app_** in the best way possible. Moreover, this application enables you enable to even add music to videos using Windows 10 Photos app. The advantages of Windows 10 are innumerable, and with the right tools, you can get the best out of it.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -116,8 +120,19 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-harnessing-gopros-power-for-compelling-time-lapse-clips/"><u>[New] Harnessing GoPro's Power for Compelling Time-Lapse Clips</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-instantaneously-upgraded-images-masterful-mac-based-video-scaling/"><u>[New] Instantaneously Upgraded Images Masterful Mac-Based Video Scaling</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-a-beginners-manual-to-windows-8-film-creation/"><u>[Updated] 2024 Approved A Beginner's Manual to Windows 8 Film Creation</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-elite-tech-enhancement-with-top-srt-tweaks/"><u>[Updated] 2024 Approved Elite Tech Enhancement with Top SRT Tweaks</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-youtube-video-animation-tools-and-techniques-for-efficient-gif-making/"><u>[Updated] 2024 Approved YouTube Video Animation Tools and Techniques for Efficient Gif Making</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-exploring-the-tech-marvel-of-lg-ud88-w-monitors/"><u>[Updated] In 2024, Exploring the Tech Marvel of LG UD88-W Monitors</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/6-best-video-translators-to-translate-a-video/"><u>6 Best Video Translators to Translate a Video</u></a></li>
+<li><a href="https://video-capture.techidaily.com/focus-on-action-exclude-unwanted-surroundings-for-2024/"><u>Focus on Action, Exclude Unwanted Surroundings for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/in-2024-the-role-of-crossfade-in-modern-music-mixing/"><u>In 2024, The Role of Crossfade in Modern Music Mixing</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/navigating-advanced-hardware-choices-guidance-from-toms-review-hub/"><u>Navigating Advanced Hardware Choices: Guidance From Tom's Review Hub</u></a></li>
+<li><a href="https://some-skills.techidaily.com/top-11-brainy-battles-general-knowledge-channels-revealed-for-2024/"><u>Top 11 Brainy Battles General Knowledge Channels Revealed for 2024</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/updated-visualizing-sound-displaying-waveforms-and-enhancing-animation-in-adobe-premiere-pro/"><u>Updated Visualizing Sound Displaying Waveforms & Enhancing Animation in Adobe Premiere Pro</u></a></li>
+</ul></div>
 

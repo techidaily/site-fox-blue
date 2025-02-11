@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Comprehensive Review of Syma X8C\""
-date: 2024-08-15T10:25:21.127Z
-updated: 2024-08-16T10:25:21.127Z
+date: 2025-02-05T14:21:09.571Z
+updated: 2025-02-11T07:04:42.113Z
 tags: 
   - screen-recording
   - ai video
@@ -32,6 +32,10 @@ thumbnail: https://thmb.techidaily.com/235c9a836def3af64d14d9406f5da36fac525d1a6
 
 **You may also like:** [Full review for Syma X5C >>](HTTPS://filmora.wondershare.com/drones/syma-x5c-drone-review.html)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Pros and Cons of Syma X8C
 
 **Pros:**
@@ -56,8 +60,9 @@ thumbnail: https://thmb.techidaily.com/235c9a836def3af64d14d9406f5da36fac525d1a6
  There are loads of pros as well as cons related Syma H8C device but they appear different to various kinds of users. Professionals may be worried about its camera quality whereas beginners will find its controls little complex. But in case if you need something at low price with all acceptable features then Syma H8C is really a good choice for your needs.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Complete Review
 
 #### 1. Basic Specs Info
@@ -75,8 +80,9 @@ thumbnail: https://thmb.techidaily.com/235c9a836def3af64d14d9406f5da36fac525d1a6
 #### 2\.  Design
 
 ![syma vs phantom design](https://images.wondershare.com/filmora/article-images/syma-vs-phantom-design.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  If we consider the appearance then it looks close to the Phantom drone but no doubt to say that few variations exists and they make it unique. The overall dimension of this drone unit is 20x20x6.5 whereas maximum weight goes up to 450 grams thus it cannot be called as a tiny drone. When weighted with camera and prop guards, then this unit has overall weight of 600 grams. This dimension and weight makes this drone much stable in air.
@@ -94,8 +100,9 @@ thumbnail: https://thmb.techidaily.com/235c9a836def3af64d14d9406f5da36fac525d1a6
 #### 5\.  Controller/Transmitter
 
 ![syma x8c controller](https://images.wondershare.com/filmora/article-images/syma-x8c-controller.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Controller or the transmitter of X8C device is small enough that fits perfectly in user’s hands. Construction is completed with ABS plastic material that leads to light weight structure and this controller makes use of 2.4GHz frequency band to send control signals towards drone in air. The best thing to know about Syma X8C is that it can cover the 100 meter range impressively.
@@ -103,23 +110,18 @@ thumbnail: https://thmb.techidaily.com/235c9a836def3af64d14d9406f5da36fac525d1a6
 #### 6\.  Camera
 
 ![syma x8c camera](https://images.wondershare.com/filmora/article-images/syma-x8c-camera.jpg)
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  A drone cannot be complete without a camera mounted on its top; hence Syma has taken care of users need and they developed Syma X8C with a camera that can record everything in air. Although, it is not able to collect video information with HD quality but you will be glad to know that it is detachable and one can also make additional adjustments over its angles to adjust focus. All the recorded videos are stored inside a 4GB MicroSD card. Further, the attached gimbal assists in much stable footage.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Conclusion
 
  By considering all above factors, we must say that Syma X8C is a well designed drone unit that can serve with much better results as an entry level aerial shoot recorder. As the price tag keeps it below $100 range so beginners find it most affordable for their learning needs and the gimbal protection leads to highly stable footage that can be shared on social media sites to impress friends. The control mechanisms is rated as highly responsive so will all these satisfactory features it becomes a must buy product for your air flight adventures.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 
 Max Wales
 
@@ -144,8 +146,23 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/024-approved-effective-team-videos-boosting-channelnode-growth-rate/"><u>[New] 2024 Approved Effective Team Videos Boosting Channelnode Growth Rate</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-chuckle-cache-timed-humor-categorized-by-occasion/"><u>[New] Chuckle Cache Timed Humor Categorized by Occasion</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-mastering-low-volume-settings-in-os-xwindows-for-2024/"><u>[New] Mastering Low-Volume Settings in OS X/Windows for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-recommendation-best-websites-to-download-funny-ringtones/"><u>[New] Recommendation Best Websites to Download Funny Ringtones</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-embracing-authenticity-in-video-marketing-through-clients-words/"><u>[Updated] 2024 Approved Embracing Authenticity in Video Marketing Through Clients' Words</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-ghostly-glimpses-innovation-highlights/"><u>[Updated] 2024 Approved Ghostly Glimpses Innovation Highlights</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-streaming-sounds-into-your-social-story-arcs/"><u>[Updated] 2024 Approved Streaming Sounds Into Your Social Story Arcs</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-mastering-youtube-cards-and-markup-tips/"><u>[Updated] In 2024, Mastering YouTube Cards & Markup Tips</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/directors-toolkit-win8-for-2024/"><u>Director's Toolkit Win8 for 2024</u></a></li>
+<li><a href="https://win-community.techidaily.com/guide-facile-creation-dun-fichier-batch-pour-les-taches-automatiques-sous-windows-10/"><u>Guide Facile : Création D’un Fichier Batch Pour Les Tâches Automatiques Sous Windows 10</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-is-sns-hdr-the-best-for-your-hdr-needs-insights/"><u>In 2024, Is SNS HDR the Best for Your HDR Needs? Insights</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/in-2024-pro-video-capture-a-comprehensive-fraps-test/"><u>In 2024, Pro Video Capture A Comprehensive Fraps Test</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-unzip-excitement-funimate-pros-apk-unwrapped/"><u>In 2024, Unzip Excitement - Funimate Pro's APK Unwrapped</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/tech-savvy-saving-a-comprehensive-analysis-of-the-budget-friendly-50s425-inch-4k-tv-from-tcl/"><u>Tech Savvy Saving: A Comprehensive Analysis of the Budget-Friendly 50S425 Inch 4K TV From TCL</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ltimate-networking-haven-beyond-vidcon-for-2024/"><u>The Ultimate Networking Haven Beyond VidCon for 2024</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/troubleshooting-guide-fixing-issues-with-the-intel-driver-and-support-assistant/"><u>Troubleshooting Guide: Fixing Issues with the Intel Driver and Support Assistant</u></a></li>
+</ul></div>
 

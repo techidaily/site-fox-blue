@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Capturing the Illusion  IPhone Tricks for Reflection Photography\""
-date: 2024-08-22T18:18:07.782Z
-updated: 2024-08-23T18:18:07.782Z
+date: 2025-02-05T00:37:13.892Z
+updated: 2025-02-10T22:21:28.430Z
 tags: 
   - screen-recording
   - ai video
@@ -76,9 +76,17 @@ thumbnail: https://thmb.techidaily.com/64bcba811dca59ee452fde50283dc6af9516c46b5
 
 ![keep-the-image-simple](https://images.wondershare.com/filmora/article-images/keep-the-image-simple.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Awful
 
 ![awful-composition](https://images.wondershare.com/filmora/article-images/awful-composition.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 4\.  Reality and Reflection
 
@@ -90,6 +98,10 @@ thumbnail: https://thmb.techidaily.com/64bcba811dca59ee452fde50283dc6af9516c46b5
 
 ![reality-and-reflection](https://images.wondershare.com/filmora/article-images/reality-and-reflection.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 5\.  Texture
 
  Using a still reflective surface is good, but reflective photos are more effective if you have been able to capture texture. Where the reflective surface distorts the real life subject, you're able to artistically capture an entirely unique affect each time. This is why waves are a great way to create a truly different image with each shot.
@@ -97,6 +109,10 @@ thumbnail: https://thmb.techidaily.com/64bcba811dca59ee452fde50283dc6af9516c46b5
  It is also just good photography practice to have your subjects bend and distort the light. The contrasts make for an aesthetically beautiful image, and makes post production optimization even easier.
 
 ![make-use-of-texture](https://images.wondershare.com/filmora/article-images/make-use-of-texture.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Post Production Reflective Effects
 
@@ -116,6 +132,10 @@ thumbnail: https://thmb.techidaily.com/64bcba811dca59ee452fde50283dc6af9516c46b5
 #### 1\. Reflect Mirror Camera
 
 ![reflect-mirror-camera-app](https://images.wondershare.com/filmora/article-images/reflect-mirror-camera-app.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Really easy to use entry level app, you can simply add reflections to your photos and there's also an option to do this as you take the photograph. The user interface is really clean and easy to use. You also get access to a massive library of templates and effects to make photos truly unique.
 
@@ -164,12 +184,23 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-bridging-platforms-the-instagram-and-tiktok-guide/"><u>[New] 2024 Approved Bridging Platforms The Instagram & TikTok Guide</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-techniques-for-transferring-media-between-two-iphones/"><u>[New] 2024 Approved Techniques for Transferring Media Between Two iPhones</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-a-song-of-ice-and-fire-top-sites-to-snatch-game-of-thrones-ringtones/"><u>[New] A Song of Ice and Fire Top Sites to Snatch Game of Thrones Ringtones</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-a-comprehensive-guide-for-converting-pinterest-video-content-to-mp3-format/"><u>[Updated] A Comprehensive Guide for Converting Pinterest Video Content to MP3 Format</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-essential-guide-sync-your-screen-to-facebook-streams-for-2024/"><u>[Updated] Essential Guide Sync Your Screen to Facebook Streams for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-iphone-video-editing-shorten-crop-and-resize-basics-for-2024/"><u>[Updated] IPhone Video Editing Shorten, Crop & Resize Basics for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-make-gif-on-iphone-top-10-gif-apps-for-iphone-x876/"><u>[Updated] Make GIF on iPhone Top 10 GIF Apps for iPhone X/8/7/6</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-three-methods-for-capturing-ps4-gaming-moments/"><u>[Updated] Three Methods for Capturing PS4 Gaming Moments</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-unleashing-potential-youtubes-techniques-for-stellar-videos-for-2024/"><u>[Updated] Unleashing Potential YouTube's Techniques for Stellar Videos for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/accelerate-your-tunes-top-phone-apps-reviewed/"><u>Accelerate Your Tunes Top Phone Apps Reviewed</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/comparing-pc-and-mac-9-superior-traits-for-pcs/"><u>Comparing PC & Mac: 9 Superior Traits for PCs</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-full-guide-to-download-windows-movie-maker-60/"><u>In 2024, Full Guide to Download Windows Movie Maker 6.0</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-4-ways-to-trace-itel-p40plus-location-drfone-by-drfone-virtual-android/"><u>In 2024, Top 4 Ways to Trace Itel P40+ Location | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/live-sound-perfection-our-selections-of-the-top-6-stream-friendly-mics-for-2024/"><u>Live Sound Perfection Our Selections of the Top 6 Stream-Friendly Mics for 2024</u></a></li>
+<li><a href="https://win-answers.techidaily.com/revamped-bioshock-2-remaster-now-with-patches-for-a-smooth-gaming-experience/"><u>Revamped BioShock 2 Remaster - Now with Patches for a Smooth Gaming Experience</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/safekeeping-your-online-space-youtube-channel-blocking-guide/"><u>Safekeeping Your Online Space Youtube Channel Blocking Guide</u></a></li>
+</ul></div>
 
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
-<!-- affiliate ads end -->

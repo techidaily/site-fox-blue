@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Reducing Background Melodies  Windows/Mac Guide for 2024\""
-date: 2025-01-26T03:30:23.513Z
-updated: 2025-01-29T23:26:11.880Z
+date: 2025-02-08T12:19:40.310Z
+updated: 2025-02-11T13:02:35.752Z
 tags: 
   - screen-recording
   - ai video
@@ -60,7 +60,7 @@ If you are looking for applications to edit your audio file most professionally,
 ![import audio file to filmora](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 1. In the next step, you must click on the audio file and go to the animation tab to find the preset button.
@@ -68,14 +68,6 @@ If you are looking for applications to edit your audio file most professionally,
 3. At last, you must choose a particular fading effect and drag the slider on the audio file to adjust the fade music effect accordingly.
 
 ![adjust fade music effect](https://images.wondershare.com/filmora/guide/add-fade-in-fade-out-markers-timeline.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Way 2 - Use Audacity to Fade Audio
 
@@ -86,7 +78,7 @@ Yet another fantastic option for adding fade music effects on the audio files is
 ![select audio file audacity](https://images.wondershare.com/filmora/article-images/2022/07/select-audio-file-audacity.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 1. Go to the effect menu and spot the Fade in or fade-out option.
@@ -94,10 +86,6 @@ Yet another fantastic option for adding fade music effects on the audio files is
 ![choose fade out audacity](https://images.wondershare.com/filmora/article-images/2022/07/choose-fade-out-audacity.jpg)
 
 1. Use the effects by dragging the slider on the audio file to get the desired fade music result.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2\. How to Fade in/out Music on Mac
 
@@ -115,10 +103,6 @@ iMovie is the official platform that 90% of MAC users use to edit audio files an
 
 ![fade music in imovie](https://images.wondershare.com/filmora/article-images/2022/07/fade-music-in-imovie.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Way 2 - Use Apple Music App to Fade Audio
 
 One of the best apps for Apple MAC users for editing soundtracks is none other than the Apple Music app. This app comes for free tools until and unless you want some special effects. The easy-to-use interface helps even the newbie music editors to find their way through the musical folds of music in the easiest route. However, you can check out the following points for a better understanding of this app:
@@ -130,6 +114,10 @@ One of the best apps for Apple MAC users for editing soundtracks is none other t
 ![apple music fade audio](https://images.wondershare.com/filmora/article-images/2022/07/apple-music-fade-audio.jpg)
 
 1. It would lead you to another page on Apple music where you can enable the automatic option for the app to edit the file by adding fade music effects, or you can manually do it all by yourself.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3\. How to Fade Music Online
 
@@ -145,6 +133,10 @@ Adding fade music effects is not only about making money or trying to add spine 
 * [Way 1 - Use iMovie to Fade audio on Mac](#part2-1)
 * [Way 2 - Use Apple Music App to Fade Audio](#part2-2)
 * [How to Fade Music Online](#part3)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1\. How to Fade Music on Windows PC
 
@@ -169,7 +161,7 @@ If you are looking for applications to edit your audio file most professionally,
 ![adjust fade music effect](https://images.wondershare.com/filmora/guide/add-fade-in-fade-out-markers-timeline.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Way 2 - Use Audacity to Fade Audio
@@ -179,6 +171,10 @@ Yet another fantastic option for adding fade music effects on the audio files is
 1. Select or highlight the audio file you want to edit.
 
 ![select audio file audacity](https://images.wondershare.com/filmora/article-images/2022/07/select-audio-file-audacity.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 1. Go to the effect menu and spot the Fade in or fade-out option.
 
@@ -198,12 +194,16 @@ iMovie is the official platform that 90% of MAC users use to edit audio files an
 
 ![drag audio to imovie timeline](https://images.wondershare.com/filmora/article-images/2022/07/drag-audio-to-imovie-timeline.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Once upon choosing the portion, you will notice the fade handles. Drag the handles to the beginning for Fade in effect and the opposite in the other end.
 
 ![fade music in imovie](https://images.wondershare.com/filmora/article-images/2022/07/fade-music-in-imovie.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Way 2 - Use Apple Music App to Fade Audio
@@ -217,7 +217,7 @@ One of the best apps for Apple MAC users for editing soundtracks is none other t
 ![apple music fade audio](https://images.wondershare.com/filmora/article-images/2022/07/apple-music-fade-audio.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 1. It would lead you to another page on Apple music where you can enable the automatic option for the app to edit the file by adding fade music effects, or you can manually do it all by yourself.
@@ -257,20 +257,24 @@ Adding fade music effects is not only about making money or trying to add spine 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/updated-essential-strategies-successful-webcam-and-gaming-recordings-for-2024/"><u>[Updated] Essential Strategies Successful Webcam & Gaming Recordings for 2024</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-how-to-safeguard-your-videos-in-the-age-of-youtube-for-2024/"><u>[Updated] How to Safeguard Your Videos in the Age of YouTube for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-the-archivists-collection-essential-retro-visual-hacks-for-video-editors/"><u>2024 Approved The Archivist's Collection Essential Retro Visual Hacks for Video Editors</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-the-costless-conundrum-of-final-cut-pro-access/"><u>2024 Approved The Costless Conundrum of Final Cut Pro Access</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-the-ultimate-blueprint-for-memetic-virality/"><u>2024 Approved The Ultimate Blueprint for Memetic Virality</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-top-10-gratis-lut-files-comprehensive-analysis-and-downloads/"><u>2024 Approved Top 10 Gratis LUT Files - Comprehensive Analysis & Downloads</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-transforming-your-story-game-with-animation-techniques-for-text/"><u>2024 Approved Transforming Your Story Game with Animation Techniques for Text</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-unlock-the-potential-of-your-films-with-final-cut-pro/"><u>2024 Approved Unlock the Potential of Your Films with Final Cut Pro</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-unlock-the-potential-of-your-iphone-with-top-podcast-tips/"><u>2024 Approved Unlock the Potential of Your iPhone with Top Podcast Tips</u></a></li>
-<li><a href="https://win-exclusive.techidaily.com/complete-tutorial-on-duplicating-compactflash-cards-for-backup-purposes/"><u>Complete Tutorial on Duplicating CompactFlash Cards for Backup Purposes</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-stop-life360-from-tracking-you-on-vivo-y27-4g-drfone-by-drfone-virtual-android/"><u>How to Stop Life360 from Tracking You On Vivo Y27 4G? | Dr.fone</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-apple-iphone-12-mini-with-a-mask-on-by-drfone-ios/"><u>How to Unlock Apple iPhone 12 mini with a Mask On</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-can-i-get-more-stardust-in-pokemon-go-on-tecno-spark-go-2024-drfone-by-drfone-virtual-android/"><u>In 2024, How can I get more stardust in pokemon go On Tecno Spark Go (2024)? | Dr.fone</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/pioneering-visual-communication-with-premiere-written-by-jane-smith-expert-in-digital-artistry/"><u>Pioneering Visual Communication with Premiere' Written by Jane Smith, Expert in Digital Artistry</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/44oq44oz44oa44kk44ob44oj44oz44on44or44gu44ot44oh44kq44kv44oq44od44ox44gm6kal44gf44gepydjgrnjg6djg7zjgrrjgarpjllnllvvvibjgrvjg7zjg5bmiyvpoibjgpllrabjgbbvvie.72/"><u>バンダイチャンネルのビデオクリップが見たい? スムーズな録画＆セーブ手順を学ぶ！</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-how-to-record-a-movie-on-pc-mac-and-smartphones/"><u>[New] In 2024, How to Record a Movie on PC, Mac, and Smartphones?</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-night-mode-magic-with-iphone-cameras/"><u>[New] Night Mode Magic with iPhone Cameras</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-tips-to-improve-zooms-facebook-live-functionality/"><u>[New] Tips to Improve Zoom's Facebook Live Functionality</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-integrating-subtitles-into-your-online-social-videography-efforts/"><u>[Updated] 2024 Approved Integrating Subtitles Into Your Online Social Videography Efforts</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-exclusive-list-10-budget-friendly-passport-photographers-online/"><u>[Updated] Exclusive List 10 Budget-Friendly Passport Photographers Online</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-detailed-review-a-day-to-day-insight-into-gear-360/"><u>[Updated] In 2024, Detailed Review A Day-to-Day Insight Into Gear 360</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-instagrams-notes-for-sharing-tunes-responsibly/"><u>[Updated] In 2024, Instagram’s Notes for Sharing Tunes Responsibly</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-innovating-your-reality-essential-vr-peripherals-guide/"><u>[Updated] Innovating Your Reality Essential VR Peripherals Guide</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-next-level-video-capture-gear-2024-edition/"><u>[Updated] Next-Level Video Capture Gear - 2024 Edition</u></a></li>
+<li><a href="https://common-error.techidaily.com/effortless-solutions-how-to-charge-your-laptop-battery-faster-and-easier/"><u>Effortless Solutions: How to Charge Your Laptop Battery Faster and Easier!</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/extended-physical-action-survey/"><u>Extended Physical Action Survey</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-grab-and-reel-the-essential-5-apps-for-social-media-video-capture/"><u>In 2024, Grab & Reel The Essential 5 Apps for Social Media Video Capture</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-here-are-different-ways-to-find-pokemon-go-trainer-codes-to-add-to-your-account-on-apple-iphone-6s-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Here are Different Ways to Find Pokemon Go Trainer Codes to Add to Your Account On Apple iPhone 6s Plus | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/innovative-techniques-for-username-customization-in-windows/"><u>Innovative Techniques for UserName Customization in Windows</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/mastering-inshot-pc-editing-made-easy/"><u>Mastering Inshot PC Editing Made Easy</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/rise-in-search-results-mastering-podcast-seo-for-2024/"><u>Rise in Search Results Mastering Podcast SEO for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/the-art-of-discrete-audio-erosion-in-audacity-for-2024/"><u>The Art of Discrete Audio Erosion in Audacity for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/top-10-must-watch-sporting-event-movies-for-movie-buffs-today/"><u>Top 10 Must-Watch Sporting Event Movies for Movie Buffs Today!</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/ultimate-guide-from-apple-iphone-6s-icloud-activation-lock-bypass-by-drfone-ios/"><u>Ultimate Guide from Apple iPhone 6s iCloud Activation Lock Bypass</u></a></li>
 </ul></div>
 

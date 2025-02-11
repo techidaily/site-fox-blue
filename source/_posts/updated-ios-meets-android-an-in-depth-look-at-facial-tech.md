@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] IOS Meets Android  An In-Depth Look at Facial Tech\""
-date: 2025-01-28T03:57:36.629Z
-updated: 2025-01-30T06:14:59.610Z
+date: 2025-02-10T00:29:57.439Z
+updated: 2025-02-11T05:48:22.911Z
 tags: 
   - screen-recording
   - ai video
@@ -38,10 +38,6 @@ thumbnail: https://thmb.techidaily.com/2e9cfa327b9759eb425968540a827a94cde4fe4ea
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: How does it work?
 
  This section will cover how the face recognition technology works for both the devices. Check out the process.
@@ -58,10 +54,6 @@ thumbnail: https://thmb.techidaily.com/2e9cfa327b9759eb425968540a827a94cde4fe4ea
 
 ![Samsung](https://images.wondershare.com/filmora/article-images/Samsung-Galaxy-S8-Face-Unlock.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2: Which one is more Accuracy?
 
  Being accurate is a considerable issue with face recognition technology if you are using a Samsung device. On the other hand, iPhone X shows accuracy than Samsung since it analyzes the whole face instead of iris. For Samsung’s iris scanner, the camera contains a confined and narrowly designed focus where is exactly your iris needed to be for scanning. The camera will able to recognize only when your iris will be in that same place for long where it focuses. And therefore, there are times when you left with holding your device high for better iris detection. Apple has no such accuracy issue for it takes your face to recognize.
@@ -69,11 +61,11 @@ thumbnail: https://thmb.techidaily.com/2e9cfa327b9759eb425968540a827a94cde4fe4ea
 ![iPhone X accuracy](https://images.wondershare.com/filmora/article-images/iphone-x-accuracy.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: The Common Inconvenience
@@ -86,6 +78,10 @@ thumbnail: https://thmb.techidaily.com/2e9cfa327b9759eb425968540a827a94cde4fe4ea
 
 ![face ID incovenience](https://images.wondershare.com/filmora/article-images/face-incovenience.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 4: Safety Issue
 
  Ensuring safety is one of the main concern people have and the face recognition technology in both the devices has done pretty well. Apple uses the TrueDepth camera system which includes flood illuminator, IR camera as well as dot projector to make the face recognized in all possible ways. It has been claimed by the company that the possibility of unlocking the device by a random person’s face is 1 in 1,000,000\. Besides this, Apple had made sure to let people try only 5 face attempts after which they will require to enter the passcode. The probability though doesn’t work same for twins and the family members who resemble you. Also, the children who are less than 13 are able to trick you since they don’t have fully developed facial features.
@@ -96,12 +92,16 @@ thumbnail: https://thmb.techidaily.com/2e9cfa327b9759eb425968540a827a94cde4fe4ea
 
 ![face ID issue](https://images.wondershare.com/filmora/article-images/face-id-issue.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  On the other hand, Samsung also doesn’t lag behind when it comes to safety and security with face recognition feature. Samsung is the first Android device company to introduce face recognition technology that brought iris scanning technology with its Galaxy Note 7\. The technology does it job by detecting the iris’ pattern of your eyes. As far as security is concerned, the technology gets 10 on 10 since each person possesses unique iris pattern and it becomes difficult to replicate. The devices by Samsung having face recognition technology are designed with infrared diode which is capable
 
  All in all, both the companies have put extra effort in justifying the safety with trending face recognition technology. However, we are not certain for full reliability of them.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -135,20 +135,19 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/updated-from-likes-to-leads-a-comprehensive-guide-to-influencer-driven-marketing/"><u>[Updated] From Likes to Leads A Comprehensive Guide to Influencer-Driven Marketing</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-in-2024-the-essentials-of-blurring-photo-borders/"><u>[Updated] In 2024, The Essentials of Blurring Photo Borders</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-mastering-video-content-for-youtube-success-for-2024/"><u>[Updated] Mastering Video Content for YouTube Success for 2024</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/2024-approved-camera-selection-for-young-shooters-top-picks-24/"><u>2024 Approved Camera Selection For Young Shooters - Top Picks '24</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-step-into-new-realms-with-vr-technology/"><u>2024 Approved Step Into New Realms with VR Technology</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-the-ultimate-entry-editor-for-diverse-tech-landscape-of-2023/"><u>2024 Approved The Ultimate Entry Editor for Diverse Tech Landscape of 2023</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-the-ultimate-guide-to-theta-s-features/"><u>2024 Approved The Ultimate Guide to Theta S Features</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-top-11-brainy-battles-general-knowledge-channels-revealed/"><u>2024 Approved Top 11 Brainy Battles General Knowledge Channels Revealed</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-understanding-the-fundamentals-of-online-tales/"><u>2024 Approved Understanding the Fundamentals of Online Tales</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-unveiling-ms-edges-picture-in-picture-magic/"><u>2024 Approved Unveiling MS Edge's Picture-in-Picture Magic</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-unveiling-the-basics-of-vlogging-gear-and-software/"><u>2024 Approved Unveiling the Basics of Vlogging Gear & Software</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/fixing-the-crackling-noise-problem-in-cyberpunk-2077-tips-and-solutions/"><u>Fixing the Crackling Noise Problem in Cyberpunk 2077: Tips and Solutions</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-5-car-locator-apps-for-tecno-spark-10c-drfone-by-drfone-virtual-android/"><u>In 2024, Top 5 Car Locator Apps for Tecno Spark 10C | Dr.fone</u></a></li>
-<li><a href="https://extra-information.techidaily.com/mastering-key-scenes-a-filmmakers-guidebook/"><u>Mastering Key Scenes A Filmmaker's Guidebook</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/snag-the-hp-victus-15-gaming-notebook-at-an-unbeatable-price-of-just-515-during-best-buys-prime-day-event-exclusive-offer/"><u>Snag the HP Victus 15 Gaming Notebook at an Unbeatable Price of Just $515 During Best Buy's Prime Day Event - Exclusive Offer !</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-everything-about-facebook-live-split-screen-you-should-know/"><u>[New] Everything About Facebook Live Split Screen You Should Know</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-pioneering-strategies-for-success-in-the-spotify-ad-arena/"><u>[New] Pioneering Strategies for Success in the Spotify Ad Arena</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-transforming-audio-to-text-on-slides-for-ppt-for-2024/"><u>[New] Transforming Audio to Text on Slides for PPT for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-essential-information-for-choosing-the-best-video-platform/"><u>[Updated] Essential Information for Choosing the Best Video Platform</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-fun-frenzy-youtube-writers-of-joyful-entertainment/"><u>[Updated] In 2024, Fun Frenzy YouTube’ Writers of Joyful Entertainment</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-in-2024-win11s-leading-video-creators-guide/"><u>[Updated] In 2024, Win11's Leading Video Creators Guide</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-your-updated-journey-in-choosing-360-degree-cameras-for-2024/"><u>[Updated] Your Updated Journey in Choosing 360-Degree Cameras for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/exploring-the-top-8-collaborative-affordable-android-video-mosaics/"><u>Exploring the Top 8 Collaborative, Affordable Android Video Mosaics</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-palette-playbook-the-filmmakers-guide-to-grading/"><u>In 2024, Palette Playbook The Filmmaker's Guide to Grading</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/navigating-vr-choices-pick-between-mobile-and-tethered-systems/"><u>Navigating VR Choices Pick Between Mobile and Tethered Systems</u></a></li>
+<li><a href="https://win11.techidaily.com/personalize-your-window-11-experience-with-dynamic-backdrops/"><u>Personalize Your Window 11 Experience with Dynamic Backdrops</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-ultimate-hack-for-blocking-youtube-ads-on-all-browsers-for-2024/"><u>The Ultimate Hack for Blocking YouTube Ads on All Browsers for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-pros-and-cons-an-objective-iphone-13-overview/"><u>Unveiling the Pros and Cons: An Objective iPhone 13 Overview</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/1726029267856-itunes/"><u>ビデオ作成のためにiTunesミュージックを編集・再利用するテクニック</u></a></li>
 </ul></div>
 

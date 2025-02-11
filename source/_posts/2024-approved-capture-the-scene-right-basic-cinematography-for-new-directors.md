@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Capture the Scene Right  Basic Cinematography for New Directors\""
-date: 2024-08-22T18:18:25.326Z
-updated: 2024-08-23T18:18:25.326Z
+date: 2025-02-08T05:44:33.816Z
+updated: 2025-02-11T10:22:33.070Z
 tags: 
   - screen-recording
   - ai video
@@ -41,6 +41,10 @@ We hope you read this article with all concentration so that your new project is
 
 ## Part 1: 7 Types of Shots in film You Should Know
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1\. Establishing Shot
 
 As the name hints itself, this type of camera shot basically establishes the scene the audience sees as the [first shot of your movie](https://en.wikipedia.org/wiki/Establishing%5Fshot).
@@ -62,8 +66,9 @@ You will also allow the audience to know the emotional relationship to the envir
 ![Extreme Long Shot](https://images.wondershare.com/filmora/filmorapro/extreme-long-shot.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 3\. Long Shot
 
 Long shot or often known as the wide shot uses characters in the shot. Each character is shown head to toe in relation to the surroundings, location or each other.
@@ -73,8 +78,9 @@ Also, the chief character or say the protagonist should have a major presence in
 Moreover, while using this type of camera shot, you must take care that it should be dominated by the scenery.
 
 <!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 4\. Full Shot
 
 Here, the location can be ignored from keeping in the focus.
@@ -85,12 +91,6 @@ For instance, the audience must get the idea whether your character is confident
 
 ![Full Shot](https://images.wondershare.com/filmora/filmorapro/full-shot.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### 5\. Medium Shot
 
 Medium shot basically stands between the full and the close-up shot.
@@ -101,9 +101,6 @@ The purpose of this shot is to keep the character looking natural.
 
 ![Medium Shot](https://images.wondershare.com/filmora/filmorapro/medium-shot.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### 6\. Close-Up shot
 
 The name brings a crystal clear image of the type of shot itself. With this shot, one brings out the character’s face thereby helping the audience to understand the emotional thoughts of the character.
@@ -113,9 +110,9 @@ This shot basically provides what you miss in the [medium shot](https://tools.te
 ![Close-Up shot](https://images.wondershare.com/filmora/filmorapro/close-up-shot.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
-LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 7\. Extreme Close Up
 
 To make the audience visualize only some features of the character, the Extreme Close-up comes in handy.
@@ -126,18 +123,16 @@ This type of shot in films aims to fit the single feature on the entire screen. 
 
 ## Part 2: Shots Angles for Camera
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 8\. Eye Shots
 
 These types of shots are taken keeping the camera exactly at the [human eye level](https://nofilmschool.com/eye-level-shot-camera-angle). Using these bring the neutral effect of the shot.
 
 ![Eye Shots](https://images.wondershare.com/filmora/filmorapro/eye-shots.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 9\. High Shots
 
 High angled shots, unsurprisingly are recorded from the level above than the eye. Basically, this shot type is used to give the weak, unsafe or the terrified impact of the subject.
@@ -147,6 +142,10 @@ High angled shots, unsurprisingly are recorded from the level above than the eye
 Contrary to the above, this type of shot in the film is taken from the level below than the eye. And not to mention, low shots are used to give the heroic, risky or powerful impact to the subject.
 
 ![Low Shots](https://images.wondershare.com/filmora/filmorapro/low-shots.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 11\. Tilt shots
 
@@ -170,6 +169,10 @@ This shot typically cuts the screen into two or three or sometimes four parts.
 
 It is helpful when you have multiple things to be shown as important in one scene. It takes close-up of the thing that you want to show your viewer.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 14\. Master Shot
 
 A shot that is recorded from a single angle and is an uninterrupted shot to bring all the characters in view is referred to as the [master shot](https://tools.techidaily.com/wondershare/filmora/download/).
@@ -178,9 +181,6 @@ It is basically the complete dramatized shot and can be edited together with oth
 
 Also, this type of shot can be considered as the only shot to be used by a director for covering the scene. It can be a closer shot, full or long shot.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ### 15\. Point of View Shot
 
 POV or Point of View is a shot that focuses on what a character is trying to see in a scene.
@@ -192,11 +192,9 @@ For example, looking through the binoculars and shooting only where the characte
 ![Point of View Shot](https://images.wondershare.com/filmora/filmorapro/point-of-view-shot.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+
 ## Conclusion
 
 To enhance the visual appearance of a movie, one has to master the types of shots in film. We have described every possible thing that we felt you need to know regarding this.
@@ -208,9 +206,9 @@ Please help us by sharing your views on this so that we will update you with mor
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -234,8 +232,23 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-2023s-premier-alternatives-to-samsungs-gear-360-cam/"><u>[New] 2023'S Premier Alternatives to Samsung's Gear 360 Cam</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-high-quality-duo-of-photo-and-sound-capture-software/"><u>[New] High-Quality Duo of Photo & Sound Capture Software</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-groundbreaking-method-to-insert-gopro-clips-into-virtual-panoramic-movies/"><u>[New] In 2024, Groundbreaking Method to Insert GoPro Clips Into Virtual Panoramic Movies</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-effortlessly-manage-iphone-photos-aligning-albums-and-streamlining-icloud-storage-for-2024/"><u>[Updated] Effortlessly Manage iPhone Photos Aligning Albums and Streamlining iCloud Storage for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-focusing-the-lens-detailed-film-techniques-for-2024/"><u>[Updated] Focusing the Lens Detailed Film Techniques for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-interlinking-giants-a-comprehensible-guide-for-instra-and-tikto/"><u>[Updated] In 2024, Interlinking Giants A Comprehensible Guide for Instra & Tikto</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-speedy-shots-masterful-iphone-time-lapse-methods/"><u>[Updated] In 2024, Speedy Shots Masterful iPhone Time Lapse Methods</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/5-step-plan-for-clearing-overexposed-iphone-hd-videos-using-premiere-pro-for-2024/"><u>5 Step Plan for Clearing Overexposed iPhone HD Videos Using Premiere Pro for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/50-off-your-imagination-create-stunning-pics-with-these-8-dall-e-3-cues/"><u>50% Off Your Imagination: Create Stunning Pics with These 8 DALL-E 3 Cues</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/edit-like-a-pro-with-these-top-5-mac-videography-suites-for-2024/"><u>Edit Like a Pro with These Top 5 Mac Videography Suites for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-total-data-usage-24-hour-videography-in-gbs/"><u>In 2024, Total Data Usage 24-Hour Videography in GBs</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-turning-snapchat-into-cash-secrets-revealed/"><u>In 2024, Turning Snapchat Into Cash Secrets Revealed</u></a></li>
+<li><a href="https://common-error.techidaily.com/successful-steps-activating-bluetooth-on-your-pc-with-windows-11-or-10/"><u>Successful Steps: Activating Bluetooth on Your PC with Windows 11 or 10</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/the-full-picture-a-review-of-dji-inspire-1/"><u>The Full Picture A Review of DJI Inspire 1</u></a></li>
+<li><a href="https://some-skills.techidaily.com/ultimate-picture-sequence-architect-for-2024/"><u>Ultimate Picture Sequence Architect for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-doesnt-apple-join-the-metaverse-wave-like-facebook/"><u>Why Doesn't Apple Join the Metaverse Wave Like Facebook?</u></a></li>
+</ul></div>
 

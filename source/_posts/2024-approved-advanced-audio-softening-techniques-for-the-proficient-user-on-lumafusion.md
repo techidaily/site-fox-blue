@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Advanced Audio Softening Techniques for the Proficient User on Lumafusion\""
-date: 2024-08-22T18:17:09.808Z
-updated: 2024-08-23T18:17:09.808Z
+date: 2025-02-04T20:08:56.747Z
+updated: 2025-02-11T13:53:33.299Z
 tags: 
   - screen-recording
   - ai video
@@ -22,6 +22,10 @@ LumaFusion, a mobile video editing powerhouse with an intuitive LumaFusion music
 
 Video editors should give LumaFusion a try if they want to use its compact LumaFusion fade audio editing feature. And before diving in head first with more sophisticated tools, novices who wish to learn how to edit video should give it considerable consideration. From the iOS camera roll, a cloud service like Dropbox or Google Device, or a USB drive linked to an iPhone or iPad, you may edit images and videos in addition to editing fade out audio LumaFusion. Learn more about the process here.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1\. How to Fade Audio with LumaFusion
 
 There are several capabilities in Luma Fusion that make precise editing possible, including ones that we haven't seen in other mobile editing tools, such keyframing for all effects. Beginning filmmakers may use LumaFusion to discover their voice via editing. Their work may be moved to a desktop software after their abilities have grown on mobile. To start fading audio using Luma Fusion, follow these steps:
@@ -39,6 +43,10 @@ Step3 From the choices, choose the Cross Dissolve (Fade) transition. The transit
 ![fade audio in luma fusion](https://images.wondershare.com/filmora/article-images/2022/07/fade-audio-in-luma-fusion.jpg)
 
 Beyond simple editing, LumaFusion excels in enhancing projects with a wide variety of built-in effects, transitions, titles, and color correction. It also has a limited (but excellent) collection of royalty-free music. Finally, LumaFusion Project Packages are a terrific solution to regularly backup a project for security or to complete altering it. After choosing Export, choose the Project Package from the list.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2\. LumaFusion Alternative Way to Fade Audio in Video
 
@@ -74,30 +82,24 @@ After finishing the method for editing audio in Filmora, click the Export button
 
 In that window, you can select the MP3 format in the format customization box to continue with storing your file to your system. After making any necessary adjustments to the audio file, click the Export button below, which will ultimately direct you to the area on your PC where you want to store the audio.
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
-<!-- affiliate ads end -->
 ## Part 3\. Related FAQs about LumaFusion
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
-<!-- affiliate ads end -->
 ### 1\. How do you fade in a title LumaFusion?
 
 Go to Clip Defaults to do that. You may change the Title and Transition lengths here. Check to check whether the updated defaults have been implemented by adding a new title or transition after making the necessary modifications. By cursorily browsing the title in the browser, you can get a preview.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. How do you do transitions in LumaFusion?
 
 There are several eye-catching transitions included with LumaFusion. The transition may simply be dragged into the timeline and placed between the two pertinent segments. You may modify the duration of it after it's on the timeline in the same way that you would any other clip. Simply choose Transitions from the Sources box, that's it.
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
-	Home Use license is dedicated for personal, non-commercial use only. 
-	If Action! is used for commercial gain or to further any commercial purpose, 
-	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
- 
-	company, user or members of the same household. Action! - screen and game recorder</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 3\. How to you split audio and video in LumaFusion?
 
 Within the timeline, tap anywhere and move the mouse left or right to divide a clip in half. The audio from your clip may then be separated in the timeline. To do so, choose the audio channel and then click the pencil-shaped edit button at the bottom of the screen. This will display a variety of choices, including tools for pan, distortion, and volume. The audio editing features in LumaFusion are virtually as spectacular as the visual options—and just as intimidating.
@@ -123,23 +125,21 @@ The fade-in audio button inside your audio file may be seen when you just hover 
 ![apply fade effects](https://images.wondershare.com/filmora/guide/add-fade-in-fade-out-markers-timeline.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##### Step4 Share and export
 
 After finishing the method for editing audio in Filmora, click the Export button in the top menu corner as shown here:
 
 In that window, you can select the MP3 format in the format customization box to continue with storing your file to your system. After making any necessary adjustments to the audio file, click the Export button below, which will ultimately direct you to the area on your PC where you want to store the audio.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 3\. Related FAQs about LumaFusion
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 1\. How do you fade in a title LumaFusion?
 
 Go to Clip Defaults to do that. You may change the Title and Transition lengths here. Check to check whether the updated defaults have been implemented by adding a new title or transition after making the necessary modifications. By cursorily browsing the title in the browser, you can get a preview.
@@ -174,8 +174,24 @@ Within the timeline, tap anywhere and move the mouse left or right to divide a c
      data-full-width-responsive="true"></ins>
 
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-unveiling-30-new-dimensions-in-metaverse-memes/"><u>[New] 2024 Approved Unveiling 30 New Dimensions in Metaverse Memes</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-best-value-4k-photography-equipment-for-2024/"><u>[New] Best Value 4K Photography Equipment for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-from-standard-screen-to-vr-world-smartphone-conversion-guide/"><u>[New] In 2024, From Standard Screen to VR World Smartphone Conversion Guide</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-premier-select-mac-dvd-editors/"><u>[New] Premier Select Mac DVD Editors</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-zipping-outcomes-turning-into-subrip-text-files-for-2024/"><u>[New] Zipping Outcomes Turning Into SubRip Text Files for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-10-speed-up-apps-for-mobile-music-and-podcasts/"><u>[Updated] 10 Speed-Up Apps for Mobile Music and Podcasts</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-pinnacle-promotion-reels/"><u>[Updated] Pinnacle Promotion Reels</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-unraveling-the-mystery-of-selecting-a-virtual-reality-device-tethered-connections-vs-mobility-freedom/"><u>[Updated] Unraveling the Mystery of Selecting a Virtual Reality Device Tethered Connections vs Mobility Freedom?</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/advanced-strategies-in-voice-memo-mastery-for-2024/"><u>Advanced Strategies in Voice Memo Mastery for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/detailed-theta-s-analysis-a-comprehensive-look-for-2024/"><u>Detailed Theta S Analysis A Comprehensive Look for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-nubia-red-magic-8s-pro-location-on-skout-drfone-by-drfone-virtual-android/"><u>How to Change Nubia Red Magic 8S Pro Location on Skout | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-navigate-through-youtube-content-with-flexibility/"><u>In 2024, Navigate Through YouTube Content with Flexibility</u></a></li>
+<li><a href="https://extra-information.techidaily.com/revolutionizing-content-with-360-degree-footage/"><u>Revolutionizing Content with 360-Degree Footage</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/streamlined-approach-upload-your-videos-from-youtube-to-dailymotion/"><u>Streamlined Approach Upload Your Videos From YouTube to Dailymotion</u></a></li>
+<li><a href="https://howto.techidaily.com/troubleshooting-guide-how-to-fix-an-unresponsive-vivo-s18-screen-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Troubleshooting Guide How to Fix an Unresponsive Vivo S18 Screen | Dr.fone</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/ultimate-guide-resolving-macs-failure-to-recognize-outer-monitor-connections/"><u>Ultimate Guide: Resolving Mac's Failure to Recognize Outer Monitor Connections</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/unlock-the-full-potential-of-warhammer-40k-eliminate-pc-lag/"><u>Unlock the Full Potential of Warhammer 40K: Eliminate PC Lag</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  A Filmmaker's Handbook  Mastering Close-Up Videography\""
-date: 2024-08-22T18:20:55.254Z
-updated: 2024-08-23T18:20:55.254Z
+date: 2025-02-07T03:13:06.232Z
+updated: 2025-02-11T03:12:11.245Z
 tags: 
   - screen-recording
   - ai video
@@ -70,6 +70,10 @@ The background of your macro video always remains blurred as you shoot it closel
 
 ![background](https://images.wondershare.com/filmora/article-images/separate-the-foreground-from-background.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 4\. DSLR Cameras
 
 For capturing the macro video, you can consider digital SLR camera. The macro lens of the digital SLR camera is a great option for capturing.
@@ -79,6 +83,10 @@ If you are a Canon user, you may opt for the 180 mm macro, 100 mm macro or the 6
 You may also add an extension tube which basically splits the focal distance in two equal halves and make the image size bigger but it decreases the depth of the field.
 
 ![dslr camera](https://images.wondershare.com/filmora/article-images/dslr-camera-full-rig.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 5\. Depth of Field
 
@@ -90,6 +98,10 @@ But, you must remember that when the opening of the lens is small, the light req
 
 ![depth of field](https://images.wondershare.com/filmora/article-images/depth-of-field.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 6\. Composition
 
 When you have low lights, ensuring a correct perspective on the subject with maximum focus area is quite difficult. You must have the right composition for your macro video.
@@ -97,6 +109,14 @@ When you have low lights, ensuring a correct perspective on the subject with max
 For instance, in order to keep a snail always in focus, you may choose to shoot it while it crawls perpendicular to the camera. If you shoot while it crawls towards you, only a part of the snail remains in focus at a certain point of time.
 
 ![composition](https://images.wondershare.com/filmora/article-images/composition.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -127,12 +147,22 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-direct.techidaily.com/new-in-2024-expert-tips-for-efficient-youtube-to-mpeg-transcoding/"><u>[New] In 2024, Expert Tips for Efficient YouTube-to-MPEG Transcoding</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-navigating-through-premium-hdr-camera-options/"><u>[New] Navigating Through Premium HDR Camera Options</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-premiers-choice-5-best-slow-motion-cams/"><u>[New] Premier's Choice 5 Best Slow-Motion Cams</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-scout-platforms-securing-partnerships-with-youtube-content-creators/"><u>[Updated] 2024 Approved Scout Platforms Securing Partnerships with YouTube Content Creators</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-the-pinnacle-of-iphone-photography-finding-ultimate-angles/"><u>[Updated] 2024 Approved The Pinnacle of iPhone Photography Finding Ultimate Angles</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-exclusive-insights-into-windows-superior-video-players/"><u>[Updated] Exclusive Insights Into Window's Superior Video Players</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-metaverse-mirth-makers-top-tips-for-crafting-hilarious-virtual-images/"><u>[Updated] Metaverse Mirth Makers Top Tips for Crafting Hilarious Virtual Images</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-optimal-earnings-scaling-your-youtube-channels-revenue-on-mobile-devices/"><u>[Updated] Optimal Earnings Scaling Your YouTube Channel's Revenue on Mobile Devices</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/detailed-review-of-the-sony-fdr-x1000-action-camera/"><u>Detailed Review of the Sony FDR-X1000 Action Camera</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-panasonic-hx-a1-actioncam-in-depth-review/"><u>In 2024, Panasonic HX-A1 ActionCam In-Depth Review</u></a></li>
+<li><a href="https://extra-support.techidaily.com/ions-bold-step-forward-with-pro-3-a-comprehensive-camera-review-for-2024/"><u>ION's Bold Step Forward with Pro 3 - A Comprehensive Camera Review for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/mastering-3d-luts-a-comprehensive-guide/"><u>Mastering 3D LUTs A Comprehensive Guide</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/soons-review-diverse-perspectives/"><u>Soon's Review Diverse Perspectives</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/the-professionals-guide-to-innovative-360-cams-2023/"><u>The Professionals’ Guide to Innovative 360° Cams, 2023</u></a></li>
+<li><a href="https://blog-min.techidaily.com/why-does-my-iphone-get-so-hot-expert-tips-to-keep-it-cool/"><u>Why Does My iPhone Get So Hot? Expert Tips to Keep It Cool</u></a></li>
+</ul></div>
 
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->

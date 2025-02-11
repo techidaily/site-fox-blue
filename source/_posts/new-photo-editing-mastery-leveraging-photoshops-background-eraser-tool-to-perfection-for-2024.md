@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Photo Editing Mastery  Leveraging Photoshop's Background Eraser Tool to Perfection for 2024\""
-date: 2025-01-25T10:49:48.454Z
-updated: 2025-01-29T16:37:57.437Z
+date: 2025-02-07T21:16:32.714Z
+updated: 2025-02-11T02:36:22.666Z
 tags: 
   - screen-recording
   - ai video
@@ -28,6 +28,10 @@ So, if you are ready to learn how to use the Background Eraser tool in Photoshop
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Basic Information About Eraser Tools In Photoshop
 
@@ -59,10 +63,6 @@ Here are some dissimilarities between the Background Eraser and Magic Eraser Too
 
 Each tool's diversity in options significantly affects the final image's quality. For example, the Magic Eraser Tool erases areas rapidly, though there is limited control over which pixels are deleted.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Background Of Eraser Tools Settings Before The Tutorial
 
 Before starting our tutorial on **how to use the Background Eraser tool in Photoshop,** let's first discuss the adjustment options enabled when selecting the tool and working with them. In this way, you can better understand the steps in the guidance.
@@ -73,12 +73,16 @@ When you enable the Background Eraser tool in Photoshop, you will see that the c
 
 ![bruch preset picker function in background eraser tool](https://images.wondershare.com/filmora/article-images/2023/03/bruch-preset-picker-function-in-background-eraser-tool.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The **Brush Preset Picker** is the first option that opens up a panel to let you adjust the size of your brush, its hardness, spacing, and tolerance. You can also change the size using the **Left Bracket ( \[ )** and **Right Bracket ( \] )**  keys on your PC keyboard.
 
 To adjust the hardness, press the **"Shift+ Left Bracket"** or **"Shift+Right Bracket"** keys. We recommend that you set it to **100%** when erasing the pixels from your image.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2\. Sampling Options
@@ -115,14 +119,6 @@ If, however, the background color is fringing around the subject, use a higher T
 
 ![tolerance function in background eraser tool](https://images.wondershare.com/filmora/article-images/2023/03/tolerance-function-in-background-eraser-tool.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 5\. Brush Angle
 
 The Brush Angle option can help you adjust the angle of your crosshair to quickly erase the pixels in difficult-to-reach areas in your image's background. You can also hit the **"R"** key on your keyboard to rotate the canvas.
@@ -145,6 +141,10 @@ Step1 In the first step, launch [**Adobe Photoshop**](https://www.adobe.com/prod
 
 ![using the background eraser tool in photoshop](https://images.wondershare.com/filmora/article-images/2023/03/using-the-background-eraser-tool-in-photoshop.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step2 Now, click and drag over the background area you want to erase. Photoshop will automatically select the area you want to erase as you drag.
 
 Adjust the size and hardness of the eraser brush by using the **Brush Preset Picker** in the **Options bar.** Alternatively, you can also press the **"Right Bracket (\]) "** button to increase the size of the brush and the **"Left Bracket (\[)"** key to decrease it.
@@ -159,6 +159,10 @@ Step4 If your image background and subject are of the same color and **Photoshop
 
 ![setting the tolerance value in background eraser tool](https://images.wondershare.com/filmora/article-images/2023/03/setting-the-tolerance-value-in-background-eraser-tool.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step5 When removing pixels from a background, you can preserve specific pixel colors from being removed, which can be helpful if they are close to the area you want to erase.
 
 For this, place the cursor on the color you want to keep and press & hold the **ALT** (Windows) or the **Option** key (Mac) until the brush changes to the Eyedropper Tool icon. Then, click the area to sample the color in the **Foreground Swatch.**
@@ -169,10 +173,6 @@ Step6 Finally, after removing the background, you can place the subject on anoth
 
 ![exporting the final image after erasing background with background eraser](https://images.wondershare.com/filmora/article-images/2023/03/exporting-the-final-image-after-erasing-background-with-background-eraser.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## You May Want to Know: The Working Process of Background Eraser Tool
 
 Now that you've learned **how to use the Background Eraser Tool in Photoshop.** During the process of operating, you might wonder how the software works and changes the BG layer.
@@ -182,6 +182,10 @@ To help you understand this process, we'll create a sample project (image with p
 After importing the image, when we check the **"Layers"** panel, we can see that the image is labeled as a **"Background"** layer. So now, we want to erase the pink column and keep the blue one to create a pattern.
 
 ![checking the image layer in the layers panel](https://images.wondershare.com/filmora/article-images/2023/03/checking-the-image-layer-in-the-layers-panel.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 When we select the Background Erase tool, the cursor changes to a brush that helps Photoshop to sample the colors that come under the **crosshair (Plus)** in the center of the circle. The circle around the crosshair shows the area where the software will erase the pixels (only the pixels with the same color or shades).
 
@@ -194,30 +198,18 @@ Therefore, as long as we keep the crosshair within the pink area, Photoshop will
 However, if we accidentally erase the blue stripes, we can always go back by simply pressing the **"CTRL+Z"** in Windows and **"Command+Z"** in Mac. To undo multiple steps, hit the **"Ctrl+Alt+Z" (Windows)** or **Command+Option+Z" (Mac)** keys repeatedly.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Common FAQs When Using Background Esarser Tool in Photoshop
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 1\. Why Is Photoshop Eraser Tool Not Accessible?
 
 If your Photoshop Eraser Tool is not accessible, make sure you have no active selection and that you are working on the active layer.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 2\. I Am Unable To Locate The Background Eraser Tool In Photoshop. Where Is It?
 
 You can find the Background Eraser Tool in the **Toolbar** on the left-hand side of the screen. Right-click the **"Eraser"** tool and select **"Background Eraser"** from the menu.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## A Bonus Video Tutorial: Background Change Tutorial with Wondershare [Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -226,6 +218,10 @@ Hopefully, you find this article informative and can now easily use the Backgrou
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -238,6 +234,10 @@ Hopefully, you can use the tools in Phoshop with ease and remove images' backgro
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -271,22 +271,24 @@ Hopefully, you can use the tools in Phoshop with ease and remove images' backgro
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/apture-attention-yt-imagery-and-its-dimension-magic/"><u>[New] Capture Attention YT Imagery and Its Dimension Magic</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/rafting-dynamic-collab-videos-with-content-partners-on-youtube-for-2024/"><u>[New] Crafting Dynamic Collab Videos with Content Partners on YouTube for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/arning-insights-average-adsense-earning-for-every-1000-youtube-views-for-2024/"><u>[New] Earning Insights Average AdSense Earning for Every 1,000 YouTube Views for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-exploring-hidden-gems-secrets-on-locating-superb-insta-ringtunes-and-creating-noteworthy-chimes/"><u>[New] Exploring Hidden Gems Secrets on Locating Superb Insta-Ringtunes & Creating Noteworthy Chimes</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-physical-prowess-meets-online-opinions-for-2024/"><u>[New] Physical Prowess Meets Online Opinions for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-the-art-of-leading-lines-in-iphone-visual-storytelling/"><u>[New] The Art of Leading Lines in iPhone Visual Storytelling</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-from-script-to-screen-mastery-through-vida-writers-guide/"><u>[Updated] From Script to Screen Mastery Through Vida’ Writers Guide</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-maximizing-your-reach-with-snapchat-highlights-for-2024/"><u>[Updated] Maximizing Your Reach with Snapchat Highlights for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-recording-internet-radios-simplified-tips-and-tricks-for-2024/"><u>[Updated] Recording Internet Radios Simplified Tips and Tricks for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-the-complete-guide-to-video-editing-in-windows-8-movie-maker/"><u>[Updated] The Complete Guide to Video Editing in Windows 8 Movie Maker</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/erate-follower-count-key-strategies-unlocked/"><u>Accelerate Follower Count Key Strategies Unlocked</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/fix-usb-not-installing-issue-access-is-denied/"><u>Fix USB Not Installing Issue: Access Is Denied</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-navigating-the-world-of-no-fee-visual-aids/"><u>In 2024, Navigating the World of No-Fee Visual Aids</u></a></li>
-<li><a href="https://fox-that.techidaily.com/missing-icon-dilemma-restore-all-app-icons-on-your-ios-device/"><u>Missing Icon Dilemma: Restore All App Icons on Your iOS Device</u></a></li>
-<li><a href="https://win-great.techidaily.com/summer-vibes-with-pro-dj-services-elevate-your-karaoke-experience-now/"><u>Summer Vibes with Pro DJ Services – Elevate Your Karaoke Experience Now!</u></a></li>
-<li><a href="https://app-tips.techidaily.com/the-call-for-clarity-how-ais-popular-surge-highlights-the-demand-for-openness-by-zdnet/"><u>The Call for Clarity: How AI's Popular Surge Highlights the Demand for Openness by ZDNET</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/top-10-must-knows-before-elevating-systems/"><u>Top 10 Must-Knows Before Elevating Systems</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-jocular-video-hacker-review/"><u>[New] 2024 Approved Jocular Video Hacker Review</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-unlocking-youtubes-potential-10-mpeg-conversion-tips/"><u>[New] In 2024, Unlocking YouTube's Potential 10 MPEG Conversion Tips</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-quick-clip-cinema-scenario-for-2024/"><u>[New] Quick Clip Cinema Scenario for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-mac-windows-vmx-substitute/"><u>[Updated] 2024 Approved Mac-Windows VMX Substitute</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-streaming-audio-directly-into-slides/"><u>[Updated] 2024 Approved Streaming Audio Directly Into Slides</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-unleash-the-power-of-digital-beats-with-our-free-tools/"><u>[Updated] 2024 Approved Unleash the Power of Digital Beats with Our Free Tools</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-cutting-out-visuals-from-video-to-still-images-in-windows-10/"><u>[Updated] In 2024, Cutting Out Visuals From Video to Still Images in Windows 10</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-windows-for-videographers-hdr-insights/"><u>[Updated] In 2024, Windows for Videographers HDR Insights</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-top-picks-for-novice-gopro-enthusiasts/"><u>[Updated] Top Picks for Novice GoPro Enthusiasts</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/1725290225822-dvd/"><u>「ダビングガイド: DVD、動画、オーディオ再生手順一覧」</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-how-to-change-youtube-video-playback-speed-desktopmobile/"><u>2024 Approved How to Change YouTube Video Playback Speed [Desktop/Mobile]</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/discovering-your-perfectly-fitted-gopro-mount-6-and-above/"><u>Discovering Your Perfectly-Fitted GoPro Mount #6 and Above</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-best-ways-on-how-to-unlockbypassswiperemove-itel-s23-fingerprint-lock-by-drfone-android/"><u>In 2024, Best Ways on How to Unlock/Bypass/Swipe/Remove Itel S23 Fingerprint Lock</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-oppo-reno-9a-drfone-by-drfone-virtual-android/"><u>In 2024, Can I use iTools gpx file to catch the rare Pokemon On Oppo Reno 9A | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-immediate-impact-shots-learn-the-top-5-home-film-tips-now/"><u>In 2024, Immediate Impact Shots Learn the Top 5 Home Film Tips Now</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-reasons-why-pokemon-gps-does-not-work-on-oppo-f25-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Reasons why Pokémon GPS does not Work On Oppo F25 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/soundtrack-your-storytelling-youtube-music-for-video-content-for-2024/"><u>Soundtrack Your Storytelling YouTube Music for Video Content for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-samsung-galaxy-s23-ultra-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Catch the Regional-Located Pokemon For Samsung Galaxy S23 Ultra | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/zoom-like-a-pro-top-video-gear-for-slow-motion-effects/"><u>Zoom Like a Pro Top Video Gear for Slow Motion Effects</u></a></li>
 </ul></div>
 
