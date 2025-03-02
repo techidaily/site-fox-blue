@@ -1,7 +1,7 @@
 ---
 title: "\"Pro's Guide  Crafting Authentic 3D Characters in PS for 2024\""
-date: 2025-02-06T02:10:17.267Z
-updated: 2025-02-11T06:07:16.257Z
+date: 2025-02-27T16:37:29.244Z
+updated: 2025-03-02T16:51:01.361Z
 tags: 
   - screen-recording
   - ai video
@@ -43,10 +43,6 @@ Step3 Now, locate the **Layers** panel at the bottom-right corner of the screen.
 
 ![three d layer](https://images.wondershare.com/filmora/article-images/layer-adobe-photoshop.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step4 You are now editing in the 3D Workspace inside Photoshop. Here is where we will create the 3D text effect. First, click on the **Layers** panel **→ right-click on "Background" →** select **"Postcard".**
 
 ![edit background](https://images.wondershare.com/filmora/article-images/postcard-adobe-photoshop.png)
@@ -56,10 +52,6 @@ Step5 Now, without touching anything else, hold on to the **SHIFT** key and clic
 Step6 Next, go to the 3D panel. Here, simply click on your Text layer. Then, from the **Properties** panel above, select a **Shape Preset** to be applied to your current text.
 
 ![properties](https://images.wondershare.com/filmora/article-images/preset-adobe-photoshop.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step7 The next thing you need to do is add a light source. To do this, go back to the **3D Panel →** click on the **Lightbulb** button at the bottom **→** select **"New Infinite Light"**. Then, you can drag the circle in the middle of the text to set the direction of the light source.
 
@@ -73,23 +65,11 @@ Step9 We're almost done. The next step is to go back to the **Layers** tab → r
 
 ![convert to smart object](https://images.wondershare.com/filmora/article-images/convert-adobe-photoshop.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step10 Finally, from the upper-right corner drop-down button, select **Essentials**.
 
 ![convert back](https://images.wondershare.com/filmora/article-images/essentials-adobe-photoshop.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 There you have it. You can now export your 3D text image from Photoshop and you're done. Congratulations on learning how to make a 3D text effect in Photoshop.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## An Easier Way to Create a 3D Text Effect or Animation
 
@@ -111,10 +91,6 @@ Step1 First, you should download Filmora and install the program on your compute
 
 ![open new project filmora](https://images.wondershare.com/filmora/guide/get-started-with-filmora-01.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step2 Import a background video or image by going to **My Media** and selecting **Import Media.** From here, select any clip or image you want and hit **Open.** When it's imported, simply drag the clip to the Timeline below.
 
 ![import media files filmora](https://images.wondershare.com/filmora/guide/get-started-with-filmora-02.png)
@@ -126,10 +102,6 @@ Step3 Next, head over to **Titles** and search for "3D". Select any option you l
 Step4 Lastly, double-click on the 3D Title clip in the Timeline and edit its settings. Type in your custom text, change its font, color, and other features.
 
 ![3d titles filmora](https://images.wondershare.com/filmora/guide/3d-title.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 That's it! Congratulations!. You've created a 3D text effect with Filmora in just four simple steps.
 
@@ -148,10 +120,6 @@ The steps are extremely simple. Just follow each exactly as you see it here and 
 Step1 First, you should download Filmora and install the program on your computer. Then, launch it and click on **New Project**.
 
 ![open new project filmora](https://images.wondershare.com/filmora/guide/get-started-with-filmora-01.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step2 Import a background video or image by going to **My Media** and selecting **Import Media.** From here, select any clip or image you want and hit **Open.** When it's imported, simply drag the clip to the Timeline below.
 
@@ -195,24 +163,22 @@ Creating 3D text with Photoshop is a good idea if you already know how to use th
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-unveiling-hidden-sights-in-google-meet-conferences/"><u>[New] 2024 Approved Unveiling Hidden Sights in Google Meet Conferences</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-dynamic-group-portraits-via-iphone-burst-mode/"><u>[New] Dynamic Group Portraits via iPhone Burst Mode</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-captivating-cinematic-experience-video-filters-for-pcmobile/"><u>[New] In 2024, Captivating Cinematic Experience Video Filters for PC/Mobile</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-discover-the-best-in-igtv-every-week/"><u>[Updated] Discover the Best in IGTV Every Week</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-elite-list-best-online-streaming-options-today/"><u>[Updated] In 2024, Elite List Best Online Streaming Options Today</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-from-boring-to-buzzing-three-tactics-for-youtube-reaction-mastery/"><u>[Updated] In 2024, From Boring to Buzzing Three Tactics for YouTube Reaction Mastery</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-pioneering-flight-paths-with-gopro-karma-technology/"><u>[Updated] In 2024, Pioneering Flight Paths with GoPro Karma Technology</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-laptop-video-edits-going-off-inshot/"><u>[Updated] Laptop Video Edits Going Off-Inshot</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-mastering-the-craft-of-creating-captivating-podcast-titles-for-2024/"><u>[Updated] Mastering the Craft of Creating Captivating Podcast Titles for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-ranked-high-8-web-based-image-fusion-service/"><u>[Updated] Ranked High 8 Web-Based Image Fusion Service</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/diving-into-inshot-the-video-editing-leader-claimed-for-2024/"><u>Diving Into InShot The Video Editing Leader Claimed for 2024</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/gratuit-converter-de-ogg-vers-ogv-enligne-avec-movavi/"><u>Gratuit Converter De Ogg Vers OGV - Enligne Avec Movavi</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-from-iphone-images-jpeg-png-guided-conversion-to-pdfs/"><u>In 2024, From iPhone Images (JPEG, PNG) - Guided Conversion to PDFs</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-is-your-apple-iphone-14-in-security-lockout-proper-ways-to-unlock-by-drfone-ios/"><u>In 2024, Is Your Apple iPhone 14 in Security Lockout? Proper Ways To Unlock</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-learn-to-harness-funimates-downloading-power/"><u>In 2024, Learn to Harness Funimate's Downloading Power</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-practical-steps-in-mastering-telegram-web-services/"><u>In 2024, Practical Steps in Mastering Telegram Web Services</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/maximize-your-spotify-campaign-roi-an-expert-guide-for-2024/"><u>Maximize Your Spotify Campaign ROI - An Expert Guide for 2024</u></a></li>
-<li><a href="https://apple-account.techidaily.com/top-notch-solutions-for-disabled-apple-id-on-iphone-8-making-it-possible-by-drfone-ios/"><u>Top-Notch Solutions for Disabled Apple ID On iPhone 8 Making It Possible</u></a></li>
-<li><a href="https://solve-news.techidaily.com/online-mpeg-wmv-movavi/"><u>영구제: Online에서 무료 MPEG 및 WMV 비디오를 쉽게 전환 - Movavi 소프트</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-navigating-next-gen-storage-the-ultimate-five-for-2024/"><u>[New] Navigating Next-Gen Storage The Ultimate Five for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-precision-in-speech-synthesis-converting-text-formats-to-srt/"><u>[New] Precision in Speech Synthesis Converting Text Formats to SRT</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-the-jaunt-vr-journey-explained-for-2024/"><u>[New] The Jaunt VR Journey Explained for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-dancefloor-dynamics-free-pristine-dj-template-videos/"><u>[Updated] 2024 Approved Dancefloor Dynamics Free, Pristine DJ Template Videos</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-getting-started-with-itunes-podcasts-on-ios-devices/"><u>[Updated] 2024 Approved Getting Started with iTunes Podcasts on iOS Devices</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-xsplit-vs-obs-which-is-better-for-live-streaming/"><u>[Updated] 2024 Approved Xsplit VS OBS Which Is Better for Live Streaming?</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-the-art-of-podcast-hooks-compelling-beginnings-for-2024/"><u>[Updated] The Art of Podcast Hooks Compelling Beginnings for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-transition-magic-4-simplified-fading-methods/"><u>[Updated] Transition Magic 4 Simplified Fading Methods</u></a></li>
+<li><a href="https://some-tips.techidaily.com/updated-tunes-twining-a-new-multimedia-approach/"><u>[Updated] Tunes Twining A New Multimedia Approach</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-ultimate-audio-compilations-for-video-production/"><u>[Updated] Ultimate Audio Compilations for Video Production</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-gigglegenius-log-in-for-video-adventures/"><u>In 2024, GiggleGenius Log In for Video Adventures</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-in-depth-review-videovision-pro-suite-the-new-frontier/"><u>In 2024, In-Depth Review VideoVision Pro Suite - The New Frontier</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-is-it-illegal-to-screen-capture-youtube-videos/"><u>In 2024, Is It Illegal to Screen-Capture YouTube Videos?</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/1723964496458-lowest-price-on-lian-li-lancool-215-vibrant-and-sleek-design-for-just-89/"><u>Lowest Price on Lian Li Lancool 215 - Vibrant and Sleek Design for Just $89</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/mastering-twitter-archives-for-analysis/"><u>Mastering Twitter Archives for Analysis</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/refinement-of-screen-focus-how-to-zoom-on-microsoft-teams/"><u>Refinement of Screen Focus How to Zoom on Microsoft Teams</u></a></li>
+<li><a href="https://review-topics.techidaily.com/remove-google-frp-lock-on-g22-by-drfone-android-unlock-remove-google-frp/"><u>Remove Google FRP lock on G22</u></a></li>
 </ul></div>
 

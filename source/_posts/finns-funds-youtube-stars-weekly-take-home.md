@@ -1,7 +1,7 @@
 ---
 title: "\"Finn's Funds  YouTube Star’s Weekly Take-Home\""
-date: 2024-08-27T12:23:58.706Z
-updated: 2024-08-28T12:23:58.706Z
+date: 2025-02-26T16:20:56.113Z
+updated: 2025-03-02T16:28:29.971Z
 tags: 
   - screen-recording
   - ai video
@@ -87,9 +87,6 @@ By now, we already know that PewDiePie is the king of YouTube but here we would 
 * On [Facebook](https://www.facebook.com/PewDiePie), the number of people who follow PewDiePie is over 9.2 million.
 * [Instagram](https://www.instagram.com/pewdiepie/) leads the list with followers of over 21.9 million.
 
-<!-- affiliate ads begin -->
-<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 3: PewDiePie’s success story: Why he is trending on YouTube?
 
 The popularity of PewDiePie on YouTube can be well accessed by the number of subscribers that the channel has- over 111 Million till date with over 16 billion views on content from people across the globe.
@@ -126,18 +123,12 @@ This is one of the most viewed videos of PewDiePie that has a compilation of the
 
 ![a funny montage](https://images.wondershare.com/filmora/article-images/2022/11/how-much-does-pewdiepie-make-2022-updated-06.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 2\. [Funny Gaming Montage](https://www.youtube.com/watch?v=dt3BvMyHjlc&feature=emb%5Fimp%5Fwoyt)
 
 This is an interesting video of PewDiePie that features a collection of funny moments which shows his reactions to scary video games.
 
 ![funny gaming montage](https://images.wondershare.com/filmora/article-images/2022/11/how-much-does-pewdiepie-make-2022-updated-07.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 3\. [Jabba the Hutt (PewDiePie song by Schmoyoho)](https://www.youtube.com/watch?v=lxw3C5HJ2XU&feature=emb%5Fimp%5Fwoyt)
 
 This is another popular video of PewDiePie that features a song which is dedicated to one of PewDiePie’s pet dogs- Maya. The video also has a collection of moments from his videos.
@@ -176,9 +167,6 @@ And the last option is to choose Auto reframe from the Tools section on the menu
 
 ![wondershare filmora auto reframe 1c](https://images.wondershare.com/filmora/article-images/2022/11/how-much-does-pewdiepie-make-2022-updated-11.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
-<!-- affiliate ads end -->
 Step2 After the Auto Reframe feature is selected, a new dialogue box will open. Choose to add the media file by clicking on the Import Media button (if the file is not yet added).
 
 If you wish to change the added file, tap on Replace File option.
@@ -189,9 +177,6 @@ Step3 Next, you need to adjust the aspect ratio and the motion speed. You can ch
 
 ![wondershare filmora auto reframe 3](https://images.wondershare.com/filmora/article-images/2022/11/how-much-does-pewdiepie-make-2022-updated-13.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Step4 After all the settings are done, click on the Analysis option and the software will do the video analysis.
 
 ![wondershare filmora auto reframe 4a](https://images.wondershare.com/filmora/article-images/2022/11/how-much-does-pewdiepie-make-2022-updated-14.jpg)
@@ -210,9 +195,6 @@ Step6 Finally, tap on the Export button, and choose the desired file and the des
 
 You can check the other AI Editing and more features at [Wondershare Filmora Guide.](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 ## Final Words
 
 PewDiePie is an apt example of earning fortunes by uploading videos and being popular online. There are many factors that make him popular amongst his fans, and there is a lot to learn from the interesting journey of PewDiePie. If you too, wish to make videos like PewDiePie that are catchy, engaging, and interesting, but do not know how to proceed, [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) will prove to be a good companion.
@@ -225,9 +207,6 @@ The above table was just a short summary of PewDiePie. If you are interested to 
 
 ![pewdiepie](https://images.wondershare.com/filmora/article-images/2022/11/how-much-does-pewdiepie-make-2022-updated-02.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 2: Interesting stats about PewDiePie YouTube earning
 
 The young Felix created the PewDiePie YouTube account in the year 2010 and initially started by uploading game-playing videos. By the end of the year 2011, the channel had around 60,000 subscribers with a net worth of around $18.7 million. It was in the year 2013 when PewDiePie started taking off after reaching a subscriber base of 5 million. After this, there was no looking back and the subscribers as well as the income and net worth of PewDiePie kept increasing over the years.
@@ -268,9 +247,6 @@ By now, we already know that PewDiePie is the king of YouTube but here we would 
 * On [Facebook](https://www.facebook.com/PewDiePie), the number of people who follow PewDiePie is over 9.2 million.
 * [Instagram](https://www.instagram.com/pewdiepie/) leads the list with followers of over 21.9 million.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 3: PewDiePie’s success story: Why he is trending on YouTube?
 
 The popularity of PewDiePie on YouTube can be well accessed by the number of subscribers that the channel has- over 111 Million till date with over 16 billion views on content from people across the globe.
@@ -313,21 +289,12 @@ This is an interesting video of PewDiePie that features a collection of funny mo
 
 ![funny gaming montage](https://images.wondershare.com/filmora/article-images/2022/11/how-much-does-pewdiepie-make-2022-updated-07.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 3\. [Jabba the Hutt (PewDiePie song by Schmoyoho)](https://www.youtube.com/watch?v=lxw3C5HJ2XU&feature=emb%5Fimp%5Fwoyt)
 
 This is another popular video of PewDiePie that features a song which is dedicated to one of PewDiePie’s pet dogs- Maya. The video also has a collection of moments from his videos.
 
 ![jabba the hutt](https://images.wondershare.com/filmora/article-images/2022/11/how-much-does-pewdiepie-make-2022-updated-08.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
-<!-- affiliate ads end -->
 ## Part 4: How to be a YouTuber and make videos like PewDiePie
 
 Looking at the success, popularity, and whooping earnings of PewDiePie, it is obvious for people like you and me, to think of try giving hands in being a YouTuber. So, if you have some unique ideas and content that you would like to bring forward to the world audience, uploading on YouTube is one of the best ideas.
@@ -356,26 +323,16 @@ Add the media file by clicking File > Import Media, and then right-click and sel
 
 ![wondershare filmora auto reframe 1b](https://images.wondershare.com/filmora/article-images/2022/11/how-much-does-pewdiepie-make-2022-updated-10.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 And the last option is to choose Auto reframe from the Tools section on the menu bar.
 
 ![wondershare filmora auto reframe 1c](https://images.wondershare.com/filmora/article-images/2022/11/how-much-does-pewdiepie-make-2022-updated-11.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Step2 After the Auto Reframe feature is selected, a new dialogue box will open. Choose to add the media file by clicking on the Import Media button (if the file is not yet added).
 
 If you wish to change the added file, tap on Replace File option.
 
 ![wondershare filmora auto reframe 2](https://images.wondershare.com/filmora/article-images/2022/11/how-much-does-pewdiepie-make-2022-updated-12.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
-<!-- affiliate ads end -->
 Step3 Next, you need to adjust the aspect ratio and the motion speed. You can choose aspect ratio from multiple options- square (1:1), vertical (9:16), standard (4:3), widescreen (16:9), and cinema (21:9). The motion speed can be kept as Auto, Fast, or Slow as needed.
 
 ![wondershare filmora auto reframe 3](https://images.wondershare.com/filmora/article-images/2022/11/how-much-does-pewdiepie-make-2022-updated-13.jpg)
@@ -384,16 +341,10 @@ Step4 After all the settings are done, click on the Analysis option and the soft
 
 ![wondershare filmora auto reframe 4a](https://images.wondershare.com/filmora/article-images/2022/11/how-much-does-pewdiepie-make-2022-updated-14.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 The tool will reframe the video automatically as per the speed and the aspect ratio selected. Clicking on the Restart button will let you change the aspect ratio and the speed.
 
 ![wondershare filmora auto reframe 4b](https://images.wondershare.com/filmora/article-images/2022/11/how-much-does-pewdiepie-make-2022-updated-15.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Step5 Preview of the video can now be checked and if further editing is needed, it can be done using Undo, redo Next Edit Point, and Previous Edit Point features.
 
 ![wondershare filmora auto reframe 5](https://images.wondershare.com/filmora/article-images/2022/11/how-much-does-pewdiepie-make-2022-updated-16.jpg)
@@ -434,8 +385,20 @@ PewDiePie is an apt example of earning fortunes by uploading videos and being po
      data-full-width-responsive="true"></ins>
 
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-pro-tips-that-make-every-iphone-landscape-stand-out/"><u>[New] 2024 Approved Pro Tips That Make Every iPhone Landscape Stand Out</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-unlock-creative-potential-editing-videos-via-windows-photos-and-story-remix/"><u>[New] 2024 Approved Unlock Creative Potential Editing Videos via Windows Photos and Story Remix</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-expert-suggestions-prime-frame-addition-software-2023-update-for-2024/"><u>[New] Expert Suggestions - Prime Frame Addition Software, 2023 Update for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-seamless-switching-between-screens-with-chromes-pip/"><u>[New] In 2024, Seamless Switching Between Screens with Chrome's PIP</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-pictures-from-yuva-2-pro-by-fonelab-android-recover-pictures/"><u>Easy steps to recover deleted pictures from Yuva 2 Pro.</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/from-concept-to-platform-crafting-engaging-fb-content/"><u>From Concept to Platform Crafting Engaging FB Content</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-poco-x6-pro-phone-without-any-data-loss-by-drfone-android/"><u>How to Unlock Poco X6 Pro Phone without Any Data Loss</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-mirroring-tecno-spark-20-pro-drfone-by-drfone-android/"><u>In 2024, How to Screen Mirroring Tecno Spark 20 Pro? | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-personalize-your-youtube-experience-with-altered-rhythms/"><u>In 2024, Personalize Your YouTube Experience with Altered Rhythms</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/mastering-videos-top-windows-phones-video-apps-for-2024/"><u>Mastering Videos Top Windows Phones Video Apps for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/secrets-to-prolonging-gopros-energy-capacity/"><u>Secrets to Prolonging GoPro's Energy Capacity</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/streamline-sharing-process-youtube-to-facebook-tips-for-2024/"><u>Streamline Sharing Process YouTube to Facebook Tips for 2024</u></a></li>
+<li><a href="https://techidaily.com/undeleted-lost-videos-from-u23-by-fonelab-android-recover-video/"><u>Undeleted lost videos from U23</u></a></li>
+</ul></div>
 

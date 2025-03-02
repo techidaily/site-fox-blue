@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Flipping Photo Lightness for an Alternate Look for 2024"
-date: 2025-02-04T21:29:32.650Z
-updated: 2025-02-10T16:25:29.929Z
+date: 2025-02-24T16:33:20.482Z
+updated: 2025-03-02T16:49:17.501Z
 tags: 
   - screen-recording
   - ai video
@@ -28,10 +28,6 @@ thumbnail: https://thmb.techidaily.com/992704407ab581931890c09cce338091c04f10f6e
 
 During the age of analog photography, the image negative was one of the most important artifacts for photographers, because it enabled them to reproduce a picture as many times as they wanted. Years later photographers invert colors in photos for mostly aesthetical reasons since only a small number of photographers still take photos with analog cameras. Regardless of the type of camera you’re using, inverting colors in a photo is a straightforward process that doesn’t require too much effort. In this article, we are going to take you through some of the best options on Mac and PC computers, as well as Android phones and iPhones that let you invert colors in just a few easy steps. So, let’s dive in.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Make Image Negative of a Digital Photo?
 
 The Invert option is commonly used to invert a scanned film negative to color, but this doesn’t’ mean that you can’t use this effect in very different contexts. However, the extensive and unselective use of this effect can ruin a perfect photo. Here’s how you can invert colors in your photos.
@@ -43,10 +39,6 @@ The Invert option is commonly used to invert a scanned film negative to color, b
 **Compatibility:** Windows
 
 ![ Invert image color](https://images.wondershare.com/filmora/article-images/ms-paint-invert-color.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Open the photo you’d like to invert with MS Paint, and then choose the **Select All option** from the **Select Menu**. **Right-click** on the picture and click on the **Invert Color** option. The colors in the image will be automatically inverted, so you can then head over to the **Save As submenu** in the **File menu** to select the file format of the new photo.
 
@@ -62,17 +54,9 @@ Besides creating image negatives, the Preview app lets you convert image files a
 
 ![ Invert image color](https://images.wondershare.com/filmora/article-images/mac-preview-invert-color-original.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Clicking on the **Adjust Color feature** will bring up the color adjustment panel that contains **Black Level and White Level** sliders. To invert the colors in the photo you have to drag the **Black Level slider to the right** and the **White Level Slider to the left.**
 
 ![ Invert image color](https://images.wondershare.com/filmora/article-images/mac-preview-invert-color.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 You can experiment with the values you assign to each of these sliders in order to get a more visually pleasing result.
 
@@ -103,10 +87,6 @@ In addition to a rich selection of effects you can apply to images, tjshome also
 **Compatibility:** macOS, Windows
 
 ![ Covert color](https://images.wondershare.com/filmora/article-images/ps-convert-color.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 After you open a photo in Adobe Photoshop, you can invert it in just a few clicks. **Expand the Image menu** and the go-to **Adjustments submenu** where you can find the **Invert option**. Alternatively, you can use the **CTRL+I** shortcut if you are a PC user or a **Command+I** if you are using a Mac computer. Moreover, Photoshop lets you **mask parts of a photo** which enables you to precisely define an area of an image you’d like to invert. Other photo editing tools like **Curves, Brightness/Contrast or Photo Filter** can make an image with inverted colors look more convincing. Keep in mind that working with multiple layers requires a lot of patience because failing to mask an object properly can produce some unwanted side issues.
 
@@ -167,20 +147,24 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/new-2024-approved-breakdown-of-leading-free-video-conferencing-services-for-commercial-and-academic-use/"><u>[New] 2024 Approved Breakdown of Leading Free Video Conferencing Services for Commercial and Academic Use</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-decoding-the-mysteries-of-outdated-facebook-sharing-pcmobile-style-for-2024/"><u>[New] Decoding the Mysteries of Outdated Facebook Sharing, PC/Mobile Style for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-drone-photography-showdown-dji-spark-vs-hero6-black-for-2024/"><u>[New] Drone Photography Showdown DJI Spark Vs Hero6 Black for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-decode-audio-formats-your-complete-srt-to-other-file-guide/"><u>[New] In 2024, Decode Audio Formats Your Complete SRT to Other File Guide</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-perfect-iphone-photos-quick-editing-hacks/"><u>[New] In 2024, Perfect iPhone Photos Quick Editing Hacks</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-turning-youtube-sounds-into-text-an-in-depth-no-cost-course/"><u>[New] Turning YouTube Sounds Into Text An In-Depth, No-Cost Course</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-witticisms-and-whimsy-the-vhs-perspective-on-goofy/"><u>2024 Approved 'Witticisms and Whimsy' - The VHS Perspective on Goofy</u></a></li>
-<li><a href="https://howto.techidaily.com/best-methods-for-oppo-reno-11-pro-5g-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Best Methods for Oppo Reno 11 Pro 5G Wont Turn On | Dr.fone</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/configuring-pc-manager-in-windows-11/"><u>Configuring PC Manager in Windows 11</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/cing-video-soundtracks-on-digital-platforms-for-2024/"><u>Enhancing Video Soundtracks on Digital Platforms for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-image-innovation-at-its-peak-8-leaders-in-photogridding/"><u>In 2024, Image Innovation at Its Peak 8 Leaders in Photogridding</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-top-10-best-meme-templates/"><u>In 2024, Top 10 Best Meme Templates</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/the-ultimate-tool-for-video-cuts-full-review-of-vivacut-24-edition/"><u>The Ultimate Tool for Video Cuts Full Review of VivaCut '24 Edition</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/unleashing-the-power-of-hashtags-for-instagram-success-for-2024/"><u>Unleashing the Power of Hashtags for Instagram Success for 2024</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/updated-2024-approved-timecode-made-easy-10-top-calculators-for-online-mobile-and-desktop/"><u>Updated 2024 Approved Timecode Made Easy 10 Top Calculators for Online, Mobile, and Desktop</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-deep-windows-11-secrets-effortless-media-upload-made-simple-for-2024/"><u>[New] Deep Windows 11 Secrets Effortless Media Upload Made Simple for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-the-comprehensive-guide-to-dji-phantom-3-testing/"><u>[New] In 2024, The Comprehensive Guide to DJI Phantom 3 Testing</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-step-into-the-world-of-text-animation-14-must-see-examples/"><u>[New] Step Into the World of Text Animation 14 Must-See Examples</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-the-clip-connoisseurs-essential-list-of-retro-vhs-effects/"><u>[New] The Clip Connoisseur's Essential List of Retro VHS Effects</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-dynamic-action-photography-on-your-iphone-for-2024/"><u>[Updated] Dynamic Action Photography on Your iPhone for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-convenient-chromebook-shot-techniques-method-4/"><u>[Updated] In 2024, Convenient Chromebook Shot Techniques (Method #4)</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-revealing-the-best-in-class-splitcams-videography-edge-for-2024/"><u>[Updated] Revealing the Best in Class SplitCam's Videography Edge for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-starting-off-right-must-haves-for-youtube-enthusiasts/"><u>[Updated] Starting Off Right Must-Haves for YouTube Enthusiasts</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-transforming-images-via-look-up-table-techniques-in-adobes-image-editor/"><u>2024 Approved Transforming Images via Look-Up Table Techniques in Adobe's Image Editor</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/elevating-your-viewing-experience-with-benq-sw320-monitor-for-2024/"><u>Elevating Your Viewing Experience with BenQ SW320 Monitor for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-enhancing-spotify-sound-speed-with-secure-approaches/"><u>In 2024, Enhancing Spotify Sound Speed with Secure Approaches</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-life360-shows-wrong-location-on-oppo-reno-11-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Life360 Shows Wrong Location On Oppo Reno 11 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-precision-polishing-insights-from-vlle-on-apps/"><u>In 2024, Precision Polishing Insights From VLLE on Apps</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-tailor-sharespread-content-adobe-memes/"><u>In 2024, Tailor Sharespread Content Adobe Memes</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-2024-approved-the-best-motion-sensing-apps-for-android-iphone-and-ipad/"><u>New 2024 Approved The Best Motion Sensing Apps for Android, iPhone, and iPad</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/photographic-precision-the-ultimate-list-of-photo-framing-software-for-2024/"><u>Photographic Precision The Ultimate List of Photo Framing Software for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/premium-visual-enhancer-cutting-edge-conversion/"><u>Premium Visual Enhancer Cutting-Edge Conversion</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/the-filmmakers-handbook-for-professional-gopro-videographers-for-2024/"><u>The Filmmaker's Handbook for Professional Gopro Videographers for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/top-10-fixes-for-phone-keep-disconnecting-from-wi-fi-on-samsung-galaxy-a14-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 10 Fixes for Phone Keep Disconnecting from Wi-Fi On Samsung Galaxy A14 5G | Dr.fone</u></a></li>
 </ul></div>
 

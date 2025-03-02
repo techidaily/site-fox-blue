@@ -1,7 +1,7 @@
 ---
 title: "[New] The Ultimate Guide to Scrolling Through Engaging YouTube Remarks"
-date: 2025-01-28T16:18:51.165Z
-updated: 2025-01-30T02:57:23.263Z
+date: 2025-02-23T16:06:14.327Z
+updated: 2025-03-02T16:03:23.771Z
 tags: 
   - screen-recording
   - ai video
@@ -92,10 +92,6 @@ Step2 Scroll down a little bit and click the **More** button.
 
 ![your youtube dashboard more](https://images.wondershare.com/filmora/article-images/2022/11/your-youtube-dashboard-more.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step3 Click the **Comments** section.
 
 ![click comments your youtube dashboard](https://images.wondershare.com/filmora/article-images/2022/11/click-comments-your-youtube-dashboard.jpg)
@@ -117,10 +113,6 @@ Step5 Scroll down and find **Comment Likes and Dislikes on YouTube** section. Cl
 Now you will see the videos you liked or disliked and also the comments you liked or disliked, including the date when you liked or disliked the video/comment.
 
 ![date likes videos youtube](https://images.wondershare.com/filmora/article-images/2022/11/date-likes-videos-youtube.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 This article tells you that you can't see who liked or disliked a comment, but you can see how many likes or dislikes a comment got. Then go to any video you want, scroll down to the comment section, and see how many likes or dislikes a comment received.
 
@@ -178,14 +170,6 @@ Additionally, video creators can manually highlight commenters to mark them for 
 
 ![](https://images.wondershare.com/assets/images-common/box-filmora-x.png) ![](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-9-square.svg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to See Liked Comments on YouTube?
 
 YouTube is a service that is available for free, and it may be a terrific place for teenagers to find interest. Many young people use YouTube to watch comedy shows, how-to videos, recipes, hacks, and music videos. Teenagers also use the video-sharing platform to subscribe to other YouTubers and famous personalities and to follow their favorite vloggers (video bloggers).
@@ -204,17 +188,9 @@ Step1 Click on your Google Account icon and find **Your data in YouTube**.
 
 ![find your data in youtube](https://images.wondershare.com/filmora/article-images/2022/11/find-your-data-in-youtube.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step2 Scroll down a little bit and click the **More** button.
 
 ![your youtube dashboard more](https://images.wondershare.com/filmora/article-images/2022/11/your-youtube-dashboard-more.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step3 Click the **Comments** section.
 
@@ -224,27 +200,15 @@ Now you will see your comment history, including the date when you commented on 
 
 ![your youtube comments date](https://images.wondershare.com/filmora/article-images/2022/11/your-youtube-comments-date.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 To see videos/comments you liked or disliked, please follow these steps as continuation:
 
 Step4 In the **Google My Activity** tab, click **Other activity**.
 
 ![other activity youtube comments](https://images.wondershare.com/filmora/article-images/2022/11/other-activity-youtube-comments.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step5 Scroll down and find **Comment Likes and Dislikes on YouTube** section. Click **View Comment Likes and Dislikes**.
 
 ![your comment likes and dislikes](https://images.wondershare.com/filmora/article-images/2022/11/your-comment-likes-and-dislikes.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Now you will see the videos you liked or disliked and also the comments you liked or disliked, including the date when you liked or disliked the video/comment.
 
@@ -326,19 +290,18 @@ Additionally, video creators can manually highlight commenters to mark them for 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-the-ultimate-immersion-guide-to-lgs-360-vr-headset/"><u>[New] The Ultimate Immersion Guide to LG's 360 VR Headset</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-unleashing-full-potential-nikon-1j5-in-4k-videography-for-2024/"><u>[New] Unleashing Full Potential Nikon 1J5 in 4K Videography for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-best-practices-for-safe-no-cost-vlc-player-download-on-apple-systems/"><u>[Updated] In 2024, Best Practices for Safe, No-Cost VLC Player Download on Apple Systems</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-revive-the-experience-essential-tips-for-lost-iphone-x-users/"><u>[Updated] In 2024, Revive the Experience Essential Tips for Lost iPhone X Users</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-tweet-trailblazers-1-10-social-sensations/"><u>[Updated] In 2024, Tweet Trailblazers #1-#10 Social Sensations</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-innovating-everyday-life-top-10-vr-accessory-guide-for-2024/"><u>[Updated] Innovating Everyday Life Top 10 VR Accessory Guide for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-superior-convert-mp4-to-facebook-platforms/"><u>2024 Approved Superior Convert MP4 to Facebook Platforms</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/achieving-accuracy-and-artistry-in-altered-image-tones-for-2024/"><u>Achieving Accuracy and Artistry in Altered Image Tones for 2024</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/in-2024-choosing-a-streaming-powerhouse-obs-or-wirecast/"><u>In 2024, Choosing a Streaming Powerhouse OBS or Wirecast?</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/in-2024-efficiency-in-echoes-aural-recorded-images/"><u>In 2024, Efficiency in Echoes Aural Recorded Images</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/overcoming-windows-steam-disconnect-issues/"><u>Overcoming Windows Steam Disconnect Issues</u></a></li>
-<li><a href="https://article-helps.techidaily.com/the-drone-evolution-a-deep-look-at-djis-mavic-pro/"><u>The Drone Evolution A Deep Look at DJI's Mavic Pro</u></a></li>
-<li><a href="https://fox-sys.techidaily.com/ultimate-tricks-for-windows-disk-maintenance-enabling-or-disabling-chkdsk-on-boot-the-complete-guide/"><u>Ultimate Tricks for Windows Disk Maintenance: Enabling or Disabling Chkdsk on Boot - The Complete Guide</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/unveiling-gadgets-with-tom-in-depth-hardware-review-hub/"><u>Unveiling Gadgets with Tom: In-Depth Hardware Review Hub</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-a-professionals-secret-efficiently-incorporating-luts-into-premiere-pro-for-2024/"><u>[New] A Professional's Secret Efficiently Incorporating LUTs Into Premiere Pro for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-boost-instagram-growth-with-advanced-analysis-platforms/"><u>[New] In 2024, Boost Instagram Growth with Advanced Analysis Platforms</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-maximize-your-snapshots-on-android-for-2024/"><u>[New] Maximize Your Snapshots on Android for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-sticker-creation-from-gifs-a-step-by-step-tutorial-for-discs-and-chats/"><u>[New] Sticker Creation From GIFs A Step-by-Step Tutorial for Discs and Chats</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-how-to-set-up-zoom-video-meeting/"><u>[Updated] How to Set up Zoom Video Meeting</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-laptoppc-editors-steer-clear-of-inshot/"><u>[Updated] In 2024, Laptop/PC Editors Steer Clear of Inshot</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-most-valuable-maps-top-treasures-in-terraria/"><u>[Updated] In 2024, Most Valuable Maps Top Treasures in Terraria</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-which-is-superior-in-media-management-vlc-or-mx-for-2024/"><u>[Updated] Which Is Superior in Media Management VLC or MX for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/enhanced-memory-features-in-chatgpt-plus-unveiled/"><u>Enhanced Memory Features in ChatGPT Plus Unveiled</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-top-10-must-have-features-in-drone-gimbals/"><u>In 2024, Top 10 Must-Have Features in Drone Gimbals</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-unlocking-successful-srt-shipping-out-of-premiere/"><u>In 2024, Unlocking Successful SRT Shipping Out of Premiere</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/resolved-issue-with-extended-wait-time-in-semaphore-system-errors-error-code-0x80070079/"><u>Resolved: Issue with Extended Wait Time in Semaphore System Errors (Error Code 0X80070079)</u></a></li>
+<li><a href="https://win-wonderful.techidaily.com/yl-computing-expert-advice-how-to-easily-include-pdf-documents-in-outgoing-emails-on-windows-systems/"><u>YL Computing Expert Advice: How to Easily Include PDF Documents in Outgoing Emails on Windows Systems</u></a></li>
 </ul></div>
 

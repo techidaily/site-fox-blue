@@ -1,7 +1,7 @@
 ---
 title: "Techniques for Reducing Sound Amplitude with Lumafusion for 2024"
-date: 2025-01-12T17:23:13.550Z
-updated: 2025-01-16T18:14:19.219Z
+date: 2025-02-26T16:48:09.792Z
+updated: 2025-03-02T16:46:46.001Z
 tags: 
   - screen-recording
   - ai video
@@ -27,10 +27,6 @@ Video editors should give LumaFusion a try if they want to use its compact LumaF
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1\. How to Fade Audio with LumaFusion
 
 There are several capabilities in Luma Fusion that make precise editing possible, including ones that we haven't seen in other mobile editing tools, such keyframing for all effects. Beginning filmmakers may use LumaFusion to discover their voice via editing. Their work may be moved to a desktop software after their abilities have grown on mobile. To start fading audio using Luma Fusion, follow these steps:
@@ -48,10 +44,6 @@ Step3 From the choices, choose the Cross Dissolve (Fade) transition. The transit
 ![fade audio in luma fusion](https://images.wondershare.com/filmora/article-images/2022/07/fade-audio-in-luma-fusion.jpg)
 
 Beyond simple editing, LumaFusion excels in enhancing projects with a wide variety of built-in effects, transitions, titles, and color correction. It also has a limited (but excellent) collection of royalty-free music. Finally, LumaFusion Project Packages are a terrific solution to regularly backup a project for security or to complete altering it. After choosing Export, choose the Project Package from the list.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2\. LumaFusion Alternative Way to Fade Audio in Video
 
@@ -97,10 +89,6 @@ Go to Clip Defaults to do that. You may change the Title and Transition lengths 
 
 There are several eye-catching transitions included with LumaFusion. The transition may simply be dragged into the timeline and placed between the two pertinent segments. You may modify the duration of it after it's on the timeline in the same way that you would any other clip. Simply choose Transitions from the Sources box, that's it.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 3\. How to you split audio and video in LumaFusion?
 
 Within the timeline, tap anywhere and move the mouse left or right to divide a clip in half. The audio from your clip may then be separated in the timeline. To do so, choose the audio channel and then click the pencil-shaped edit button at the bottom of the screen. This will display a variety of choices, including tools for pan, distortion, and volume. The audio editing features in LumaFusion are virtually as spectacular as the visual options—and just as intimidating.
@@ -131,15 +119,7 @@ After finishing the method for editing audio in Filmora, click the Export button
 
 In that window, you can select the MP3 format in the format customization box to continue with storing your file to your system. After making any necessary adjustments to the audio file, click the Export button below, which will ultimately direct you to the area on your PC where you want to store the audio.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 3\. Related FAQs about LumaFusion
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 1\. How do you fade in a title LumaFusion?
 
@@ -148,10 +128,6 @@ Go to Clip Defaults to do that. You may change the Title and Transition lengths 
 ### 2\. How do you do transitions in LumaFusion?
 
 There are several eye-catching transitions included with LumaFusion. The transition may simply be dragged into the timeline and placed between the two pertinent segments. You may modify the duration of it after it's on the timeline in the same way that you would any other clip. Simply choose Transitions from the Sources box, that's it.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 3\. How to you split audio and video in LumaFusion?
 
@@ -181,22 +157,18 @@ Within the timeline, tap anywhere and move the mouse left or right to divide a c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-10-top-rated-digital-video-cutting-tools/"><u>[New] 2024 Approved 10 Top-Rated Digital Video Cutting Tools</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-silverleaf-studio-exploring-lightroom-substitutes/"><u>[New] 2024 Approved Silverleaf Studio Exploring Lightroom Substitutes</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/astering-video-edits-post-upload-techniques-for-2024/"><u>[New] Mastering Video Edits Post-Upload Techniques for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-perfecting-visual-output-incorporating-luts-into-your-ae-projects-for-2024/"><u>[New] Perfecting Visual Output Incorporating LUTs Into Your AE Projects for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-the-photographers-companion-to-master-color-correction-top-11-for-2024/"><u>[New] The Photographer's Companion to Master Color Correction (Top 11) for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-demystifying-srt-to-sub-clear-practical-solutions/"><u>[Updated] 2024 Approved Demystifying SRT to SUB Clear, Practical Solutions</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-full-guide-to-adobe-cloud-storage-and-best-alternatives/"><u>[Updated] 2024 Approved Full Guide to Adobe Cloud Storage and Best Alternatives</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-how-to-create-a-memorable-podcast-name-from-brainstorming-to-execution/"><u>[Updated] In 2024, How To Create a Memorable Podcast Name From Brainstorming to Execution</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-the-guide-to-effortless-acquisition-of-exquisite-royalty-free-images/"><u>[Updated] The Guide to Effortless Acquisition of Exquisite Royalty-Free Images</u></a></li>
-<li><a href="https://win-bits.techidaily.com/are-ai-powered-computers-right-for-your-needs-insights-and-reviews-from-tech-experts/"><u>Are AI-Powered Computers Right for Your Needs? Insights and Reviews From Tech Experts.</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/how-to-swiftly-attach-a-soundtrack-to-your-mp4-file-in-minutes/"><u>How to Swiftly Attach a Soundtrack to Your MP4 File in Minutes</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-best-anti-tracker-software-for-nokia-c32-drfone-by-drfone-virtual-android/"><u>In 2024, Best Anti Tracker Software For Nokia C32 | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-driving-income-through-youtube-shorts-crucial-elements-and-earnings-potential/"><u>In 2024, Driving Income Through YouTube Shorts Crucial Elements and Earnings Potential</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-can-i-catch-the-regional-pokemon-without-traveling-on-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Catch the Regional Pokémon without Traveling On Honor Magic5 Ultimate | Dr.fone</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-next-level-experience-in-metaverse-with-top-8-accessories/"><u>In 2024, Next-Level Experience in Metaverse with Top 8 Accessories</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/leading-open-source-image-synthesis-programs/"><u>Leading Open-Source Image Synthesis Programs</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/understanding-turings-assessment-and-its-competitive-horizon/"><u>Understanding Turing's Assessment & Its Competitive Horizon</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-adding-drama-to-videos-strikethrough-for-emphasis-and-clarity/"><u>[New] In 2024, Adding Drama to Videos Strikethrough for Emphasis and Clarity</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-elite-guide-from-concept-to-compelling-fullscreen-edits-in-premiere-pro/"><u>[New] In 2024, Elite Guide From Concept to Compelling Fullscreen Edits in Premiere Pro</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-ultimate-virtual-reality-controller-guide/"><u>[New] Ultimate Virtual Reality Controller Guide</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-leveraging-yt-playlist-features-for-site-enhancement/"><u>[Updated] 2024 Approved Leveraging YT Playlist Features for Site Enhancement</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-tips-and-tricks-for-clearing-cluttered-backdrops-in-figma/"><u>[Updated] 2024 Approved Tips and Tricks for Clearing Cluttered Backdrops in Figma</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-filmmaking-basics-top-action-cameras-reviewed-in-23-for-2024/"><u>[Updated] Filmmaking Basics Top Action Cameras Reviewed in '23 for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-navigating-to-submillion-territory-on-youtube/"><u>2024 Approved Navigating to Submillion Territory on YouTube</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/aircraft-land-sea-or-air-not-in-excess-of-two-tons-weight/"><u>Aircraft (Land, Sea or Air) Not in Excess of Two Tons Weight</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-with-location-spoofer-on-vivo-y27-4g-drfone-by-drfone-virtual-android/"><u>How To Simulate GPS Movement With Location Spoofer On Vivo Y27 4G? | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-captivating-images-with-intentional-leading-lines-iphone/"><u>In 2024, Captivating Images with Intentional Leading Lines (iPhone)</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/innovative-ways-to-log-ps3-competitive-sessions-for-2024/"><u>Innovative Ways to Log PS3 Competitive Sessions for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/inside-window-11s-power-saving-secrets-for-2024/"><u>Inside Window 11'S Power-Saving Secrets for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/ultimate-guide-to-navigating-and-using-the-internet-archives-wayback-machine/"><u>Ultimate Guide to Navigating and Using the Internet Archive's Wayback Machine</u></a></li>
 </ul></div>
 

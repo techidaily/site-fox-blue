@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, A Century of Sparks  The 10 Most Voted on Reddit Posts\""
-date: 2025-02-07T03:33:59.178Z
-updated: 2025-02-11T09:27:39.084Z
+date: 2025-02-24T16:25:51.598Z
+updated: 2025-03-02T16:31:16.494Z
 tags: 
   - screen-recording
   - ai video
@@ -102,10 +102,6 @@ You understand the pain if you've gone through something like this.
 
 ![all news anchors say the same thing reddit](https://images.wondershare.com/filmora/article-images/2023/01/news-anchors.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 293k users voted on this post, revealing what it looks like when a single company owns dozens of local news stations.
 
 The phrase "this is extremely dangerous to our democracy" is repeated repeatedly in every news broadcast from these news stations.
@@ -126,10 +122,6 @@ That's all there is to it. No politics, no serious issues, and so on. Just a fro
 
 ![battle for net neutrality reddit post](https://images.wondershare.com/filmora/article-images/2023/01/battle-for-net-neutrality.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 This is another most upvoted Reddit post that encouraged over 180k users to join the battle for net neutrality. Again, 86% of these users are upvoters who agree with the statements in the post.
 
 It's a post with a title and a link to a site where anyone can join the battle. The goal - prevent Internet Service Providers from blocking apps and websites.
@@ -138,19 +130,11 @@ It's a post with a title and a link to a site where anyone can join the battle. 
 
 ![reddit post of deangelo juggling balls the office](https://images.wondershare.com/filmora/article-images/2023/01/deangelo-juggling-balls-on-the-office.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Millions of fans worldwide loved The Office with Steve Carell, a.k.a Michael Scott. One of the funniest moments was when Will Ferrell juggled imaginary balls in the Dunder Mifflin office.
 
 Well, a Reddit user made an edit of this clip and now it looks as if Will juggled four balls... then five.
 
 The post has a 98% upvote rate with 170k voters in total. The reason it's so popular is that The Office fans can't get enough of this show. Many say they never stop watching short clips of the show on Youtube and Reddit after finishing the entire series.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 10\. [Brave Soldier Buried Amongst His Devoted Troops (/r/todayilearned)](https://www.reddit.com/r/todayilearned/comments/7pbzcb/til%5Fafter%5Fcol%5Fshaw%5Fdied%5Fin%5Fbattle%5Fconfederates/)
 
@@ -170,10 +154,6 @@ The Reddit post has over 4k comments, many of which feature thousands of upvotes
 
 Apart from what been introduced to you above, we also prepared a video about the most upvoted posts on Reddit. If you have any interests, you can watch it and get a deeper understanding of why these posts are so popular.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 Some of these highly upvoted Reddit posts are funny, some serious, and some slightly political. But it just goes to show what type of content has the potential to blow up and become viral at any given point in time. You can use these insights to find trending posts or create a Reddit marketing strategy for your business.
@@ -185,10 +165,6 @@ Whatever you decide to do, feel free to reflect on these posts and enjoy reading
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
 10 Most Upvoted Reddit Posts of All Time
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 1\. [The Senate (/r/movies)](https://www.reddit.com/r/movies/comments/62sjuh/the%5Fsenate%5Fupvote%5Fthis%5Fso%5Fthat%5Fpeople%5Fsee%5Fit%5Fwhen/)
 
@@ -223,10 +199,6 @@ If you know the famous song "Never Gonna Give You Up, " you know who this is. We
 ### 4\. [NYC Taxi Drivers Calendar (/r/funny)](https://www.reddit.com/r/funny/comments/7mjw12/my%5Fcab%5Fdriver%5Ftonight%5Fwas%5Fso%5Fexcited%5Fto%5Fshare/)
 
 ![nyc taxi driver calendar](https://images.wondershare.com/filmora/article-images/2023/01/new-york-taxi-driver.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Another funny post in the official /r/funny subreddit itself. At this time, this one has 308k votes, 97% of which are Upvotes.
 
@@ -270,10 +242,6 @@ That's all there is to it. No politics, no serious issues, and so on. Just a fro
 
 ![battle for net neutrality reddit post](https://images.wondershare.com/filmora/article-images/2023/01/battle-for-net-neutrality.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 This is another most upvoted Reddit post that encouraged over 180k users to join the battle for net neutrality. Again, 86% of these users are upvoters who agree with the statements in the post.
 
 It's a post with a title and a link to a site where anyone can join the battle. The goal - prevent Internet Service Providers from blocking apps and websites.
@@ -292,10 +260,6 @@ The post has a 98% upvote rate with 170k voters in total. The reason it's so pop
 
 ![reddit post of soldier and his fathers message](https://images.wondershare.com/filmora/article-images/2023/01/brave-soldier-buried-with-his-devoted-troops-reddit.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Finally, this is an inspiring and heartwarming post about a brave troop.
 
 At this time, the post has 155k votes of which 93% are upvotes. Readers love the post because it shows a true story during a war. None of us can resist such tales.
@@ -309,10 +273,6 @@ The Reddit post has over 4k comments, many of which feature thousands of upvotes
 ## Video – Top 10 Most Upvoted Posts on Reddit
 
 Apart from what been introduced to you above, we also prepared a video about the most upvoted posts on Reddit. If you have any interests, you can watch it and get a deeper understanding of why these posts are so popular.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -348,19 +308,17 @@ Whatever you decide to do, feel free to reflect on these posts and enjoy reading
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-exclusive-list-of-premium-screen-free-gaming-on-android-devices/"><u>[New] 2024 Approved Exclusive List of Premium Screen-Free Gaming on Android Devices</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-high-flying-brain-games-top-11-knowledge-channels/"><u>[New] High-Flying Brain Games Top 11 Knowledge Channels</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-holistic-capture-vs-structured-visual-space-for-2024/"><u>[New] Holistic Capture vs Structured Visual Space for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-dial-up-delight-your-guide-to-using-fun-lenses-in-snapchat/"><u>[New] In 2024, Dial Up Delight Your Guide to Using Fun Lenses in Snapchat</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-navigating-color-grading-using-luts-to-refine-your-work-in-ae/"><u>[New] In 2024, Navigating Color Grading Using LUTs to Refine Your Work in AE</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-obs-vs-twitch-studio-which-one-is-better/"><u>[New] In 2024, OBS Vs Twitch Studio Which One Is Better?</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-ultimate-guide-to-selecting-best-windows-screen-capture-tools/"><u>[New] In 2024, Ultimate Guide to Selecting Best Windows Screen Capture Tools</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-demystifying-the-advanced-features-in-vlc/"><u>[Updated] 2024 Approved Demystifying the Advanced Features in VLC</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-crafting-your-path-to-optimal-hdr-camera-selection/"><u>[Updated] In 2024, Crafting Your Path to Optimal HDR Camera Selection</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-iphone-photography-secrets-unveiled-for-2024/"><u>[Updated] IPhone Photography Secrets Unveiled for 2024</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/enregistrer-des-photos-sur-iphone-a-laide-dun-hdd-extern-au-sous-windows-11-ou-10-guide-complet/"><u>Enregistrer Des Photos Sur iPhone À L'aide D'un HDD Extern Au Sous Windows 11 Ou 10 - Guide Complet</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-comparing-content-formats-podcasts-versus-youtube/"><u>In 2024, Comparing Content Formats Podcasts Versus YouTube</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-network-locked-sim-card-inserted-on-your-motorola-g54-5g-phone-unlock-it-now-by-drfone-android/"><u>In 2024, Network Locked SIM Card Inserted On Your Motorola G54 5G Phone? Unlock It Now</u></a></li>
-<li><a href="https://facebook.techidaily.com/unexpected-discovery-your-contacts-online-on-facebook/"><u>Unexpected Discovery: Your Contacts Online on Facebook?</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-master-artistic-freedom-with-the-top-10-mac-drawings/"><u>[New] 2024 Approved Master Artistic Freedom with the Top 10 Mac Drawings</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-2023s-best-replacements-for-samsung-gear-360/"><u>[New] In 2024, 2023'S Best Replacements for Samsung Gear 360</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-analyzing-aurora-hdr-quality/"><u>[New] In 2024, Analyzing Aurora HDR Quality</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-timeless-classics-most-iconic-anime-openers-for-2024/"><u>[New] Timeless Classics Most Iconic Anime Openers for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-launch-your-wealth-journey-on-periscope-platform/"><u>[Updated] 2024 Approved Launch Your Wealth Journey on Periscope Platform</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-basic-strategy-revamping-fishy-windowspeak/"><u>[Updated] Basic Strategy Revamping Fishy Windowspeak</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-how-to-create-time-lapse-video-with-canon-camera/"><u>[Updated] How to Create Time-Lapse Video with Canon Camera</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-text-transformation-tricks-for-media/"><u>[Updated] In 2024, Text Transformation Tricks for Media</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-audio-memo-fundamentals-a-complete-guidebook/"><u>2024 Approved Audio Memo Fundamentals A Complete Guidebook</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/1723010659568-assassins-creed-valhalla-top-tricks-for-immediate-performance-boost/"><u>Assassin's Creed: Valhalla - Top Tricks for Immediate Performance Boost</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/comparing-top-free-players-vlc-or-mpc/"><u>Comparing Top Free Players VLC or MPC?</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/how-to-recover-a-lost-or-inaccessible-ftd2xxdll-file-effectively/"><u>How to Recover a Lost or Inaccessible ftd2xx.dll File Effectively</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Infusing Realism in Spark AR Worlds via Application of LUTs\""
-date: 2025-02-04T08:51:56.486Z
-updated: 2025-02-11T12:24:18.809Z
+date: 2025-02-28T17:06:15.859Z
+updated: 2025-03-02T16:07:04.815Z
 tags: 
   - screen-recording
   - ai video
@@ -32,10 +32,6 @@ To create a color filter effect in [Spark AR](https://sparkar.facebook.com/ar-st
 To develop AR effects for mobile cameras, you can use the Mac and Windows augmented reality platform Spark AR Studio. Imagine it like Sketch or Photoshop for augmented reality. The color values of the camera texture are mapped to the x, y, and z coordinates of the location in the color LUT. This location contains a corresponding output color that is drawn over the scene to create a color gradient effect.
 
 ![create a color gradient effect](https://images.wondershare.com/filmora/article-images/2022/08/how-to-use-luts-in-spark-ar-1.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2\. How to use LUTs in Spark AR?
 
@@ -73,19 +69,11 @@ The patch graph that renders the color gradation effect looks like this:
 
 Here are the best free LUTs resources for Spark AR:
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1\. [Frost Zombie (Technical Showcase)](https://we.tl/t-1uj4wJKluG)
 
 Client filter pieces occasionally end up on the scrap heap. It was a poor Frost Zombie in this instance. Since this is one of my simpler filters, I felt it was okay to publish the build information. Four objects make up much of the scene: an EyeColor block, a custom canvas segmentation, a face mesh, and an emitter for the breath mist (my personal favorite). To show the layers used in generating the primary zombie texture, I also moved to Substance Painter. This is a demonstration of my methods rather than a step-by-step manual.
 
 ![frost zombie](https://images.wondershare.com/filmora/article-images/2022/08/how-to-use-luts-in-spark-ar-4.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\. Fur
 
@@ -106,33 +94,17 @@ Even while using large image sequences is frequently discouraged, you can still 
 
 ![shockwave](https://images.wondershare.com/filmora/article-images/2022/08/how-to-use-luts-in-spark-ar-6.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 4\. Transition Curves
 
 There are 11 distinct animation curves included with Spark AR in the Transition patch. Here is a helpful visual aid because it might be challenging to distinguish between a quartic and a quintic when working on a project. With the SDF circle doubled (to sharpen the edge) and inserted into the Patch Pack's alpha channel, the circles are likewise straightforward rectangles. Since RGB values are three times one, the object is white.
 
 ![transition curves](https://images.wondershare.com/filmora/article-images/2022/08/how-to-use-luts-in-spark-ar-7.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 5\. Realistic Smoke
 
 By adding smoke to a scene, you can easily add a lot of detail and realism. Nothing revolutionary is happening here. The particle emitter creates flat planes of smoke texture that are forced upward. The force slowly shifts left and right as seen in the patch editor. The Fade particle script (created by Josh Beckwith) enlarges the particles and fades them out at the same time.
 
 ![realistic smoke](https://images.wondershare.com/filmora/article-images/2022/08/how-to-use-luts-in-spark-ar-8.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 6\. Rainbow Glitter
 
@@ -174,20 +146,15 @@ Spark AR is an amazing website for LUTs and color grading. Whether you're a new 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-ditching-the-undesired-backdrop-the-path-less-cluttered/"><u>[New] Ditching the Undesired Backdrop The Path Less Cluttered</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-mastering-photo-editing-the-eraser-guide-in-psx/"><u>[New] Mastering Photo Editing The Eraser Guide in PSX</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-premier-picture-preservation-websites/"><u>[New] Premier Picture Preservation Websites</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-nanofilm-whiz/"><u>[Updated] 2024 Approved NanoFilm Whiz</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-downloading-luts-a-compreited-resource-for-ar-experts-for-2024/"><u>[Updated] Downloading LUTs A Compreited Resource for AR Experts for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-flix-fortune-hashtags-for-high-impact-low-length-video-content/"><u>[Updated] In 2024, Flix Fortune Hashtags for High Impact, Low-Length Video Content</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-unlimited-audio-processing-at-zero-cost/"><u>[Updated] In 2024, Unlimited Audio Processing at Zero Cost</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-mastering-windows-graphics-the-top-9-tools-for-capturing-animation-gifs-for-2024/"><u>[Updated] Mastering Windows Graphics The Top 9 Tools for Capturing Animation GIFs for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-miniature-movie-dialogue-draft-for-2024/"><u>[Updated] Miniature Movie Dialogue Draft for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-visualizing-vigor-motion-blur-on-faces-in-picsart/"><u>[Updated] Visualizing Vigor Motion Blur on Faces in Picsart</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/capturing-clarity-best-practices-for-iphone-photo-cropping-for-2024/"><u>Capturing Clarity Best Practices for iPhone Photo Cropping for 2024</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/download-fast-windows-compatible-usb-to-serial-cable-driver-tool/"><u>Download Fast: Windows-Compatible USB to Serial Cable Driver Tool</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/get-your-ricoh-mp-c3003-driver-installers-here/"><u>Get Your Ricoh MP C3003 Driver Installers Here</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/1715701057028-overwatch-gamers-record-like-a-pro/"><u>Overwatch Gamers, Record Like a Pro!</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/the-guide-to-growing-groups-of-great-guests-subscribers-on-youtube/"><u>The Guide to Growing Groups of Great Guests (Subscribers) on Youtube</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-optimal-strategies-for-youtube-to-mpeg-conversion/"><u>[New] Optimal Strategies for YouTube-to-MPEG Conversion</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-complete-guide-to-toolwiz-photography-software/"><u>[Updated] 2024 Approved Complete Guide to Toolwiz Photography Software</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-full-inspection-immersing-in-virtual-reality-with-gear-360/"><u>[Updated] In 2024, Full Inspection Immersing in Virtual Reality with Gear 360</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-lgs-gaming-monitor-review-the-future-of-4k-freesync/"><u>[Updated] LG’s Gaming Monitor Review - The Future of 4K FreeSync</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-how-to-grab-free-and-safe-vlc-with-minimal-risk-for-macos-users/"><u>2024 Approved How to Grab Free and Safe VLC with Minimal Risk for macOS Users</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-master-your-clips-on-mac-explore-our-top-5-snippers/"><u>2024 Approved Master Your Clips on Mac Explore Our Top 5 Snippers</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/te-your-contents-appeal-how-to-resize-youtube-thumbnails-right-for-2024/"><u>Elevate Your Content's Appeal How to Resize YouTube Thumbnails Right for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-fake-snapchat-location-without-jailbreak-on-motorola-g24-power-drfone-by-drfone-virtual-android/"><u>How to Fake Snapchat Location without Jailbreak On Motorola G24 Power | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-top-16-from-oneplus-nord-n30-5g-to-other-android-devices-data-transfer-apps-to-switch-phone-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Top 16 from OnePlus Nord N30 5G to Other Android Devices Data Transfer Apps to Switch Phone Easily | Dr.fone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/zebra-zp450-driver-downloading-and-updating-made-simple-follow-this-in-depth-stepwise-process/"><u>Zebra ZP450 Driver Downloading and Updating Made Simple: Follow This In-Depth, Stepwise Process</u></a></li>
 </ul></div>
 

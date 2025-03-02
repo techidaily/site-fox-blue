@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Photo Extraction Techniques for Windows 11 Videos"
-date: 2025-02-10T08:30:43.403Z
-updated: 2025-02-11T02:04:29.838Z
+date: 2025-02-25T16:49:59.769Z
+updated: 2025-03-02T16:23:27.148Z
 tags: 
   - screen-recording
   - ai video
@@ -52,10 +52,6 @@ Creating a living image:
 
 ![ save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/save-photo-microsoft-photos.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * Now, you can see the living picture by tapping ‘Play’ button.
 
 These photos are stored in the ‘Pictures’ folder of your computer having ‘LI’ appended file names. Now, it’s time to save the living image as photo on your computer using Photos app.
@@ -65,10 +61,6 @@ These photos are stored in the ‘Pictures’ folder of your computer having ‘
 
 ![save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/start-save-photos-from-video.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * This image will be saved as ‘LI\_Moment’ file in your Pictures folder by default.
 
 ## Part 2: Why I can’t save photo from video
@@ -77,17 +69,9 @@ In case, you are not able to save photos from video on Windows 10 Photos App. Th
 
 We are explaining the solutions here –
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1\. Check the update
 
 Click on ‘Start’ > ‘Settings’ > ‘Update & Security’ > ‘Windows Updates’ > ‘Check for Updates’ > ‘Update Available’. When update is available, go ahead and follow the prompts to get the update.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\. Sign in a different account in Microsoft Store
 
@@ -104,10 +88,6 @@ Here comes the guide –
 * See your mouse cursor appear like a blue crosshair. Hold down the mouse and drag to select the parts of the video you wish to shoot. While moving the mouse, you can see that the application window is covered with a blue border. You can capture the window by clicking there.
 
 ![save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/screenshot-take-photo.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * Once the image is captured, the editing tool bar is visible. It allows you to enhance the image to great extent.
 * Now, hit the ‘Save’ icon and get the image saved on your computer.
@@ -143,16 +123,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-inshots-competitors-for-pclaptop-editors/"><u>[New] 2024 Approved Inshot's Competitors for PC/Laptop Editors</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/new-2024-approved-top-10-tiktok-viral-videos-on-twitter/"><u>[New] 2024 Approved Top 10 TikTok Viral Videos on Twitter</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-bending-reality-a-short-history-of-virtual-space/"><u>[New] In 2024, Bending Reality A Short History of Virtual Space</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-in-2024-subtle-sound-reduction-tactics-with-garageband/"><u>[New] In 2024, Subtle Sound Reduction Tactics with Garageband</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-make-your-youtube-comments-more-interesting-with-emojis/"><u>[Updated] 2024 Approved Make Your Youtube Comments More Interesting with Emojis</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-vivacut-masterclass-a-complete-editor-guide/"><u>2024 Approved VivaCut Masterclass A Complete Editor Guide</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/affordable-action-cam-top-picks/"><u>Affordable Action Cam Top Picks</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/effortless-apk-setup-for-win-11-power-users/"><u>Effortless APK Setup for Win 11 Power Users</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-taking-flight-hubsans-latest-aerial-marvel-reviewed/"><u>In 2024, Taking Flight Hubsan's Latest Aerial Marvel Reviewed</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/pinnacle-portals-select-laptops-for-uhd-content-creation/"><u>Pinnacle Portals Select Laptops for UHD Content Creation</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/the-ultimate-guide-to-launching-hit-online-streams-for-2024/"><u>The Ultimate Guide to Launching Hit Online Streams for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-the-importance-of-b-roll-diversity-in-filmmaking/"><u>[New] 2024 Approved The Importance of B-Roll Diversity in Filmmaking</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-delving-into-premium-free-lut-world-a-meticulous-rundown-for-2024/"><u>[New] Delving Into Premium-Free LUT World A Meticulous Rundown for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-game-changing-screens-and-tvs-discover-the-best-for-your-xbox-series-x-for-2024/"><u>[New] Game-Changing Screens & TVs - Discover the Best For Your Xbox Series X for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-best-practices-for-advanced-ae-plug-ins/"><u>[Updated] 2024 Approved Best Practices for Advanced AE Plug-Ins</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-the-ultimate-guide-to-evaluating-and-enhancing-your-instream-ads-on-facebook/"><u>[Updated] 2024 Approved The Ultimate Guide to Evaluating & Enhancing Your Instream Ads on Facebook</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-charting-the-course-to-celebrity-the-9-instagram-techniques-you-must-learn-for-2024/"><u>[Updated] Charting the Course to Celebrity The #9 Instagram Techniques You Must Learn for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-how-to-achieve-inverted-movie-time-in-a-snap/"><u>[Updated] How to Achieve Inverted Movie Time in a Snap</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-mastering-motion-capture-top-gear-recommendations/"><u>[Updated] In 2024, Mastering Motion Capture - Top Gear Recommendations</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-small-scale-screenplay-idea-for-2024/"><u>[Updated] Small-Scale Screenplay Idea for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-the-circle-of-life-filming-iphone-videography-explained/"><u>[Updated] The Circle of Life Filming IPhone Videography Explained</u></a></li>
+<li><a href="https://windows11.techidaily.com/best-windows-11-weather-software-compared/"><u>Best Windows 11 Weather Software Compared</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/diving-deep-into-sonys-premium-49-inch-led-television-a-captivating-4k-smart-tv-evaluation/"><u>Diving Deep Into Sony's Premium 49-Inch LED Television: A Captivating 4K Smart TV Evaluation</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/exploring-top-videography-apps-for-enhanced-win11-experience/"><u>Exploring Top Videography Apps for Enhanced Win11 Experience</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-free-thumbnail-extract-from-youtube-videos-today/"><u>In 2024, Free Thumbnail Extract From YouTube Videos Today!</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/loves-anthem-top-10-songs-that-define-proposal-moments/"><u>Love's Anthem Top 10 Songs That Define Proposal Moments</u></a></li>
+<li><a href="https://games-able.techidaily.com/maximizing-gaming-and-productivity-which-upgrade-comes-first-cpu-or-gpu/"><u>Maximizing Gaming & Productivity: Which Upgrade Comes First, CPu or GPU?</u></a></li>
+<li><a href="https://location-social.techidaily.com/simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-realme-gt-5-pro-drfone-by-drfone-virtual-android/"><u>Simple and Effective Ways to Change Your Country on YouTube App Of your Realme GT 5 Pro | Dr.fone</u></a></li>
 </ul></div>
 

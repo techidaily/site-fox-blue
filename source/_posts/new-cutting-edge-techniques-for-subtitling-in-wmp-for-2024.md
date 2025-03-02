@@ -1,7 +1,7 @@
 ---
 title: "[New] Cutting Edge Techniques for Subtitling in WMP for 2024"
-date: 2025-02-08T08:33:11.330Z
-updated: 2025-02-11T08:45:47.748Z
+date: 2025-02-27T16:03:39.365Z
+updated: 2025-03-02T16:08:36.433Z
 tags: 
   - screen-recording
   - ai video
@@ -33,10 +33,6 @@ Windows Media Player is still maintaining its wide popularity among users from e
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Step by Step Guide
 
 The process of adding subtitles to video clips is quite simple; you need to follow these steps: First of all, you need to install Windows media player on your Personal Computer. Prefer to get the latest version, it is easily available over internet and can be downloaded and installed by beginners too. Once your software tool is ready on your system then proceed ahead.
@@ -45,27 +41,15 @@ The process of adding subtitles to video clips is quite simple; you need to foll
 
 ![ ](https://images.wondershare.com/filmora/article-images/subtitle-wmp-1.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 2:** Once you are done with the first step then simply open your Window Media Player and move to the Library Mode. Now switch to play, then Lyrics, captions and finally you will reach at subtitles. Hit this option and choose “On if Available”. The same option is also available in the Now Playing Mode where you simply need to right click and this option will appear in drop down menu.
 
 ![ ](https://images.wondershare.com/filmora/article-images/subtitle-wmp-2.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 3:** Now, it is time to download DirectVobSub codec and get it installed on your PC. This software is easily available in 32, 64 bit versions so you can easily access any of these. Simply install codec from this source; no need to work on configuration settings. Note that these codecs must be installed from a trusted source so that malware or virus attacks can be avoided.
 
 **Step 4:** Once you are done with step 3 then download Sharkoo7’s Advanced Codec from internet. Get it installed for Window Media Player and then open with 64 bit settings or 32 bit as per your device specifications. To open it, simply right click on icon and from drop down menu choose “Run as administrator”.
 
 ![ ](https://images.wondershare.com/filmora/article-images/subtitle-wmp-3.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 5:** Within very less time application will get opened with a fresh window on your system. Now move to tabs of different video file types then search for the option that says: “Disable Media Foundation for MP4/MKV and AVI etc”. Further, go to the swap tab and then disable window media foundation.
 
@@ -95,10 +79,6 @@ One more online platform for downloading wide range of subtitles and the best th
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -124,18 +104,18 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-how-to-start-join-or-schedule-a-zoom-meeting-android/"><u>[New] 2024 Approved How to Start, Join, or Schedule a Zoom Meeting Android</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-layers-of-cinematic-dialogue-design/"><u>[New] In 2024, Layers of Cinematic Dialogue Design</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-simplifying-age-verification-on-tiktok-accounts/"><u>[Updated] 2024 Approved Simplifying Age Verification on TikTok Accounts</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-convert-audio-online-mp3-to-youtube-live-upload-guide-for-2024/"><u>[Updated] Convert Audio Online MP3 to YouTube Live Upload Guide for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-explore-free-online-music-beat-detection-tools/"><u>[Updated] Explore Free Online Music Beat Detection Tools</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-expertise-amplified-10-must-know-canva-techniques/"><u>[Updated] In 2024, Expertise Amplified 10 Must-Know Canva Techniques</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-refine-iphone-image-capture-specialized-filming-tools/"><u>[Updated] In 2024, Refine iPhone Image Capture Specialized Filming Tools</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/2024-approved-reinstating-lost-sound-output-in-obs-recordings/"><u>2024 Approved Reinstating Lost Sound Output in OBS Recordings</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-exit-android-factory-mode-on-oppo-find-x7-ultra-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Exit Android Factory Mode On Oppo Find X7 Ultra? | Dr.fone</u></a></li>
-<li><a href="https://techidaily.com/how-to-reset-realme-12-pro-5g-without-losing-data-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset Realme 12 Pro 5G without Losing Data | Dr.fone</u></a></li>
-<li><a href="https://iphone-transfer.techidaily.com/how-to-transfer-from-apple-iphone-se-to-iphone-8x11-drfone-by-drfone-transfer-from-ios/"><u>How to Transfer from Apple iPhone SE to iPhone 8/X/11 | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-honor-magic-6-to-other-android-devices-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Honor Magic 6 to Other Android Devices Devices? | Dr.fone</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ring-video-edits-post-upload-techniques/"><u>Mastering Video Edits Post-Upload Techniques</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-10-best-video-player-apps-for-iphone-and-ipad/"><u>[Updated] 10 Best Video Player Apps for iPhone and iPad</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-11-ranked-audio-recorders-of-the-year-for-2024/"><u>[Updated] 11 Ranked Audio Recorders of the Year for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-craft-a-symphony-for-screens-mastering-music-editing-in-canva/"><u>[Updated] 2024 Approved Craft a Symphony for Screens Mastering Music Editing in Canva</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-elevating-visuals-with-luminance-hdr-insight/"><u>[Updated] Elevating Visuals with Luminance-HDR Insight</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-immerse-in-a-world-of-efficient-notes-with-mematic-for-2024/"><u>[Updated] Immerse in a World of Efficient Notes with Mematic for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-frontiers-in-3d-visualization-tech/"><u>[Updated] In 2024, Frontiers in 3D Visualization Tech</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/chatgpt-or-google-translate-the-ultimate-language-translation-battle/"><u>ChatGPT or Google Translate – The Ultimate Language Translation Battle</u></a></li>
+<li><a href="https://location-social.techidaily.com/does-find-my-friends-work-on-samsung-galaxy-s23-fe-drfone-by-drfone-virtual-android/"><u>Does find my friends work on Samsung Galaxy S23 FE | Dr.fone</u></a></li>
+<li><a href="https://fox-zero.techidaily.com/gratuites-logiciels-pour-la-sauvegarde-et-restauration-de-windows-11-des-solutions-excellentes/"><u>Gratuites Logiciels Pour La Sauvegarde Et Restauration De Windows 11 - Des Solutions Excellentes</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-life360-shows-wrong-location-on-lenovo-thinkphone-drfone-by-drfone-virtual-android/"><u>How to Fix Life360 Shows Wrong Location On Lenovo ThinkPhone? | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-cutting-edge-camcorders-for-unmatched-video-quality/"><u>In 2024, Cutting-Edge Camcorders for Unmatched Video Quality</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/the-evaluation-of-hdr-quality-with-luminance/"><u>The Evaluation of HDR Quality with Luminance</u></a></li>
+<li><a href="https://techidaily.com/unlock-android-phone-if-you-forget-the-edge-2023-password-or-pattern-lock-by-drfone-android-unlock-android-unlock/"><u>Unlock android phone if you forget the Edge 2023 password or pattern lock</u></a></li>
 </ul></div>
 

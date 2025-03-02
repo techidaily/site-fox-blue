@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Time-Honored Tricks  Top 1980S Visual Effects to Elevate Your Edits\""
-date: 2025-01-22T19:20:25.136Z
-updated: 2025-01-30T03:45:53.430Z
+date: 2025-02-24T16:58:31.135Z
+updated: 2025-03-02T16:34:30.043Z
 tags: 
   - screen-recording
   - ai video
@@ -71,10 +71,6 @@ Do you want to add a funky touch to the video? Nothing to worry about because [V
 
 ![vhs glitches music video](https://images.wondershare.com/filmora/article-images/2023/vhs-glitches-music-video.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 3\. VHS Madness Logo Reveal
 
 [VHS Madness Logo Reveal](https://elements.envato.com/vhs-madness-logo-reveal-VMQ3GER?%5Fga=2.202272785.1638816870.1686914298-229458477.1686810746) is one of the reminiscent packages which you can find in the VHS effect category. With this quality integrated effect, you can add grainy and noisy effects to the videos. It also helps to surprise users with its dramatic, revealing features.
@@ -92,10 +88,6 @@ Do you want to add a funky touch to the video? Nothing to worry about because [V
 VHS never forgets any type of video and offers - [Retro Rider](https://elements.envato.com/retro-rider-VWECF83?irgwc=1&clickid=VRbwqXTAKxyNR3CzNTQzc24XUkFxRiTFUS4M0k0&iradid=298927&utm%5Fcampaign=elements%5Faf%5F312283&iradtype=ONLINE%5FTRACKING%5FLINK&irmptype=mediapartner&utm%5Fmedium=affiliate&utm%5Fsource=impact%5Fradius&mp=justcreative) this intuitive effect for night riders. Along with adding the stunning effect, it can also replace the text and colors in videos. It also integrates numerous plugins which can control the visuality of effects.
 
 ![retro rider](https://images.wondershare.com/filmora/article-images/2023/retro-rider.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 6\. Glitch Opener VHS
 
@@ -115,10 +107,6 @@ Are you creating a real-life horror movie? Do you wish to make it unrealisticall
 
 ![wicket urban opener](https://images.wondershare.com/filmora/article-images/2023/wicket-urban-opener.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 9\. VHS Noise
 
 If you are looking for a noise-flexible package, you can use [VHS Noise](https://elements.envato.com/vhs-noise-14-LC76AM5?%5Fga=2.201741457.1638816870.1686914298-229458477.1686810746) this extraordinary effect. As this is stock footage, you can use it by adding its layer to the existing video. Moreover, this effect can be used in almost all types of videos.
@@ -130,10 +118,6 @@ If you are looking for a noise-flexible package, you can use [VHS Noise](https:/
 In [Rampant VHS Effect](https://rampantdesigntools.com/product/rampant-vhs-effect-premiere-pro-template/) template, you can find tons of cool VHS effects to give a cinematic look to the videos. As it is compatible with both Mac and Windows, you will not face any restrictions with this. Moreover, it is also available in HD quality, so the video integrated with this effect will have reliable quality.
 
 ![rampant vhs effect](https://images.wondershare.com/filmora/article-images/2023/rampant-vhs-effect.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 11\. 80’s Intro
 
@@ -170,10 +154,6 @@ Here is the procedure for adding the 80s video camera effect in videos with Wond
 To get started, launch Wondershare Filmora on your computer and click "New Project." After this, select the "Click here to import media" option or directly drag and drop your video into the Filmora interface. After adding the video, drag it to the "Timeline."
 
 ![open filmora and add video](https://images.wondershare.com/filmora/article-images/2023/open-filmora-and-add-video.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ##### Step 2Apply the VHS Effect
 
@@ -207,10 +187,6 @@ Do you want to add a funky touch to the video? Nothing to worry about because [V
 
 ![vhs transition](https://images.wondershare.com/filmora/article-images/2023/vhs-transition.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 2\. VHS Glitches Music Video
 
 [VHS Glitches Music Video](https://elements.envato.com/vhs-glitches-music-video-A3CXY4S?irgwc=1&clickid=VRbwqXTAKxyNR3CzNTQzc24XUkFxRhTlUS4M0k0&iradid=298927&utm%5Fcampaign=elements%5Faf%5F312283&iradtype=ONLINE%5FTRACKING%5FLINK&irmptype=mediapartner&utm%5Fmedium=affiliate&utm%5Fsource=impact%5Fradius&mp=justcreative) is known to be the simplest and most significant effect in the videos. As the name indicates, you can use it to add glitch effects to the videos. Moreover, this effect can also be used in animation videos. This effect also offers the capability to sync with the audio in the video.
@@ -241,19 +217,11 @@ For old-school kids, [Glitch Opener VHS](https://elements.envato.com/glitch-open
 
 ![glitch opener vhs](https://images.wondershare.com/filmora/article-images/2023/glitch-opener-vhs.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 7\. VHS Horror Trailers and Titles
 
 Are you creating a real-life horror movie? Do you wish to make it unrealistically horror? You can use [VHS Horror Trailers and Titles](https://www.motionelements.com/after-effects-template-3619993-vhs-horror-trailer-and-titles) effect without any second thought because it can make the trailers and titles of your horror movies more breathtaking. Above all, it’s easy to edit, so you don't have to master any skill to use it.
 
 ![vhs horror trailers and titles](https://images.wondershare.com/filmora/article-images/2023/vhs-horror-trailers-and-titles.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 8\. Wicked Urban Opener
 
@@ -278,10 +246,6 @@ In [Rampant VHS Effect](https://rampantdesigntools.com/product/rampant-vhs-effec
 The VHS-integrated videos are not completed without the 80s effects. With [80’s Intro](https://elements.envato.com/80s-intro-VKFQ7A5?irgwc=1&clickid=VRbwqXTAKxyNR3CzNTQzc24XUkFxRB2JUS4M0k0&iradid=298927&utm%5Fcampaign=elements%5Faf%5F312283&iradtype=ONLINE%5FTRACKING%5FLINK&irmptype=mediapartner&utm%5Fmedium=affiliate&utm%5Fsource=impact%5Fradius&mp=justcreative), you can create the intros just as they were created in VHS launch years. It also works as a perfect video opener and can be used in business videos. It can be the perfect addition to an explainer video for some products having old ties.
 
 ![80s intro](https://images.wondershare.com/filmora/article-images/2023/80s-intro.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 12\. TV Distort Loop Pack
 
@@ -337,10 +301,6 @@ To apply the **80s VHS effects**, you can take assistance from Wondershare Filmo
 
 [![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg)](https://app.adjust.com/w06dr6m%5F19za1f6)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 [Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <ins class="adsbygoogle"
@@ -367,18 +327,22 @@ To apply the **80s VHS effects**, you can take assistance from Wondershare Filmo
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-transform-your-mac-interaction-innovative-text-to-speech-apps-uncovered/"><u>[New] In 2024, Transform Your Mac Interaction Innovative Text-to-Speech Apps Uncovered</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-boost-your-instagram-influence-5-key-tactics-for-enhanced-followers/"><u>[Updated] 2024 Approved Boost Your Instagram Influence 5 Key Tactics for Enhanced Followers</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/updated-in-2024-elite-discord-capture-apps-on-the-go-recording-made-easy/"><u>[Updated] In 2024, Elite Discord Capture Apps On-the-Go Recording Made Easy</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-selecting-the-best-video-monitors-for-ps5/"><u>[Updated] In 2024, Selecting the Best Video Monitors for PS5</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/evening-epics-a-look-at-video-driven-bedtime-fables/"><u>Evening Epics A Look at Video-Driven Bedtime Fables</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-google-play-location-on-vivo-y100a-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Google Play Location On Vivo Y100A | Dr.fone</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/master-the-art-of-text-sculpting-for-an-astonishing-photos-effect/"><u>Master the Art of Text Sculpting for an Astonishing PHOTOS Effect</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/pushing-boundaries-in-media-text-curve-concepts/"><u>Pushing Boundaries in Media Text Curve Concepts</u></a></li>
-<li><a href="https://driver-install.techidaily.com/seamless-transition-to-win11-with-updated-hp-printer-drivers/"><u>Seamless Transition to Win11 with Updated HP Printer Drivers</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/streamlining-projects-using-azures-speech-service/"><u>Streamlining Projects Using Azure's Speech Service</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/the-best-3d-software-for-youtube-intro-creators-for-2024/"><u>The Best 3D Software for YouTube Intro Creators for 2024</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/top-non-apple-rechargeable-airtag-alternative-the-ideal-choice-for-your-wallet-discovered-on-zdnet/"><u>Top Non-Apple Rechargeable AirTag Alternative: The Ideal Choice for Your Wallet - Discovered on ZDNet!</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/why-cant-my-subtitle-extractor-find-any-subtitles-on-loaded-videos/"><u>Why Can't My Subtitle Extractor Find Any Subtitles on Loaded Videos?</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-how-to-add-filters-and-music-on-windows-10-photos-app/"><u>[New] 2024 Approved How to Add Filters and Music on Windows 10 Photos App</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-gadget-grapple-comparing-gopros-hero5-and-garmin-virb/"><u>[New] Gadget Grapple Comparing GoPro's Hero5 & Garmin VIRB</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-auditory-aesthetics-guide-media-sound-choices/"><u>[New] In 2024, Auditory Aesthetics Guide Media Sound Choices</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-leveraging-visual-storytelling-in-podcast-trailer-production/"><u>[New] In 2024, Leveraging Visual Storytelling in Podcast Trailer Production</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-what-does-it-take-to-promote-a-video-on-youtub/"><u>[New] What Does It Take to Promote a Video on YouTub?</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-protective-phone-cases-with-screen-shields/"><u>[Updated] 2024 Approved Protective Phone Cases with Screen Shields</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-5-best-apps-blending-visual-storytelling-and-music/"><u>[Updated] 5 Best Apps Blending Visual Storytelling & Music</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-envisioned-realities-a-selective-list-of-virtual-wisdoms-for-2024/"><u>[Updated] Envisioned Realities A Selective List of Virtual Wisdoms for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-instagram-to-tik-tok-a-social-pivot-blueprint-for-2024/"><u>[Updated] Instagram to Tik Tok - A Social Pivot Blueprint for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-movavi-plus-review-a-detailed-look-at-its-version/"><u>[Updated] Movavi Plus Review – A Detailed Look at Its Version</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/delete-gmail-account-withwithout-password-on-nokia-c12-plus-by-drfone-android/"><u>Delete Gmail Account With/Without Password On Nokia C12 Plus</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/expertly-selected-360-cameras-for-youtube-and-facebook/"><u>Expertly Selected 360° Cameras for YouTube & Facebook</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/fix-system-error-5-has-occurred-error-on-windows-10-7-and-8-solved/"><u>Fix “System Error 5 Has Occurred” Error on Windows 10, 7 & 8 [Solved]</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/how-to-get-your-hands-on-the-latest-canon-mp280-driver-software-win-10-8-and-7-compatible-free/"><u>How to Get Your Hands on the Latest Canon MP280 Driver Software: Win 10, 8 & 7 Compatible FREE</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-tutorial-to-change-vivo-s17t-imei-without-root-a-comprehensive-guide-by-drfone-android/"><u>In 2024, Tutorial to Change Vivo S17t IMEI without Root A Comprehensive Guide</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/navigate-with-ease-discover-the-best-5-iphone-gps-applications/"><u>Navigate with Ease: Discover the Best 5 iPhone GPS Applications</u></a></li>
+<li><a href="https://discover-deluxe.techidaily.com/1728501122661-windows-pc/"><u>ホームオフィス用Windows PCの信頼性確保: ビジネス向けバックアップツール</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Strategies for Effective B-Roll Application\""
-date: 2025-02-06T12:27:48.285Z
-updated: 2025-02-11T05:07:19.212Z
+date: 2025-02-23T16:27:55.806Z
+updated: 2025-03-02T16:41:44.690Z
 tags: 
   - screen-recording
   - ai video
@@ -37,10 +37,6 @@ B roll can be utilized for establishing shots as well as close-ups of items. It 
 
 For instance, wider shots are frequently used when someone is giving a speech while seated behind a podium so that we can see both them and their surroundings, such as audience members standing close and applauding or security personnel.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 2\. Methods to use b roll
 
 Now that there are so many stock footage platforms, you have a lot of choices when you need just the right scene for your project. Most of the time, filmmakers don't use B roll footage. One good way to use it is to use it as a way to move from one scene to the next. It can also be used to set the mood for an event or show what time of day it is when filming.
@@ -49,25 +45,13 @@ The ideal way to use B roll is to put it behind interviews. This kind of footage
 
 On the other hand, cutaways can show how different people react to what is being said in an interview. After all, transitions are commonly used to switch from one person's experience with a certain topic to another person's experience with the same topic. All of these different kinds of footage give filmmakers and videographers more freedom to tell their stories without relying too much on dialogue or narration.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 3\. What types of b roll are there?
 
 We'll examine the top 5 uses for B rolls across a variety of video genres and discuss how to implement them effectively in your own projects.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1\. Archival b roll footage
 
 Aerial B roll is the solution when you like to show your viewers where your film is being recorded or when you are changing locations and want them to know it. The plane takes off and lands in another city, and then shots of the city, its landmarks, its famous streets, etc. are shown. You have probably seen this type of B roll footage in movies and TV shows. These images aid in putting the viewer in the character's current location. Check out this collection of setting images from the Neighbors television series.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\. Visual detail b roll footage
 
@@ -80,10 +64,6 @@ B roll footage can be used to tell a story that supports the narrative of your v
 ### 4\. Undirected b roll footage
 
 This particular kind of B roll film is captured without any direction being given to your character, as the name suggests. For the purposes of an interview video, for instance, these can be straightforward close-up views of your character's hands and facial expressions. On the other hand, while you're doing a documentary, you might record your subject participating in everyday activities.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 5\. Atmospheric b roll footage
 
@@ -135,16 +115,14 @@ We sincerely hope that this post will be of use to you in making your films more
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-dive-deep-with-gopro-prochniques-for-capturing-quality-underwater-video/"><u>[New] 2024 Approved Dive Deep with GoPro Prochniques for Capturing Quality Underwater Video</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-how-to-download-youtube-tunes-without-risk-for-free/"><u>[New] 2024 Approved How to Download YouTube Tunes Without Risk for Free</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-streamline-your-media-with-top-8-convertors-1-8/"><u>[New] 2024 Approved Streamline Your Media with Top 8 Convertors #1-8</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-premier-plugins-for-dynamic-type-design-in-ae/"><u>[New] Premier Plugins for Dynamic Type Design in AE</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-perfecting-tiktok-media-with-zoom-techniques/"><u>[Updated] 2024 Approved Perfecting TikTok Media with Zoom Techniques</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-guide-to-the-top-10-historical-education-channels/"><u>2024 Approved Guide to the Top 10 Historical Education Channels</u></a></li>
-<li><a href="https://fox-info.techidaily.com/curated-collection-saving-snapchat-ringtone-audio/"><u>Curated Collection Saving Snapchat Ringtone Audio</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-a-closer-look-at-luminance-and-its-hdr-achievements/"><u>In 2024, A Closer Look at Luminance and Its HDR Achievements</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/los-mejores-programas-gratuitos-del-ano-202n-para-combinar-fotografias-y-musica-en-presentaciones/"><u>Los Mejores Programas Gratuitos Del Año 202N Para Combinar Fotografías Y Música en Presentaciones</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/pewdiepie-financial-overview-monetary-metrics/"><u>PewDiePie Financial Overview – Monetary Metrics</u></a></li>
-<li><a href="https://win-exclusive.techidaily.com/sing-more-stress-less-join-the-partytyme-karaoke-club-and-enjoy-30-exciting-new-songs-added-to-your-library-as-of-february-26-2021/"><u>Sing More, Stress Less: Join the PartyTyme Karaoke Club and Enjoy 30 Exciting New Songs Added to Your Library as of February 26, 2021!</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-learn-the-art-of-skype-voice-recording-in-mp3-free/"><u>[New] 2024 Approved Learn the Art of Skype Voice Recording in MP3 (Free)</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-break-the-monotony-with-these-6-captivating-videos/"><u>[Updated] 2024 Approved Break the Monotony with These 6 Captivating Videos</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-journey-to-blockchain-stardom-discover-the-top-7-generator-tools/"><u>[Updated] 2024 Approved Journey to Blockchain Stardom - Discover the Top 7 Generator Tools</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-exploring-the-core-of-m1-apples-innovation/"><u>[Updated] In 2024, Exploring the Core of M1 Apple's Innovation</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-top-4-sites-for-free-skype-tones/"><u>[Updated] Top 4 Sites for Free Skype Tones</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/get-the-perfect-blend-of-quality-and-affordability-with-minisforums-latest-portable-monitor-15n-hz-1440p-for-a-steal-at-189/"><u>Get the Perfect Blend of Quality & Affordability with Minisforum’s Latest Portable Monitor - 15.n Hz, 1440P for a Steal at $189</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-from-concepts-to-recordings-a-step-by-step-guide-for-podcast-writers/"><u>In 2024, From Concepts to Recordings A Step-by-Step Guide for Podcast Writers</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-remove-a-previously-synced-google-account-from-your-nokia-c12-by-drfone-android/"><u>In 2024, How to Remove a Previously Synced Google Account from Your Nokia C12</u></a></li>
+<li><a href="https://blog-min.techidaily.com/the-best-free-software-and-web-services-for-converting-mpeg-videos-to-avi-compatible-with-windowsmac-systems/"><u>The Best Free Software & Web Services for Converting MPEG Videos to AVI: Compatible with Windows/Mac Systems</u></a></li>
 </ul></div>
 

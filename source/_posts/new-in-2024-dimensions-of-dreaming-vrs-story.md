@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Dimensions of Dreaming  VR's Story\""
-date: 2024-08-27T12:21:20.540Z
-updated: 2024-08-28T12:21:20.540Z
+date: 2025-02-28T16:12:07.887Z
+updated: 2025-03-02T16:07:37.489Z
 tags: 
   - screen-recording
   - ai video
@@ -43,24 +43,14 @@ In Pygmalions Spectacles, Stanley G. Weinbaum explains a goggle based game in wh
 
 VR headsets actually started development in the 1960s. Just 30 years from the original thought of a VR headset, Ivann Sutherland created the very first VR headset for use with military applications. Using a specialized military software as well as a motion control platform, the first VR headsets were designed for use in training exercises. These VR training tools have now become the standard in the military for training for flight exercises, combat situations and more. An immersive experience is definitely required to push military personnel and prepare them in a safe training environment before they enter into the field. Many air forces around the world require an extensive amount of VR training simulations before they will even let a pilot into one of their aircraft. With the initial development using specialized software and motion controls, VR research would continue to pave the way for training in the military and beyond. Today’s military VR headsets are far more advanced, compact and immersive and these training programs as well as the technology will continue to develop a little bit faster than some of the products that we might find as regular consumers.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## VR development in 1990s
 
 VR headsets begin to make their way into a few arcade games for simulations and Nintendo announced the first home VR system. Virtual Boy was one of the first home systems available for use with a widespread appeal. Sega also introduced a Sega VR headset for the Sega Genesis console in the year 1993\. These wraparound prototypes had stereo sound, LCD screens and head tracking. Technical development in this VR headset doom the project and the cost of the headset was extensive making it a massive flop for Sega. The Virtual Boy however was a 3-D game console that experienced a little more success. Virtual Boy was released in North America at a price of $180\. The games were entirely made in red and black and there were only a few pieces of software available with the device. Users would wear a VR headset and control the action on a regular Nintendo controller. Unfortunately the console was very uncomfortable to use and because of the lack of games as well as the lack of color, it didn't present the same strong sales as the other Nintendo consoles out at the time.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## VR development in 2014
 
 Oculus VR represents the latest revolution in VR technology. When Facebook officially acquired the Oculus VR system, this showed that virtual-reality was becoming a huge concern for many of the world's top developers. Although the Oculus Rift was formed out of a kickstarter campaign in 2012, the deal in 2014 represented a huge boost in their funding and confidence. Later in 2015, Oculus began to acquire other companies like Surreal Vision and built partnerships with Samsung to develop the Samsung gear VR. As one of the leading companies in VR development, Oculus has fully functioning VR systems for consumers to purchase and use at home. With support for a wide range of applications and further applications being developed for specific use with their VR systems, this was a huge leap forward for VR. After gaining international attention with the demand after the Facebook deal, this would propel many other developers into creating their own VR development firms. Oculus in a way started a brand-new VR renaissance with a call to create immersive and simulated experiences for the average consumer. Previous VR headsets were very technical and inaccessible for the average computer user, but with plug-and-play compatibility and a wide host of supported applications, Oculus gave the average consumer hope that they can enjoy VR again.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
-<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
-<!-- affiliate ads end -->
 ## VR development in 2016 and beyond
 
 With the initial surge after Oculus Rift, companies all over the world began building their own VR headsets and producing some fantastic new tech. With so many new devices coming out from many of the world's top manufacturers, we are seeing huge developments when it comes to apps, 360° cameras, inexpensive headsets, VR glass experiences and more. As 3-D graphics continue to get better and is processing power lines at an exponential rate, VR is becoming a focus for many developers in the future. There are many consumer products coming out to compete with Oculus based off its demand as well as generic products for use with smart phone technology. As many smart phones have the accelerometer data, advanced soundcards and graphic sets for 3d rendering users are opting to watch 360 videos and try virtual-reality apps with their smartphone and home devices like Google Cardboard. Other users however are holding out for products like the Oculus Rift, Playstation VR and more. With all of these devices set to drop in mass circulation by the end of 2016 or the start of 2017 we are truly going to start seeing at home VR experiences which are widespread.
@@ -69,9 +59,6 @@ The future of VR looks very bright and with so many new devices in development i
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Benjamin Arango
 
 Benjamin Arango is a writer and a lover of all things video.
@@ -95,8 +82,26 @@ Follow @Benjamin Arango
      data-full-width-responsive="true"></ins>
 
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-a-guide-to-retrieving-historic-facebook-stories-for-2024/"><u>[New] A Guide to Retrieving Historic Facebook Stories for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-distortion-driven-the-artists-guide-to-altered-text/"><u>[New] Distortion Driven The Artist's Guide to Altered Text</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-generate-official-travel-ready-portraits-download-10-free-photos-today-for-2024/"><u>[New] Generate Official Travel-Ready Portraits – Download 10 FREE Photos Today for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-the-art-of-selecting-and-using-b-roll-in-productions/"><u>[New] In 2024, The Art of Selecting and Using B-Roll in Productions</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-top-tips-for-meme-magic-with-kinemaster-for-2024/"><u>[New] Top Tips for Meme Magic with KineMaster for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-flip-clips-android-reversal-technique/"><u>[Updated] 2024 Approved Flip Clips Android Reversal Technique</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-unveiling-the-most-advanced-websites-for-customizable-text-design/"><u>[Updated] In 2024, Unveiling the Most Advanced Websites for Customizable Text Design</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-inspire-yourself-a-list-of-10-empowering-movie-experiences-for-2024/"><u>[Updated] Inspire Yourself A List of 10 Empowering Movie Experiences for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ng-edge-computers-optimal-machines-for-media-creation/"><u>Cutting-Edge Computers Optimal Machines for Media Creation</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/full-circle-camera-unboxing-and-tests/"><u>Full Circle Camera Unboxing & Tests</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/groundbreaking-gear-for-next-level-virtual-reality-for-2024/"><u>Groundbreaking Gear for Next-Level Virtual Reality for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-contacts-files-from-vivo-t2x-5g-by-fonelab-android-recover-contacts/"><u>How To Restore Missing Contacts Files from Vivo T2x 5G.</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-turn-off-google-location-to-stop-tracking-you-on-oppo-a1x-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Turn Off Google Location to Stop Tracking You on Oppo A1x 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-testing-the-capabilities-of-magix-image-viewer/"><u>In 2024, Testing the Capabilities of MAGIX Image Viewer</u></a></li>
+<li><a href="https://discover-exclusive.techidaily.com/quickly-restore-lost-images-from-your-sony-device-with-these-two-simple-techniques/"><u>Quickly Restore Lost Images From Your Sony Device with These Two Simple Techniques</u></a></li>
+<li><a href="https://discover-awesome.techidaily.com/simple-steps-removing-your-custom-iphone-ringtone-in-just-a-few-clicks/"><u>Simple Steps: Removing Your Custom Iphone Ringtone in Just a Few Clicks</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/step-by-step-fix-for-preventing-outpost-infinity-siege-from-crashing-on-windowsmac/"><u>Step-by-Step Fix for Preventing Outpost: Infinity Siege From Crashing on Windows/Mac</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/unlocking-secure-periscope-streaming-techniques-and-strategies-for-2024/"><u>Unlocking Secure Periscope Streaming Techniques & Strategies for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-excellence-mirrorless-cameras-vs-traditional-dslrs/"><u>Video Excellence Mirrorless Cameras vs Traditional DSLRs</u></a></li>
+</ul></div>
 

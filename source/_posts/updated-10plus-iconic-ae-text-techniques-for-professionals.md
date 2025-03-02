@@ -1,7 +1,7 @@
 ---
 title: "[Updated] 10+ Iconic AE Text Techniques for Professionals"
-date: 2025-01-24T22:31:15.850Z
-updated: 2025-01-29T18:06:23.796Z
+date: 2025-03-01T16:59:39.092Z
+updated: 2025-03-02T16:24:35.010Z
 tags: 
   - screen-recording
   - ai video
@@ -60,10 +60,6 @@ If you want to zoom in and zoom out animation for your text or title, you can us
 
 There are different variations of zoom in and out effect that you can try on your text and title to make animation creative and visually appealing. On the other hand, position refers to the location of the text on the video frame depending on X, Y, and Z axis values.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 4\. Blur and Opacity
 
 You must have seen the text animation where the blurry text comes into focus and this can be achieved using Blur parameter. Many people confused Blur with Opacity but blur refers to out of focus while opacity can be understood by fade in and fade out effect. You can adjust the horizontal and vertical blur amount separately and you can come up with stunning text animations by changing Blur value.
@@ -82,10 +78,6 @@ If you want your text to be distorted and unusual, the skew parameter is there f
 
 Tracking refers to the spacing between the characters in a word for a text. You must have seen so many different types of text animations where the spacing between the characters is changing. You can create amazing funny and eye-catching text effects in After Effects by combining tracking and keyframe properly. Along with tracking, there is line anchor that determines the alignment of tracking. Similarly, there is line spacing parameter that controls the spacing between the lines.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 8\. Keyframe
 
 Keyframe is like stretching two points into multiple points and for every point, you can change the value of the different parameters we have mentioned. When different keyframes have different parameters, the text will automatically animate once you play the video.
@@ -99,10 +91,6 @@ Now that you know the different animation parameters and text effect types, it i
 Step1 Go to Tool panel, click on Type tool. Click on Composition panel and type in your text. Go to Characters and Paragraph section and adjust the text style parameters.
 
 ![text style parameters after effects](https://images.wondershare.com/filmora/article-images/2022/09/text-style-parameters-after-effects.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step2 Go to Effects and Presets panel, search for the desired text effect preset that you want to apply on your text. Drag and drop the selected preset on the text layer and you will see your text getting transformed instantly.
 
@@ -125,10 +113,6 @@ If you are not comfortable with After Effects and you are looking for a better a
 Step1 Install Wondershare Filmora on your computer and launch the application. Click on New Project and drag and drop your video clip on Project Media folder.
 
 ![install wondershare filmora](https://images.wondershare.com/filmora/guide/get-started-with-filmora-01.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step2 Drag and drop the video clip onto timeline. Go to Titles option and you will see different categories of text effects on the left panel. Select any one of text effect templates and drop onto the timeline above the background video.
 
@@ -166,10 +150,6 @@ Generally, when you type a text in After Effects, by default, it comes out to be
 
 After Effects has “Enable per-character 3D” property to all Z axis to applicable properties so that you can get the desired effect. You can go to properties like rotation or position to find Z axis that you can modify and get the perfect 3D text.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 2\. Rotation and Anchor Point
 
 Rotation is one of the most commonly used parameters in text animations. There are unlimited variations of text animations and effects that you can create using rotation parameter in After Effects. The rotation takes place in proportion to the anchor points of the text. When you change the value of Rotation parameter, the actual rotation takes place around the anchor points.
@@ -183,10 +163,6 @@ There are different variations of zoom in and out effect that you can try on you
 ### 4\. Blur and Opacity
 
 You must have seen the text animation where the blurry text comes into focus and this can be achieved using Blur parameter. Many people confused Blur with Opacity but blur refers to out of focus while opacity can be understood by fade in and fade out effect. You can adjust the horizontal and vertical blur amount separately and you can come up with stunning text animations by changing Blur value.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 5\. Fill and Stroke
 
@@ -220,17 +196,9 @@ Step2 Go to Effects and Presets panel, search for the desired text effect preset
 
 ![preview effects and presets ae](https://images.wondershare.com/filmora/article-images/2022/09/preview-effects-and-presets-ae.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step3 Go to Timeline and click on the text layer to expand it. Click on Animate option and select any property that you want to adjust and create animation based on the parameters. Go to Keyframe section and add keyframes and change parameters for different keyframes for the text to animate.
 
 ![add keyframes in after effects](https://images.wondershare.com/filmora/article-images/2022/09/add-keyframes-in-after-effects.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Apart from the animate option and its parameters, there are several parameters such as transform that you can adjust to edit the text effect as per your preference.
 
@@ -257,14 +225,6 @@ Step3 Double-click on the text layer on the timeline to edit the text preset. Yo
 Step4 Go to Animation section and click on Advanced button. Change different parameters under Customize section such as Blue, Opacity, Shadow, and much more. You can create keyframes on the timeline like AE and edit parameters as per your preference.
 
 ![add animation text in filmora](https://images.wondershare.com/filmora/article-images/2022/09/add-animation-text-in-filmora.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 4\. Related FAQs of Title Effects in After Effects
 
@@ -304,18 +264,24 @@ Motion title is a dynamic text effect template available in After Effects throug
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-the-artisans-touch-skillfully-applying-face-centric-motion-blur-using-picsart/"><u>[New] 2024 Approved The Artisan’s Touch Skillfully Applying Face-Centric Motion Blur Using Picsart</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-broad-overview-delving-into-google-podcasts-application-for-2024/"><u>[New] Broad Overview Delving Into Google Podcasts Application for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-expert-audio-techniques-in-audacity-for-professionals/"><u>[New] In 2024, Expert Audio Techniques in Audacity for Professionals</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-follow-me-back-home-top-trail-tracking-drones/"><u>[New] In 2024, Follow Me Back Home - Top Trail-Tracking Drones</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-sleek-skill-using-watch-to-unlock-mac-for-2024/"><u>[New] Sleek Skill Using Watch to Unlock Mac for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-gaining-exposure-cost-effective-promotion-hacks-for-youtubers/"><u>[Updated] 2024 Approved Gaining Exposure Cost-Effective Promotion Hacks for YouTubers</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-optimizing-data-preservation-top-5-cloud-storage-providers-for-2024/"><u>[Updated] Optimizing Data Preservation Top 5 Cloud Storage Providers for 2024</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/10-best-no-cost-video-calls-for-remote-collaboration/"><u>10 Best No-Cost Video Calls for Remote Collaboration</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/2024-approved-adobes-path-to-perspective-creating-life-like-text/"><u>2024 Approved Adobe's Path to Perspective Creating Life-Like Text</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/elevating-your-igtv-video-game-techniques-for-smartphones-and-dslrs-for-2024/"><u>Elevating Your IGTV Video Game Techniques for Smartphones and DSLRs for 2024</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-use-google-assistant-on-your-lock-screen-of-xiaomi-redmi-12-phone-by-drfone-android/"><u>In 2024, How to Use Google Assistant on Your Lock Screen Of Xiaomi Redmi 12 Phone</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/solving-the-file-not-playable-with-code-0xc10100be-on-windows-11-a-step-by-step-guide/"><u>Solving the 'File Not Playable with Code 0xC10100BE' On Windows 11: A Step-by-Step Guide</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/the-future-in-your-hands-lgs-vr-gaming-masterpiece/"><u>The Future in Your Hands LG's VR Gaming Masterpiece</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-10-basic-blocks-house-concepts-for-mc-players/"><u>[New] 10 Basic Blocks House Concepts for MC Players</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-15-ways-to-make-most-of-your-podcast-time/"><u>[New] 2024 Approved 15 Ways to Make Most of Your Podcast Time</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-precision-close-up-techniques-with-kinemaster-software-for-2024/"><u>[New] Precision Close-Up Techniques with Kinemaster Software for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-the-photographers-toolkit-top-text-editors-for-images-for-2024/"><u>[New] The Photographer's Toolkit Top Text Editors for Images for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-vimeos-budget-friendly-tools-for-seamless-edits-for-2024/"><u>[New] Vimeo's Budget-Friendly Tools for Seamless Edits for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-audience-favourite-debate-which-is-better-black-gopro-or-sony-fdr-x1000v-in-2024/"><u>[Updated] Audience Favourite Debate Which Is Better, Black GoPro or Sony FDR-X1000V, In 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-dive-into-picsart-comprehensive-analysis-release/"><u>[Updated] In 2024, Dive Into PicsArt - Comprehensive Analysis Release</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-green-walls-in-grey-buildings-a-step-towards-eco-cities/"><u>[Updated] In 2024, Green Walls in Grey Buildings A Step Towards Eco-Cities</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-incredible-method-unlock-mac-using-apple-watch/"><u>[Updated] In 2024, Incredible Method Unlock Mac Using Apple Watch</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-professional-insights-for-better-gopro-recording/"><u>[Updated] In 2024, Professional Insights for Better GoPro Recording</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-top-technique-for-merging-gopro-videography-with-encompassing-immersive-content/"><u>[Updated] In 2024, Top Technique for Merging GoPro Videography with Encompassing Immersive Content</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-depth-guide-to-effortless-photo-and-video-file-transfers-in-windows-10-for-2024/"><u>[Updated] In-Depth Guide to Effortless Photo & Video File Transfers in Windows 10 for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-optimal-performance-drives-top-10-srt-enhancements-for-pc-and-mac/"><u>2024 Approved Optimal Performance Drives Top 10 SRT Enhancements for PC and Mac</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-honor-x9a-drfone-by-drfone-virtual-android/"><u>Can I use iTools gpx file to catch the rare Pokemon On Honor X9a | Dr.fone</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/dive-deeper-into-gaming-discovering-key-info-on-the-innovative-new-xbox-vr-headset/"><u>Dive Deeper Into Gaming - Discovering Key Info on the Innovative New Xbox VR Headset</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/efficient-workflow-with-firefoxs-picture-in-picture-for-2024/"><u>Efficient Workflow with Firefox’s Picture-in-Picture for 2024</u></a></li>
+<li><a href="https://fox-search.techidaily.com/fixen-sie-das-problem-mit-der-unerwarteten-disappearance-von-festplatten-auf-dem-diagramm-effiziente-fehlerkorrektur/"><u>Fixen Sie Das Problem Mit Der Unerwarteten Disappearance Von Festplatten Auf Dem Diagramm - Effiziente Fehlerkorrektur</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-track-imei-number-of-xiaomi-redmi-note-12-proplus-5g-through-google-earth-by-drfone-android/"><u>How To Track IMEI Number Of Xiaomi Redmi Note 12 Pro+ 5G Through Google Earth?</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/uncover-top-8-websites-with-free-3d-text-psds-for-2024/"><u>Uncover Top 8 Websites with Free 3D Text PSDs for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Automated Methods for Adding Photo Dates"
-date: 2025-02-09T09:01:10.301Z
-updated: 2025-02-11T03:26:45.394Z
+date: 2025-02-27T16:30:19.481Z
+updated: 2025-03-02T16:23:06.417Z
 tags: 
   - screen-recording
   - ai video
@@ -132,10 +132,6 @@ The Adobe Photoshop Lightroom is a cloud-based product where you can upload and 
 
 ![adobe photoshop lightroom](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-3.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Key Features**
 
 * Preset creation
@@ -163,10 +159,6 @@ VSCO is another editing app you can use for your photo editing. VSCO has an easy
 
 The app is available for [Android](https://play.google.com/store/apps/details?id=com.vsco.cam&hl=en&gl=US) and [iPhone](https://apps.apple.com/us/app/vsco-photo-video-editor/id588013838)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 3\. Edit Photos and Add Date Stamps On The Computer
 
 Mac and windows have free image editing programs that allow you to copy an image from its source, paste it into the editor, crop it, resize it, and then save it. First, let's look at how to **edit a photo on a Mac.**
@@ -183,19 +175,11 @@ First, to resize an image in the Photos app on a Mac, enter editing mode by clic
 
 ![straighten flip rotate and crop](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-5.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ##### Step2Sharpen your images
 
 You can make your photos sharper by simply navigating to the bottom of the Modify menu in the Photos app and selecting Sharpen.
 
 ![sharpen your images](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-6.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ##### Step3Adjust lighting and exposure
 
@@ -227,10 +211,6 @@ Step5When ready, drag and slide the date to the area of the image where you wish
 
 Step6Finally, select File>Save to add your date to the picture.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Use an inbuilt app to edit photos on Windows
 
 Step1Enter "Photos " in the taskbar's search field. Click on it. Decide the image you want to edit.
@@ -249,17 +229,9 @@ Step2Select Edit & Create > Edit with Paint 3D in the upper right corner of the 
 
 ![select edit create](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-13.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step3Go to the screen's top and click Text.
 
 ![click on text](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-14.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step4To create a text box, click and drag.
 
@@ -268,10 +240,6 @@ Step4To create a text box, click and drag.
 Step5Enter the date you want.
 
 ![enter date](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-16.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step6Select Menu in the upper-left corner.
 
@@ -491,10 +459,6 @@ Step2Then select Show Markup Tool.
 
 ![select show markup tool](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-8.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step3Click on the text button.
 
 ![click on the text button](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-9.jpg)
@@ -563,10 +527,6 @@ Canva is a standout online photo editor where you can edit your and **add date t
 * Add depth of field to your image instantly.
 * Background image remover
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 2\. [Fotor](https://www.fotor.com/)
 
 **Add a date to a photo** using Fotor. Fotor provides great features that make photo editing a smooth and easy process. To begin, you will need to sign up and upload your photo.
@@ -624,19 +584,24 @@ Hopefully, these steps will be helpful if you ever want to **add a date** or **e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-leading-speedy-visualizer-in-windows/"><u>[New] 2024 Approved Leading Speedy Visualizer in Windows</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-lace-footage-with-music-using-premiere-pro-for-2024/"><u>[New] Lace Footage with Music Using Premiere Pro for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-unveiling-the-secret-seeing-popular-youtube-reactions/"><u>[Updated] In 2024, Unveiling the Secret Seeing Popular YouTube Reactions</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-the-artisans-path-to-enchanting-collage-compositions/"><u>[Updated] The Artisan's Path to Enchanting Collage Compositions</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/best-ways-to-employ-chatgpt-responsibly-for-psychological-support/"><u>Best Ways to Employ ChatGPT Responsibly for Psychological Support</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/boosting-your-competitive-edge-with-custom-vocalization-techniques-in-free-fire-gaming-free-solution-included/"><u>Boosting Your Competitive Edge with Custom Vocalization Techniques in Free Fire Gaming (Free Solution Included)</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/bypassing-google-account-with-vnrom-bypass-for-motorola-moto-g23-by-drfone-android/"><u>Bypassing Google Account With vnROM Bypass For Motorola Moto G23</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/digital-support-network-for-winx-dvd-maker-and-converter-applications-a-comprehensive-guide/"><u>Digital Support Network for WinX DVD Maker & Converter Applications: A Comprehensive Guide</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/effortless-file-exchange-5-routes-to-computers-for-2024/"><u>Effortless File Exchange 5 Routes to Computers for 2024</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/how-to-fix-iphone-xr-passcode-not-working-drfone-by-drfone-ios/"><u>How to Fix iPhone XR Passcode not Working? | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-samsung-galaxy-s23-fe-to-iphone-xs11-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Samsung Galaxy S23 FE to iPhone XS/11 | Dr.fone</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-prime-shopping-destinations-customizable-presents-with-flair/"><u>In 2024, Prime Shopping Destinations Customizable Presents with Flair</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/key-websites-to-amplify-your-youtube-presence/"><u>Key Websites to Amplify Your YouTube Presence</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/windows-media-player-guide-to-cd-ripping-and-burning-for-2024/"><u>Windows Media Player Guide to CD Ripping and Burning for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-achieving-professional-level-audio-crossfades-in-audacity/"><u>[New] Achieving Professional-Level Audio Crossfades in Audacity</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-topeight-innovative-4k-blu-ray-player-options/"><u>[New] In 2024, TopEight Innovative 4K Blu-Ray Player Options</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-tips-for-smooth-transitioning-from-zoom-to-fb-live-events-for-2024/"><u>[New] Tips for Smooth Transitioning From ZOOM to FB Live Events for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-ultimate-list-the-5-most-excellent-slow-motion-cams-for-2024/"><u>[New] Ultimate List The 5 Most Excellent Slow-Motion Cams for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-sculpting-shareable-online-laughter/"><u>[Updated] In 2024, Sculpting Shareable Online Laughter</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-minimizing-movement-blur-in-media/"><u>[Updated] Minimizing Movement Blur in Media</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-olympic-speed-skating-sprint-games-best-performances/"><u>[Updated] Olympic Speed Skating Sprint Games' Best Performances</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-quick-fixes-to-design-delight-canvas-top-10-tips/"><u>[Updated] Quick Fixes to Design Delight Canva's Top 10 Tips</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-smooth-transitions-with-illustrators-blur-effects/"><u>[Updated] Smooth Transitions with Illustrator's Blur Effects</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/updated-social-sphere-strikes-again-latest-hot-tweets/"><u>[Updated] Social Sphere Strikes Again Latest Hot Tweets</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-advanced-mastery-over-iphone-hdr-issues-with-4-best-practices-for-editors/"><u>[Updated][Advanced] Mastery Over iPhone HDR Issues with 4 Best Practices for Editors</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/10plus-iconic-ae-text-techniques-for-professionals-for-2024/"><u>10+ Iconic AE Text Techniques for Professionals for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/full-guide-on-mirroring-your-vivo-y02t-to-your-pcmac-drfone-by-drfone-android/"><u>Full Guide on Mirroring Your Vivo Y02T to Your PC/Mac | Dr.fone</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/in-2024-9-best-phone-monitoring-apps-for-apple-iphone-7-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, 9 Best Phone Monitoring Apps for Apple iPhone 7 Plus | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-sky-high-adventures-the-gopro-karma-experience/"><u>In 2024, Sky-High Adventures The GoPro Karma Experience</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/making-the-most-of-virtual-reality-space/"><u>Making the Most of Virtual Reality Space</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/sdr-to-hd-now-hdr-the-next-leap-in-editing-workflows-for-2024/"><u>SDR to HD, Now HDR The Next Leap in Editing Workflows for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/streamline-your-creative-process-with-instagrams-audio-features/"><u>Streamline Your Creative Process with Instagram's Audio Features</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/the-artisans-guide-to-chromatic-mastery-for-2024/"><u>The Artisan's Guide to Chromatic Mastery for 2024</u></a></li>
 </ul></div>
 

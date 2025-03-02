@@ -1,7 +1,7 @@
 ---
 title: "[New] Complete Guide to Cleaning Up Figma Canvases"
-date: 2025-02-07T10:17:16.820Z
-updated: 2025-02-11T07:52:28.252Z
+date: 2025-02-24T16:51:11.384Z
+updated: 2025-03-02T17:06:58.253Z
 tags: 
   - screen-recording
   - ai video
@@ -30,10 +30,6 @@ So, keep reading to find out about removing an image's background in Figma!
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## The Best Option to Remove Image's Background in Figma
 
@@ -81,10 +77,6 @@ Step3 Paste the Appkey in the pop-up window in Figma and click **"Save."** Now, 
 
 The program will start running the plugin, and the background of your image will disappear. Click the **"Export"** option and save your file on your system.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Other Options To Remove Image's Background In Figma
 
 Apart from using PixCut Plugin in Figma, there are some alternatives that you can use to remove the image's background in Figma:
@@ -124,10 +116,6 @@ Another alternative is to use any tool that **removes the image background onlin
 
 To use the Remove BG tool, visit its website, drop your image file, or click the **"Upload"** option to import your file. Now, wait for the program to process your image and then click **"Download"** to save your picture. Afterward, you can import it to Figma for further editing.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Video Tutorial - How to remove background from images in Figma in 2minutes
 
 Hopefully, you have found an ideal solution by now. To help you remove the image's background in Figma with more ease, we have prepared a video for you. You can combine the video content with the guidance above:
@@ -152,14 +140,6 @@ Step3 Select **"Find More Plugins"** and use the search option in the pop-up win
 
 ![accessing the plugin installation page in figma](https://images.wondershare.com/filmora/article-images/2023/03/accessing-the-plugin-installation-page-in-figma.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### (3) Using Online Removers
 
 Another alternative is to use any tool that **removes the image background online**. For example, we recommend using the [Remove BG tool](https://www.remove.bg/).
@@ -169,10 +149,6 @@ To use the Remove BG tool, visit its website, drop your image file, or click the
 ## Video Tutorial - How to remove background from images in Figma in 2minutes
 
 Hopefully, you have found an ideal solution by now. To help you remove the image's background in Figma with more ease, we have prepared a video for you. You can combine the video content with the guidance above:
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -206,18 +182,19 @@ Hopefully, this article helped resolve your queries, and you can now use the Fig
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-key-tactics-for-implementing-films-in-school-curriculum/"><u>[New] 2024 Approved Key Tactics for Implementing Films in School Curriculum</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-uncover-the-best-practices-for-high-quality-android-recordings/"><u>[New] 2024 Approved Uncover the Best Practices for High-Quality Android Recordings</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-expanding-screen-coverage-of-youtube-videos/"><u>[New] In 2024, Expanding Screen Coverage of YouTube Videos</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-first-choice-of-android-photo-editors/"><u>[Updated] 2024 Approved First Choice of Android Photo Editors</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-high-resolution-horizons-an-in-depth-look-at-the-asus-mg28uq/"><u>[Updated] 2024 Approved High-Resolution Horizons An In-Depth Look at the ASUS MG28UQ</u></a></li>
-<li><a href="https://fox-sure.techidaily.com/1728472463613-3/"><u>将外部硬盘数据迁移至新设备的步骤：3个关键步骤</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-simulate-gps-movement-in-ar-games-on-honor-90-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Simulate GPS Movement in AR games On Honor 90 Pro? | Dr.fone</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/in-2024-navigating-neat-networks-of-needle-precision-racing-games/"><u>In 2024, Navigating Neat Networks of Needle-Precision Racing Games</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-premier-equipment-for-cutting-edge-livestreams/"><u>In 2024, Premier Equipment for Cutting-Edge Livestreams</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-unlocking-potential-advanced-techniques-for-slug-line-creation/"><u>In 2024, Unlocking Potential Advanced Techniques for Slug Line Creation</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/planning-to-use-a-pokemon-go-joystick-on-realme-v30t-drfone-by-drfone-virtual-android/"><u>Planning to Use a Pokemon Go Joystick on Realme V30T? | Dr.fone</u></a></li>
-<li><a href="https://win-guides.techidaily.com/quick-guide-adding-personalized-ringtones-to-your-iphone-x-with-ease/"><u>Quick Guide: Adding Personalized Ringtones to Your iPhone X with Ease</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/solved-move-from-oppo-a78-to-ios-not-working-problems-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Solved Move from Oppo A78 to iOS not Working Problems | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-flight-paths-revealed-full-review-of-dji-phantom-4/"><u>[New] In 2024, Flight Paths Revealed Full Review of DJI Phantom 4</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-melodic-mobile-alerts-download-classical-ringtones-here/"><u>[New] Melodic Mobile Alerts Download Classical Ringtones Here</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-navigating-your-way-through-vr-headset-selection-is-the-mobile-experience-more-attractive-than-tethered-tech/"><u>[New] Navigating Your Way Through VR Headset Selection Is the Mobile Experience More Attractive Than Tethered Tech?</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-unveiling-apples-powerhouses-the-m1-pro-and-m1-max-analysis/"><u>[New] Unveiling Apple's Powerhouses The M1 Pro and M1 Max Analysis</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-slimmed-down-cloud-keeping-at-low-cost-high-space/"><u>2024 Approved Slimmed-Down Cloud Keeping at Low Cost, High Space</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/achieving-cinematic-quality-through-aspect-ratio-choices/"><u>Achieving Cinematic Quality Through Aspect Ratio Choices</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/cinematic-blackout-mastery-in-premiere/"><u>Cinematic Blackout Mastery in Premiere</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-broken-video-files-of-z50s-pro-by-stellar-video-repair-mobile-video-repair/"><u>How to Repair Broken video files of Z50S Pro?</u></a></li>
+<li><a href="https://win-hacks.techidaily.com/how-to-resolve-windows-11-backup-tool-failures-effectively/"><u>How to Resolve Windows 11 Backup Tool Failures Effectively</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-7-top-ways-to-resolve-apple-id-not-active-issue-for-apple-iphone-se-drfone-by-drfone-ios/"><u>In 2024, 7 Top Ways To Resolve Apple ID Not Active Issue For Apple iPhone SE | Dr.fone</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-fake-android-location-without-rooting-for-your-oneplus-ace-2-pro-drfone-by-drfone-virtual/"><u>In 2024, Fake Android Location without Rooting For Your OnePlus Ace 2 Pro | Dr.fone</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-revamping-your-snapchat-speech-two-straightforward-steps/"><u>In 2024, Revamping Your Snapchat Speech Two Straightforward Steps</u></a></li>
+<li><a href="https://win-excellent.techidaily.com/microsoft-office-hdd/"><u>Microsoft Office ソフトウェアバックアップ手順: HDDフォーマット前に行うべきこと</u></a></li>
+<li><a href="https://discover-awesome.techidaily.com/quick-and-straightforward-guide-upload-your-iphone-images-onto-a-windows-desktop-with-ease/"><u>Quick & Straightforward Guide: Upload Your iPhone Images Onto a Windows Desktop with Ease</u></a></li>
 </ul></div>
 

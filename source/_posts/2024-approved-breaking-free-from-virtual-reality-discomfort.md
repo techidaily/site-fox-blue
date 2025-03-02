@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Breaking Free From Virtual Reality Discomfort\""
-date: 2024-08-22T18:22:13.594Z
-updated: 2024-08-23T18:22:13.594Z
+date: 2025-02-26T17:01:27.226Z
+updated: 2025-03-02T17:05:04.258Z
 tags: 
   - screen-recording
   - ai video
@@ -52,18 +52,12 @@ thumbnail: https://thmb.techidaily.com/6e0cdf2b7038ec925488e32c1b0811331fe39479e
 
  You can definitely not deny all the fun you can have with this new technology once you grab on all the cool gadgets and gears. Putting on a virtual reality headset can take you to a completely different world but would it really be fun when you have to vomit after ten minutes? Virtual reality sickness is a big hurdle to the widespread use of the virtual reality technology. The fact that ‘with virtual reality comes the sickness’ has been a major worry factor to the developers and scientists. Virtual Reality sickness brings along symptoms such as headaches, nausea, vomiting, discomfort, sweating, drowsiness, disorientation and apathy. Virtual reality sickness, however, is not a new problem. It has been known since the test pilots, test drivers and astronauts have been practicing their skills in simulators and mock vehicles.
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Why virtual reality make people sickness
 
  Now the question arises, what is really making us sick? Is it the gadgets or gears? Or some manufacturing flaw? The link connecting virtual reality and the sickness, lies within the human body itself. When you are in a virtual environment, in some cases, your body’s sense of balance does not completely line up with the movements of your head. Also, when the environment around you moves, but your body stays stationary you experience dizziness or nausea. Typically, the bigger the mismatch the worse the sickness. According to the statement delivered by a military pilot, when you go inside a simulator, the movements don’t exactly match the same as they do in the real world, and all of a sudden, what you feel is just not right. Another reason causing the problem is based on virtual reality games and other such systems. In such a VR system you experience environment larger than the room you are in. All these factors can ultimately drive you sick!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Benjamin Arango
 
 Benjamin Arango is a writer and a lover of all things video.
@@ -87,8 +81,24 @@ Follow @Benjamin Arango
      data-full-width-responsive="true"></ins>
 
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-techniques.techidaily.com/new-ideal-webcams-to-upgrade-your-zoom-video-quality/"><u>[New] Ideal Webcams to Upgrade Your Zoom Video Quality</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-ultimate-tutorial-for-full-utilization-of-final-cut-pro-for-2024/"><u>[New] Ultimate Tutorial for Full Utilization of Final Cut Pro for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-kinemaster-guide-to-seamless-green-screen-implementation/"><u>[Updated] 2024 Approved Kinemaster Guide to Seamless Green Screen Implementation</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-premium-5-filters-boosting-oceanic-imaging/"><u>[Updated] 2024 Approved Premium 5 Filters Boosting Oceanic Imaging</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-converting-sdr-video-to-hdr-a-comprehensive-tutorial-for-2024/"><u>[Updated] Converting SDR Video to HDR - A Comprehensive Tutorial for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-exploring-mobile-photography-with-android-lightroom-application/"><u>[Updated] In 2024, Exploring Mobile Photography with Android Lightroom Application</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-innovative-strategies-for-srt-creation-and-enhancement/"><u>[Updated] Innovative Strategies for SRT Creation and Enhancement</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-pro-filmmaking-lenses-the-ten-most-critical-choices-for-2024/"><u>[Updated] Pro Filmmaking Lenses The Ten Most Critical Choices for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-transformative-techniques-for-high-quality-mp4s-from-instagram/"><u>2024 Approved Transformative Techniques for High-Quality MP4s From Instagram</u></a></li>
+<li><a href="https://android-frp.techidaily.com/5-quick-methods-to-bypass-oneplus-nord-3-5g-frp-by-drfone-android/"><u>5 Quick Methods to Bypass OnePlus Nord 3 5G FRP</u></a></li>
+<li><a href="https://change-location.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-samsung-galaxy-s23-fe-drfone-by-drfone-virtual-android/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Samsung Galaxy S23 FE | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-fake-snapchat-location-on-lava-blaze-2-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fake Snapchat Location on Lava Blaze 2 | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/in-2024-how-to-use-life360-on-windows-pc-for-nokia-c210-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Life360 on Windows PC For Nokia C210? | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-depth-analysis-applying-luts-to-elevate-your-cinematography-for-2024/"><u>In-Depth Analysis Applying LUTs to Elevate Your Cinematography for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/precision-adjustments-for-premium-zoom-audio-for-2024/"><u>Precision Adjustments for Premium Zoom Audio for 2024</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/1721266243541-simplify-note-management-on-iphones-purchase-the-powerful-stellarian-eraser-app/"><u>Simplify Note Management on iPhones – Purchase the Powerful Stellarian Eraser App</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/uncomplicated-story-framework/"><u>Uncomplicated Story Framework</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Best Practices for Secondary Footage Selection and Use"
-date: 2025-02-05T14:04:43.809Z
-updated: 2025-02-11T06:20:29.571Z
+date: 2025-02-25T16:45:36.350Z
+updated: 2025-03-02T16:31:46.031Z
 tags: 
   - screen-recording
   - ai video
@@ -45,25 +45,13 @@ The ideal way to use B roll is to put it behind interviews. This kind of footage
 
 On the other hand, cutaways can show how different people react to what is being said in an interview. After all, transitions are commonly used to switch from one person's experience with a certain topic to another person's experience with the same topic. All of these different kinds of footage give filmmakers and videographers more freedom to tell their stories without relying too much on dialogue or narration.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 3\. What types of b roll are there?
 
 We'll examine the top 5 uses for B rolls across a variety of video genres and discuss how to implement them effectively in your own projects.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1\. Archival b roll footage
 
 Aerial B roll is the solution when you like to show your viewers where your film is being recorded or when you are changing locations and want them to know it. The plane takes off and lands in another city, and then shots of the city, its landmarks, its famous streets, etc. are shown. You have probably seen this type of B roll footage in movies and TV shows. These images aid in putting the viewer in the character's current location. Check out this collection of setting images from the Neighbors television series.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\. Visual detail b roll footage
 
@@ -77,10 +65,6 @@ B roll footage can be used to tell a story that supports the narrative of your v
 
 This particular kind of B roll film is captured without any direction being given to your character, as the name suggests. For the purposes of an interview video, for instance, these can be straightforward close-up views of your character's hands and facial expressions. On the other hand, while you're doing a documentary, you might record your subject participating in everyday activities.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 5\. Atmospheric b roll footage
 
 When you are sharing a narrative that has been told in the past or that has historical significance, incorporating archival material into your video gives your audience the opportunity to see the story as it occurred at the time. This is especially useful when you are discussing a narrative that has been experienced in the past or that has futuristic relevance.
@@ -92,10 +76,6 @@ Have a look at the scenes from the episode "14 Peaks: Nothing Is Impossible" tha
 A pick-up is a tiny shot added to previously captured material. Re-shoots involve redoing entire scenes. Both types of shots are commonly added during film editing to fix, logic, continuity, or quality flaws. These photos happen a while after the sets have been taken down, clothes and props stowed, and the actors and crew have gone on to new projects.
 
 If flaws were discovered during primary photography, the directors could have requested another take. The producer and director should weigh the cost of rejoining cast and crew against the need for pick-ups or re-shoots to address storyline flaws (or worse) in the final edit.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 7\. A roll vs b roll
 
@@ -135,19 +115,17 @@ We sincerely hope that this post will be of use to you in making your films more
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-pros-selection-excellent-webcam-recorders-windows-11/"><u>[New] 2024 Approved Pro's Selection Excellent Webcam Recorders Windows 11</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-creating-hilarious-vr-world-meme-magic-for-2024/"><u>[New] Creating Hilarious VR World Meme Magic for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-exploring-sierra-icloud-drives-a-complete-overview/"><u>[New] In 2024, Exploring Sierra iCloud Drives – A Complete Overview</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-samsung-gear-360-vs-lg-360-cam-which-360-degree-camera-is-better/"><u>[New] Samsung Gear 360 vs LG 360 Cam Which 360 Degree Camera Is Better</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-streamline-your-images-in-canva-without-clutter/"><u>[New] Streamline Your Images in Canva Without Clutter</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-unveiling-the-key-to-thriving-in-online-communities-like-reddit-for-2024/"><u>[New] Unveiling the Key to Thriving in Online Communities Like Reddit for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-audio-preservation-for-academics-on-apple-systems-for-2024/"><u>[Updated] Audio Preservation for Academics on Apple Systems for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-from-silent-screens-to-captivating-media-instantly-create-captions-on-fb-for-2024/"><u>[Updated] From Silent Screens to Captivating Media Instantly Create Captions on FB for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-the-ultimate-ranker-top-15-free-online-photo-enhancement-tools/"><u>[Updated] The Ultimate Ranker Top 15 Free Online Photo Enhancement Tools</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/does-redmi-13c-support-avchd-video-by-aiseesoft-video-converter-play-mts-on-android/"><u>Does Redmi 13C support AVCHD video?</u></a></li>
-<li><a href="https://os-tips.techidaily.com/how-to-recover-deleted-texts-a-three-step-guide/"><u>How to Recover Deleted Texts: A Three-Step Guide</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-decoding-the-best-free-video-apps-for-os-multiplicity/"><u>In 2024, Decoding the Best Free Video Apps for OS Multiplicity</u></a></li>
-<li><a href="https://sound-tweaking.techidaily.com/in-2024-streamlining-your-mixes-normalizing-audio-in-davinci-resolve/"><u>In 2024, Streamlining Your Mixes Normalizing Audio in DaVinci Resolve</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-top-8-social-and-adventure-games-for-oculus-users/"><u>In 2024, Top 8 Social & Adventure Games for Oculus Users</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-monetize-youtube-video-the-ultimate-guide-to-ad-revenue/"><u>[New] 2024 Approved Monetize YouTube Video | The Ultimate Guide to Ad Revenue</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-creative-auditory-shifts-with-premiere-pro/"><u>[New] Creative Auditory Shifts with Premiere Pro</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-mastering-metaverse-life-your-ultimate-device-list/"><u>[New] Mastering Metaverse Life Your Ultimate Device List</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-advanced-techniques-sending-subtitles-to-instagram-linkedin/"><u>[Updated] Advanced Techniques Sending Subtitles to Instagram, LinkedIn</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-apex-legends-mastery-exploring-single-platform-potential/"><u>[Updated] Apex Legends Mastery Exploring Single Platform Potential</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-critical-selection-of-terraria-upgrades/"><u>[Updated] In 2024, Critical Selection of Terraria Upgrades</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-humor-haven-a-curated-list-of-hilarious-tiktok-content/"><u>2024 Approved Humor Haven A Curated List of Hilarious TikTok Content</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/top-7-revolutionary-chatgpt-browser-add-ons-enhance-your-ai-conversations/"><u>Top 7 Revolutionary ChatGPT Browser Add-Ons: Enhance Your AI Conversations</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/top-tier-videography-choose-from-15-camcorders-for-2024/"><u>Top-Tier Videography Choose From 15 Camcorders for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/transform-your-asmr-experience-into-proficiently-produced-videos-for-2024/"><u>Transform Your ASMR Experience Into Proficiently Produced Videos for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/unveiling-the-hidden-realms-of-cyberspace-understanding-the-dead-internet-concept/"><u>Unveiling the Hidden Realms of Cyberspace: Understanding the 'Dead Internet' Concept</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/pcwechat/"><u>スマホとPCを使ってWeChat 会話を録画・聞く方法</u></a></li>
 </ul></div>
 

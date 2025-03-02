@@ -1,7 +1,7 @@
 ---
 title: "[New] Techniques for Smoothly Fading Audio Within Lumafusion"
-date: 2025-02-10T13:14:28.008Z
-updated: 2025-02-10T19:01:58.680Z
+date: 2025-02-25T16:11:19.071Z
+updated: 2025-03-02T16:19:25.919Z
 tags: 
   - screen-recording
   - ai video
@@ -67,10 +67,6 @@ Drag and drop your sound recordings from the media library to the timeline at th
 
 ![import audios to fade](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ##### Step3 Apply Fade Effects
 
 The fade-in audio button inside your audio file may be seen when you just hover over the audio file within the timeline and look for the white circle filled with pink hue at the beginning and finish of your audio file. On the other hand, to choose the fade-out audio, click and drag the pink circle that appears on the opposite end of the audio file in the timeline that you have chosen to fade out the music file.
@@ -83,27 +79,15 @@ After finishing the method for editing audio in Filmora, click the Export button
 
 In that window, you can select the MP3 format in the format customization box to continue with storing your file to your system. After making any necessary adjustments to the audio file, click the Export button below, which will ultimately direct you to the area on your PC where you want to store the audio.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 3\. Related FAQs about LumaFusion
 
 ### 1\. How do you fade in a title LumaFusion?
 
 Go to Clip Defaults to do that. You may change the Title and Transition lengths here. Check to check whether the updated defaults have been implemented by adding a new title or transition after making the necessary modifications. By cursorily browsing the title in the browser, you can get a preview.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 2\. How do you do transitions in LumaFusion?
 
 There are several eye-catching transitions included with LumaFusion. The transition may simply be dragged into the timeline and placed between the two pertinent segments. You may modify the duration of it after it's on the timeline in the same way that you would any other clip. Simply choose Transitions from the Sources box, that's it.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 3\. How to you split audio and video in LumaFusion?
 
@@ -123,10 +107,6 @@ Drag and drop your sound recordings from the media library to the timeline at th
 
 ![import audios to fade](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ##### Step3 Apply Fade Effects
 
 The fade-in audio button inside your audio file may be seen when you just hover over the audio file within the timeline and look for the white circle filled with pink hue at the beginning and finish of your audio file. On the other hand, to choose the fade-out audio, click and drag the pink circle that appears on the opposite end of the audio file in the timeline that you have chosen to fade out the music file.
@@ -140,10 +120,6 @@ After finishing the method for editing audio in Filmora, click the Export button
 In that window, you can select the MP3 format in the format customization box to continue with storing your file to your system. After making any necessary adjustments to the audio file, click the Export button below, which will ultimately direct you to the area on your PC where you want to store the audio.
 
 ## Part 3\. Related FAQs about LumaFusion
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 1\. How do you fade in a title LumaFusion?
 
@@ -181,24 +157,22 @@ Within the timeline, tap anywhere and move the mouse left or right to divide a c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-best-webcam-tripods-and-stands/"><u>[New] 2024 Approved Best Webcam Tripods and Stands</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-drones-in-a-rivalry-dji-inspire-one-vs-gopro-karma-x/"><u>[New] 2024 Approved Drones in a Rivalry DJI Inspire One Vs GoPro Karma X</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-accelerate-keyword-acquisition-the-finest-7-free-taggification-apps-for-youtube-videos/"><u>[New] In 2024, Accelerate Keyword Acquisition The Finest 7 Free Taggification Apps for YouTube Videos</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-seamless-iphone-photography-during-video-for-2024/"><u>[New] Seamless iPhone Photography During Video for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-diving-deep-into-quality-top-cameras-reviewed/"><u>[Updated] 2024 Approved Diving Deep Into Quality Top Cameras Reviewed</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-expert-picks-ideal-software-for-screenshots-and-recordings/"><u>[Updated] In 2024, Expert Picks Ideal Software for Screenshots & Recordings</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-quintessential-audio-drama-story-creation/"><u>[Updated] In 2024, Quintessential Audio-Drama Story Creation</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-snacking-success-viral-eats-of-the-digital-age/"><u>[Updated] In 2024, Snacking Success Viral Eats of the Digital Age</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-pureearaudioextractors-latest-evolution-for-2024/"><u>[Updated] PureEarAudioExtractor's Latest Evolution for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-the-creme-de-la-creme-live-streaming-services/"><u>[Updated] The Crème De La Créme Live Streaming Services</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-the-full-spectrum-slomo-recording-app-evaluation-for-2024/"><u>[Updated] The Full Spectrum SloMo Recording App Evaluation for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/24-revolutionary-metaverse-concepts-explored-diligently/"><u>24 Revolutionary Metaverse Concepts Explored Diligently</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/assessing-the-usefulness-of-instas-verified-posts-for-2024/"><u>Assessing the Usefulness of Insta’s Verified Posts for 2024</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/bing-chat-vs-chatgpt-for-freelancers-understanding-the-key-differences-and-what-matters-most/"><u>Bing Chat vs ChatGPT for Freelancers: Understanding the Key Differences and What Matters Most</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-beyond-inshot-top-pc-editing-solutions/"><u>In 2024, Beyond Inshot Top PC Editing Solutions</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-masterclass-in-timelapse-capture-via-gopro-studio/"><u>In 2024, Masterclass in Timelapse Capture via GoPro Studio</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-depth-analysis-magix-music-maker-2024-features-list/"><u>In-Depth Analysis Magix Music Maker 2024 Features List</u></a></li>
-<li><a href="https://article-helps.techidaily.com/mellowing-sound-piece-by-piece-in-fl-for-2024/"><u>Mellowing Sound Piece-by-Piece in FL for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/virtual-reality-awaits-discovering-top-10-pc-headsets-for-360-videos-for-2024/"><u>Virtual Reality Awaits Discovering Top 10 PC Headsets for 360 Videos for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-top-8-sites-with-easy-access-to-free-3d-text-psd-images/"><u>[New] 2024 Approved Top 8 Sites with Easy Access to Free 3D Text PSD Images</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-top-10-best-drones-with-camera-for-filming-and-photography/"><u>[New] Top 10 Best Drones with Camera for Filming and Photography</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-from-cloudy-to-crisp-how-to-remove-background-in-picsart-for-2024/"><u>[Updated] From Cloudy to Crisp How to Remove Background in Picsart for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-how-asmrists-can-help-your-evening-routine-for-2024/"><u>[Updated] How ASMRists Can Help Your Evening Routine for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-capturing-live-streams-on-fb-top-techniques-revealed/"><u>[Updated] In 2024, Capturing Live Streams on FB Top Techniques Revealed</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-inside-microsofts-visionary-hololens-innovation-for-2024/"><u>[Updated] Inside Microsoft's Visionary HoloLens Innovation for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/discover-the-ultimate-iphone-savings-for-july-2024-spotlight-on-deals-from-zdnet/"><u>Discover the Ultimate iPhone Savings for July 2024 - Spotlight on Deals From ZDNet</u></a></li>
+<li><a href="https://common-error.techidaily.com/how-to-resolve-the-144-livekernelevent-issue-on-your-pc/"><u>How to Resolve the 144 LiveKernelEvent Issue on Your PC</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-digital-puppetry-and-storytelling-movies-maker-edition/"><u>In 2024, Digital Puppetry and Storytelling Movies Maker Edition</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-moonlit-musings-capturing-the-essence-of-nocturnal-imagery/"><u>In 2024, Moonlit Musings Capturing the Essence of Nocturnal Imagery</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-notable-examples-of-book-trailers/"><u>In 2024, Notable Examples of Book Trailers</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-stable-shooting-ideal-gimbals-and-handhelds-reviewed/"><u>In 2024, Stable Shooting Ideal Gimbals & Handhelds Reviewed</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-stream-wars-evaluating-streamers-top-contenders-obs-and-wirecast/"><u>In 2024, Stream Wars Evaluating Streamers' Top Contenders, OBS & Wirecast</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ways-to-trade-pokemon-go-from-far-away-on-oneplus-nord-3-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Ways to trade pokemon go from far away On OnePlus Nord 3 5G? | Dr.fone</u></a></li>
+<li><a href="https://win-fantastic.techidaily.com/simple-methods-for-transforming-videos-into-format-compatible-with-your-samsung-galaxy-s5/"><u>Simple Methods for Transforming Videos Into Format Compatible with Your Samsung Galaxy S5</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/top-7-ai-powered-platforms-revolutionizing-presentation-creation/"><u>Top 7 AI-Powered Platforms Revolutionizing Presentation Creation</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/top-tier-mkv-players-macos-edition/"><u>Top-Tier MKV Players MacOS Edition</u></a></li>
 </ul></div>
 

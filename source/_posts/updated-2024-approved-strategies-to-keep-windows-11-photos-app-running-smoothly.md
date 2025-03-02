@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Strategies to Keep Windows 11 Photos App Running Smoothly\""
-date: 2025-02-08T02:28:00.416Z
-updated: 2025-02-11T13:14:23.721Z
+date: 2025-02-23T16:11:46.433Z
+updated: 2025-03-02T16:42:30.788Z
 tags: 
   - screen-recording
   - ai video
@@ -45,10 +45,6 @@ In this article, we have compiled the best solutions for you to get rid of Windo
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to fix Windows 10 Photos app crashes
 
 ### Solution 1: Use the Troubleshooter
@@ -76,15 +72,7 @@ Restoring the default libraries would resolve the Windows 10 Photos App crash is
 
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/windows-10-photos-app-crashes-restore.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 1. Lastly, click on ‘Apply’ followed by ‘OK’ and the issue will be resolved.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Solution 3: Reset it
 
@@ -95,10 +83,6 @@ Here is how can you reset it –
 1. Go to ‘Windows 10 Start Menu’ and then click ‘Settings’. Now, click the ‘Apps (Apps & Features)’ option followed by the ‘Photos’ app.
 2. Hit ‘Advanced Options’ and click ‘Reset’ button thereafter.
 3. Now, you got to restart your Windows system, so that Windows 10 Photos App crashing problem can be easily resolved.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Solution 4: Repair Photos App package
 
@@ -121,10 +105,6 @@ Here is how to reinstall the Windows 10 Photos App –
 1. You have to wait a while to complete the process and reboot the Windows 10 system.
 2. Now, visit the ‘Microsoft Store on your computer and find ‘Microsoft Photos.’
 3. Install ‘Microsoft Photos’ after downloading it from there. Your Windows 10 Photos App crashing issue is well taken care of now.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -159,24 +139,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-how-to-find-youtube-sponsorships-by-using-famebit/"><u>[New] 2024 Approved How to Find YouTube Sponsorships by Using FameBit</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-iphone-macro-magic-capturing-the-fine-details/"><u>[New] 2024 Approved IPhone Macro Magic Capturing the Fine Details</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-converting-spotify-playlist-content-for-youtube-music-compatibility/"><u>[New] In 2024, Converting Spotify Playlist Content for YouTube Music Compatibility</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-optimize-viewing-the-finest-html5-video-solutions-for-2024/"><u>[New] Optimize Viewing The Finest HTML5 Video Solutions for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-epic-footage-and-photos-mastering-the-hero5-black-experience/"><u>[Updated] In 2024, Epic Footage and Photos Mastering the Hero5 Black Experience</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-exploring-metaverse-versus-omniverse-landscapes/"><u>[Updated] In 2024, Exploring Metaverse Versus Omniverse Landscapes</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-master-the-art-of-youtubing-with-pro-tools/"><u>[Updated] In 2024, Master the Art of YouTubing with Pro Tools</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-top-photo-tweaking-apps-on-iphones-and-androids-2024s-choice/"><u>[Updated] Top Photo Tweaking Apps on iPhones & Androids - 2024'S Choice</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-poco-m6-pro-4g-drfone-by-drfone-virtual-android/"><u>15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Poco M6 Pro 4G | Dr.fone</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-exploring-screen-recording-tools-beyond-apowersoft/"><u>2024 Approved Exploring Screen Recording Tools Beyond Apowersoft</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/crafting-captivating-content-for-a-consistent-climb-in-subscribers-for-2024/"><u>Crafting Captivating Content for a Consistent Climb in Subscribers for 2024</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/guide-to-completely-erase-data-on-iphone-14-plus-to-avoid-privacy-leak-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>Guide to Completely Erase Data on iPhone 14 Plus to Avoid Privacy Leak | Stellar</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-hidefake-snapchat-location-on-your-apple-iphone-15-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Hide/Fake Snapchat Location on Your Apple iPhone 15 Pro | Dr.fone</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-syncing-yt-beats-with-visual-timelines/"><u>In 2024, Syncing YT Beats with Visual Timelines</u></a></li>
-<li><a href="https://program-issues.techidaily.com/mastering-the-art-of-troubleshooting-teardown-system-breakdowns-a-full-guide/"><u>Mastering the Art of Troubleshooting Teardown System Breakdowns: A Full Guide</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/reasons-for-infinix-hot-30i-stuck-on-boot-screen-and-ways-to-fix-them-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reasons for Infinix Hot 30i Stuck on Boot Screen and Ways To Fix Them | Dr.fone</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/reclaiming-windows-photo-viewer-in-windows-10-methods-demystified-for-2024/"><u>Reclaiming Windows Photo Viewer in Windows 10 - Methods Demystified for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/strategic-advantages-in-business-with-vr-tech-for-2024/"><u>Strategic Advantages in Business with VR Tech for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/the-stagnation-of-ideas-in-contemporary-vr-for-2024/"><u>The Stagnation of Ideas in Contemporary VR for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-creating-illusionary-settings-with-instagrams-chroma-key-for-2024/"><u>[New] Creating Illusionary Settings with Instagram’s Chroma Key for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-dive-into-advanced-3d-text-creation-in-photosophy-for-2024/"><u>[New] Dive Into Advanced 3D Text Creation in PHOTOSOPHY for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-in-2024-professional-visual-enhancements-mastering-the-use-of-luts-in-ae/"><u>[New] In 2024, Professional Visual Enhancements Mastering the Use of LUTs in AE</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-search-of-perfection-the-top-10-live-streamers-for-2024/"><u>[New] In Search of Perfection The Top 10 Live Streamers for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-vlogging-basics-top-uncomplicated-projects-for-2024/"><u>[New] Vlogging Basics Top Uncomplicated Projects for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-social-sites-for-effective-youtube-video-promotion/"><u>[Updated] 2024 Approved Social Sites for Effective YouTube Video Promotion</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-the-diy-experts-approach-to-saving-web-radios/"><u>[Updated] In 2024, The DIY Expert's Approach to Saving Web Radios</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-year-end-visualizations-mind-bending-youtube-figures-and-trends/"><u>2024 Approved Year-End Visualizations Mind Bending Youtube Figures and Trends</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/ecoflow-portable-generator-saved-my-household-throughout-the-latest-blackouts-a-comprehensive-review-by-zdnet/"><u>EcoFlow Portable Generator Saved My Household Throughout the Latest Blackouts - A Comprehensive Review by ZDNet</u></a></li>
+<li><a href="https://video-capture.techidaily.com/highlighting-the-finest-video-grabbers-in-windows-10/"><u>Highlighting the Finest Video Grabbers in Windows 10</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/lightroom-hdr-tutorial-how-to-create-and-merge-stunning-hdr-images-in-lightroom/"><u>Lightroom HDR Tutorial How to Create and Merge Stunning HDR Images in Lightroom</u></a></li>
+<li><a href="https://win-web.techidaily.com/maximizing-your-pcs-potential-expert-tips-from-yl-computing/"><u>Maximizing Your PC's Potential - Expert Tips From YL Computing</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/reclaiming-internet-connectivity-for-brother-printer/"><u>Reclaiming Internet Connectivity for Brother Printer</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/revolutionary-mercedes-benz-electric-vehicle-achieves-unmatched-740-mile-range-test-results-revealed/"><u>Revolutionary Mercedes-Benz Electric Vehicle Achieves Unmatched 740-Mile Range: Test Results Revealed</u></a></li>
 </ul></div>
 

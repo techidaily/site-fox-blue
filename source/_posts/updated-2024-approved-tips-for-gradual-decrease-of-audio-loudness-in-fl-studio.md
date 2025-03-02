@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Tips for Gradual Decrease of Audio Loudness in FL Studio\""
-date: 2025-02-10T06:23:43.456Z
-updated: 2025-02-11T00:15:24.840Z
+date: 2025-02-26T16:20:04.104Z
+updated: 2025-03-02T16:37:25.495Z
 tags: 
   - screen-recording
   - ai video
@@ -43,10 +43,6 @@ Step3 After getting the volume parameter, now you will need to create automation
 
 ![create automation clips fl studio](https://images.wondershare.com/filmora/article-images/2022/07/create-automation-clips-fl-studio.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 After selecting that, there will be an addition of a new automation clip to the playlist.
 
 Step4 Due to the automation clip, you will be able to do a smooth transition in and out of that song or audio. Now, you can create a suitable volume for fading your sound. If you want to create another new automation, then click on the right. After that click on the left and drag it.
@@ -73,15 +69,7 @@ Step3 If you want your audio to fade out, again go to the audio setting. Then dr
 
 No matter which audio editing software, what matters is the learning outcome. Learn the features of different editing software and choose what is suitable for you. If you are a beginner, then watch some tutorial videos on YouTube and read some Quora on google. Those who are just interested in audio editing and want to learn more should first try out [Filmora](https://tools.techidaily.com/wondershare/filmora/download/), whereas if you have a basic idea about FL Studio then you can definitely go for it.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Related FAQs of FL Studio Audio Editing
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 1\. How to fade out FL studio mobile?
 
@@ -101,10 +89,6 @@ Step1 The first thing you have to do is successfully install the Filmora softwar
 
 ![install filmora software](https://images.wondershare.com/filmora/guide/adjust-video-1.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step2 To fade audio in, you have to go to the audio setting. Then drag the pointer to the fade-in option which is present on the right and then apply the duration.
 
 ![fade audio in](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
@@ -115,17 +99,9 @@ No matter which audio editing software, what matters is the learning outcome. Le
 
 ## Related FAQs of FL Studio Audio Editing
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1\. How to fade out FL studio mobile?
 
 If you want to fade out your audio in FL on your mobile phone, tap on the waveform icon which is present on the top left side of the audio. It will now open the drop-down menu where you can do automation and then select volume.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\. How to crescendo in FL studio?
 
@@ -159,19 +135,24 @@ Declicking is an option that helps to remove ‘Clicks’ in the beginning or en
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-list-of-leading-sites-for-buying-youtube-tones/"><u>[New] 2024 Approved List of Leading Sites for Buying YouTube Tones</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-prime-pick-ultimate-action-cam-mics-guide/"><u>[New] 2024 Approved Prime Pick Ultimate Action Cam Mics Guide</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-revamp-your-chat-audio-experience-with-a-personalized-whatsapp-ringtone/"><u>[New] 2024 Approved Revamp Your Chat Audio Experience with a Personalized WhatsApp Ringtone</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-elite-live-performance-websites/"><u>[New] Elite Live Performance Websites</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-inshot-vs-other-editors-comprehensive-analysis/"><u>[New] InShot vs Other Editors Comprehensive Analysis</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-next-gen-gaming-the-best-oculus-players-uncovered/"><u>[New] Next-Gen Gaming The Best Oculus Players Uncovered</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-mastering-maximum-payload-heavy-lift-drones/"><u>[Updated] 2024 Approved Mastering Maximum Payload Heavy Lift Drones</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-plot-puns-on-pop-culture/"><u>[Updated] In 2024, Plot Puns on Pop Culture</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-step-by-step-integrating-comments-in-youtube-videos/"><u>[Updated] Step-by-Step Integrating Comments in YouTube Videos</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/battlefield-geniuses-discovering-the-quintessential-7-total-war-experiences-for-2024/"><u>Battlefield Geniuses Discovering the Quintessential 7 Total War Experiences for 2024</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-detect-and-stop-mspy-from-spying-on-your-infinix-smart-7-hd-drfone-by-drfone-virtual-android/"><u>How to Detect and Stop mSpy from Spying on Your Infinix Smart 7 HD | Dr.fone</u></a></li>
-<li><a href="https://win-able.techidaily.com/overcome-discord-network-issues-with-these-packet-loss-solutions/"><u>Overcome Discord Network Issues with These Packet Loss Solutions</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/the-definitive-list-of-iphone-image-markers-apps-for-2024/"><u>The Definitive List of iPhone Image Markers Apps for 2024</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/toms-review-domain-unveiling-the-best-in-hardware-innovations/"><u>Tom’s Review Domain: Unveiling the Best in Hardware Innovations</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-iphone-images-jpg-png-straightforward-conversion-guide/"><u>[New] 2024 Approved IPhone Images (JPG, PNG) - Straightforward Conversion Guide</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-pinnacle-websites-showcasing-diverse-text-styling-options/"><u>[New] In 2024, Pinnacle Websites Showcasing Diverse Text Styling Options</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-masters-choice-the-ultimate-collection-of-downloader-tools/"><u>[New] Master's Choice The Ultimate Collection of Downloader Tools</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-five-fantastic-iphones-for-podcast-fans/"><u>[Updated] 2024 Approved Five Fantastic iPhones for Podcast Fans</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-the-art-of-amusement-master-memes-with-kapwing/"><u>[Updated] 2024 Approved The Art of Amusement – Master Memes with Kapwing</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-2024-approved-transformative-tips-to-take-your-lunapic-skills-up/"><u>[Updated] 2024 Approved Transformative Tips to Take Your LunaPic Skills Up</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-diverse-forms-of-remote-controlled-flyers-for-2024/"><u>[Updated] Diverse Forms of Remote-Controlled Flyers for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-ultimate-list-of-apples-best-photo-watermark-applications/"><u>[Updated] In 2024, Ultimate List of Apple's Best Photo Watermark Applications</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-navigating-zoomed-details-for-team-collaboration-on-ms-teams-for-2024/"><u>[Updated] Navigating Zoomed Details for Team Collaboration on MS Teams for 2024</u></a></li>
+<li><a href="https://win-cloud.techidaily.com/accelerer-le-processus-de-configuration-utiliser-robocopy-dans-windows-11/"><u>Accélérer Le Processus De Configuration : Utiliser Robocopy Dans Windows 11</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/guide-on-turning-dynamic-hdr-on-in-windows-11-for-2024/"><u>Guide on Turning Dynamic HDR on in Windows 11 for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/hidden-methods-for-dodging-digital-study-vids/"><u>Hidden Methods for Dodging Digital Study Vids</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/high-definition-horizons-with-lgs-newest-tv-review-27ud68/"><u>High-Definition Horizons with LG's Newest TV Review (27UD68)</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/in-2024-methods-to-manipulate-amplitude-in-mp3-wav-and-mpeg-files/"><u>In 2024, Methods to Manipulate Amplitude in MP3, WAV, and MPEG Files</u></a></li>
+<li><a href="https://win-net.techidaily.com/maximizing-your-computers-ram-efficiency-tips-and-tricks-from-yl-computing/"><u>Maximizing Your Computer's RAM Efficiency: Tips & Tricks From YL Computing</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/proven-techniques-to-elevate-your-igtv-videos-on-mobile-and-professional-cameras/"><u>Proven Techniques to Elevate Your IGTV Videos on Mobile & Professional Cameras</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/solved-why-your-pc-wont-enter-safe-mode-using-the-f8-key-on-windows-10-systems/"><u>Solved! Why Your PC Won't Enter Safe Mode Using the F8 Key on Windows 10 Systems</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/the-ultimate-guide-to-keeping-your-contact-details-secret-while-using-an-android-smartphone/"><u>The Ultimate Guide to Keeping Your Contact Details Secret While Using an Android Smartphone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/two-ways-to-track-my-boyfriends-honor-x50-gt-without-him-knowing-drfone-by-drfone-virtual-android/"><u>Two Ways to Track My Boyfriends Honor X50 GT without Him Knowing | Dr.fone</u></a></li>
 </ul></div>
 
